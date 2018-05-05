@@ -1,2 +1,3 @@
 # Cyber.Beast
-A creative commons webcomic
+An open creative commons webcomic
+
