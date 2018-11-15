@@ -8,16 +8,18 @@
   - Broadcaster: Makkusu?
   - Handlers/Cornerman/crew: Makkusu?
   - Fan: Makkusu?
-  - Cybervator: Minia, Jax
-  - CyberOps
-  does that dirty work that no one else could or would do
+  - Cybervator: Minia, Jax 
+  - **CyberOps**  
+    does that dirty work that no one else could or would do to maintain the world order. This includes killing Cyber.Beast and helping to rig the CNS
   - Cyvolters
   
 - After falling on the appartment of Makkusu she becomes his personal cybervator steping in to protect him from his bully Akia dispite enforcement being unecceray
 
-- Minia joins the cyvolters after Kyshumu kills Avis and uses the name Airiona thier
+- Minia joins the cyvolters after Kyshumu kills Avis and uses the name Airiona
 
 - Minia Joins the Cyvolters replacing Avis
+
+- Minia Teams up with Xenos in the CNS
 
 - Leona selects Jax to join her Kyshumu is angry that she didn't invite her own sister
 
@@ -27,7 +29,7 @@
 
 - Minia learns that the Cyber.Beast she is assigned to kill are former Cybervators and learning so is a test of her loyalty/trustworthyness
 
-- Makkusu goes from being a fan to cyberops handler for minia
+- Makkusu goes from being a fan to cyberops handler for minia/Makkusu becomes the first citzen to a handler for a cybervator in the CNS
 
 - Minia discovers who eclipse is or reveals that she already knows
 
