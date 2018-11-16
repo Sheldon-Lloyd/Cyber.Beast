@@ -5,9 +5,9 @@
 - Minia initially rejects the CyberOps and wants to focus on earning money for her family but finds a far more enticing goal upon learning the Cyvolters are looking to change the world in favor of citizens
 
 - Roles
-  - Broadcaster: Makkusu?
+  - Broadcaster/Commentator : Spike, Makkusu?
   - Handlers/Cornerman/crew: Makkusu?
-  - Fan: Makkusu?
+  - Fan: Makkusu
   - Cybervator: Minia, Jax 
   - **CyberOps**  
     does that dirty work that no one else could or would do to maintain the world order. Missions are assigned in level dependent on how much they are trust.
