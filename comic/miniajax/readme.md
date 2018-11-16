@@ -10,7 +10,17 @@
   - Fan: Makkusu?
   - Cybervator: Minia, Jax 
   - **CyberOps**  
-    does that dirty work that no one else could or would do to maintain the world order. This includes killing Cyber.Beast and helping to rig the CNS
+    does that dirty work that no one else could or would do to maintain the world order. Missions are assigned in level dependent on how much they are trust.
+    
+    level 1: Throwing matches
+    
+    level 2: Cheating
+    
+    level 3: Killing Cyber.Beast knowing that they are former cybervators
+    
+    level 4: killing cybervators/citizens
+    
+    Xenos however does the opposite and chooses cybervators that will hesitate to complete these missions whivh is why Minia and not Jax is selected to join the CyberOps.
   - Cyvolters
   
 - After falling on the appartment of Makkusu she becomes his personal cybervator steping in to protect him from his bully Akia dispite enforcement being unecceray
