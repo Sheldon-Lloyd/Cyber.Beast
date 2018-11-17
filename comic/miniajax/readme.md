@@ -29,7 +29,28 @@
 
   Makkusu: hey arent you the Cybervator everyone calls Meania you don't seem all that mean
   
-  Minia: weeell that beacuse you're [special/different]
+  Minia(yelling): It's Minia I hate that name
+  
+  Makkusu: ha ha ha. Ok
+  
+- Upon Mina leaving
+  Makkusu: See ya later Minia
+  
+  Minia:(scowlling) it’s Minia
+  
+  Makkusu: Myy Nia
+  
+  Minia:(scowling with head tilted to the right)Nooo, Mih nee ah. 
+  
+  Makkusu: nope I found you so know your My Nia
+
+  Minia:(she laughs/giggles loudly and rolls eyes with head up transitioning from scowling) ok fine
+  
+  Xenos: It's better than Meania
+  
+  Minia: I hey! I told you not to call me that
+  
+  Minia: weeell that's beacuse you're [special/different]
   
   Makkusu: how so?
   
