@@ -12,13 +12,13 @@
   - **CyberOps**  
     does that dirty work that no one else could or would do to maintain the world order. Missions are assigned in level dependent on how much they are trust.
     
-    level 1: Throwing matches
+    level 1: Throwing matches to maximse profits and maintain perceived competitiveness to keep fans happy and to make sure weaelth is properly destributed
     
-    level 2: Cheating
+    level 2: Cheating also to maximse profits and maintain perceived competitiveness
     
-    level 3: Killing Cyber.Beast knowing that they are former cybervators
+    level 3: Killing Cyber.Beast knowing that which are former cybervators
     
-    level 4: killing cybervators/citizens
+    level 4: killing cybervators/citizens that may disrupt order
     
     Xenos however does the opposite and chooses cybervators that will hesitate to complete these missions whivh is why Minia and not Jax is selected to join the CyberOps.
   - Cyvolters
