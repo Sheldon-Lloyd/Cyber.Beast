@@ -23,7 +23,17 @@
     Xenos however does the opposite and chooses cybervators that will hesitate to complete these missions whivh is why Minia and not Jax is selected to join the CyberOps.
   - Cyvolters
   
-- After falling on the appartment of Makkusu she becomes his personal cybervator steping in to protect him from his bully Akia dispite enforcement being unecceray
+- After falling on the appartment of Makkusu she becomes his personal cybervator steping in to protect him from his bully Akia dispite enforcement being unecessary
+
+- Makkusu recognizes Minia 
+
+  Makkusu: hey arent you the Cybervator everyone calls Meania you don't seem all that mean
+  
+  Minia: weeell that beacuse you're [special/different]
+  
+  Makkusu: how so?
+  
+  Minia:
 
 - Minia joins the cyvolters after Kyshumu kills Avis and uses the name Airiona
 
