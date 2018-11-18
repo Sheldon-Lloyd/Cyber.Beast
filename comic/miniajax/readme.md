@@ -43,7 +43,13 @@
 - Leona selects Jax to join her Kyshumu is angry that she didn't invite her own sister
 
 - Leona Invites Minia to join the CyberOps Kyshumu is angry that she didn't invite her own fiance
+### 1. Ordinary World
+### 2. Call To Adventure 
+### 3. Refusal Of The Call
+### 4. Meeting The Mentor
 ## Act 2
+
+
 - After falling on the appartment of Makkusu she becomes his personal cybervator steping in to protect him from his bully Akia dispite enforcement being unecessary
 
 - Makkusu recognizes Minia 
@@ -76,4 +82,13 @@
   Makkusu: how so?
   
   Minia:
+### 5. Crossing The Threshold
+### 6. Tests, Allies, Enemies
+### 7. Approach To The Inmost Cave
+### 8. Ordeal
+### 9. Reward (Seizing The Sword)
+
 ## Act 3
+### 10. The Road Back
+### 11. Resurrection
+### 12. Return With The Elixir
