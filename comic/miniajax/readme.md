@@ -35,21 +35,23 @@
 - Minia discovers who eclipse is or reveals that she already knows
 
 ## Act 1
-- Minia is hated among cybervators no one would team up with her even her own sister as it seems that she only cares about making money and nothing more. Jax is the only one that excepts and decides to work with her
-
-- Minia initially rejects the CyberOps and wants to focus on earning money for her family but finds a far more enticing goal upon learning the Cyvolters are looking to change the world in favor of citizens
-- Minia Teams up with Xenos in the CNS
 
 - Leona selects Jax to join her Kyshumu is angry that she didn't invite her own sister
 
 - Leona Invites Minia to join the CyberOps Kyshumu is angry that she didn't invite her own fiance
 ### 1. Ordinary World
+- Minia is hated among cybervators no one would team up with her even her own sister as it seems that she only cares about making money and nothing more. Jax is the only one that excepts and decides to work with her
+
 ### 2. Call To Adventure 
 ### 3. Refusal Of The Call
+- Minia initially rejects the CyberOps and wants to focus on earning money for her family but finds a far more enticing goal upon learning the Cyvolters are looking to change the world in favor of citizens
 ### 4. Meeting The Mentor
+- Minia Teams up with Xenos in the CNS
+
 ## Act 2
 
-
+### 5. Crossing The Threshold
+### 6. Tests, Allies, Enemies
 - After falling on the appartment of Makkusu she becomes his personal cybervator steping in to protect him from his bully Akia dispite enforcement being unecessary
 
 - Makkusu recognizes Minia 
@@ -82,8 +84,6 @@
   Makkusu: how so?
   
   Minia:
-### 5. Crossing The Threshold
-### 6. Tests, Allies, Enemies
 ### 7. Approach To The Inmost Cave
 ### 8. Ordeal
 ### 9. Reward (Seizing The Sword)
