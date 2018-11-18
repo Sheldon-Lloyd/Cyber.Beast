@@ -46,11 +46,12 @@
 ### 3. Refusal Of The Call
 - Minia initially rejects the CyberOps and wants to focus on earning money for her family but finds a far more enticing goal upon learning the Cyvolters are looking to change the world in favor of citizens
 ### 4. Meeting The Mentor
-- Minia Teams up with Xenos in the CNS
+- Minia Teams up with Xenos in the CNS and is given the code name Airiona as a Cyvolter
 
 ## Act 2
 
 ### 5. Crossing The Threshold
+- Minia attempts to fight a Cyber.Beast in space stealing Avis' Cyber.Beast to do so
 ### 6. Tests, Allies, Enemies
 - After falling on the appartment of Makkusu she becomes his personal cybervator steping in to protect him from his bully Akia dispite enforcement being unecessary
 
@@ -85,9 +86,11 @@
   
   Minia:
 ### 7. Approach To The Inmost Cave
+- Minia suggests enlisting Makkusu as a cyvolter
 ### 8. Ordeal
+Avis is accused of being a cyvolter and is killed by Kyshumu
 ### 9. Reward (Seizing The Sword)
-
+Minia is called up to join the cyvolters to replace Avis
 ## Act 3
 ### 10. The Road Back
 ### 11. Resurrection
