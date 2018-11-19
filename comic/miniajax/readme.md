@@ -90,7 +90,7 @@
 ### 8. Ordeal
 Avis is accused of being a cyvolter and is killed by Kyshumu
 ### 9. Reward (Seizing The Sword)
-Minia is called up to join the cyvolters to replace Avis
+Minia is Given Avis' Cyber.Beast and replaces him
 ## Act 3
 ### 10. The Road Back
 ### 11. Resurrection
