@@ -1,6 +1,8 @@
 # Cyber.Beast(0) Outline
 **Pages:** 10-12(Prologue/Epilogue)
+
 **Setting:** Cyberspace/Cyber.Hub
+
 **Plot:** Bursun and Yaharia fighting multiple cyberbeast synergising and taming them making the 2 of them the first cybervators. And the only ones to successfully synergise with a cyber.beast without it first being implanted at birth. The story ends with them standing of to fight the remaining cyberbeast with their new abilities
 
 Bursun fights a cyber.beast in a hub/crater he defeats and eating the gem or absorbs it and is enveloped going into burstdrive/hyperdrive mode
