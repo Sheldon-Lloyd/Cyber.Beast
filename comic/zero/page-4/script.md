@@ -1,3 +1,5 @@
+# Page 4 Script
+
 They glowing flowing hair that glows less lower down on the body they glow in the color of their type. They only have eyes and no mouth. And they have a large number on each of their chest matching their prison/slave uniforms
 
 Bursun sits with his legs crossed calm while everyone else runs
