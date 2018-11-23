@@ -19,6 +19,9 @@ They are actually quantum computers and the control center is on the moon cyvars
 Bursun along with other slave are shown placed in a hub/cyberspace
 Hundreds of serfs are shown having their tails plugged into a dome/spear shaped machine huge sitting facing outward around it. Inside of the machine is a cyber.beast gem
 Hundreds of cybervators are thrown into the crater or place in a circle shaped building that has a glowing beam of light coming from it in which when they are placed in it they fall to the bottom
+- **[Page 1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/master/comic/zero/page-1)**
+- **[Page 2](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/master/comic/zero/page-2)**
+
 ## Act II
 The cyber.beast start eating/going inside of the cybervators that are in the crater
 The cyber.beast start eating/going inside of the cybervators in cyberspace after of which their heads are blown off by the slave collar (Slave iron bit) in which they had a collar around the neck and a mask covering the face. The were also shirtless or maybe had a one piece on
@@ -27,8 +30,17 @@ Everyones eyes are wide open and screaming before this happens
 A cyber.beast tries to take over Bursun
 Bursun is enclosed into spear just like the other cybervators he is turned into a cyber.gem, but unlike the other cybervators he erupts from his shell.
 Bursun Synergises with the cyber.beast 
+- **[Page 3](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/master/comic/zero/page-3)**
+- **[Page 4](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/master/comic/zero/page-4)**
+- **[Page 5](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/master/comic/zero/page-5)**
+- **[Page 6](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/master/comic/zero/page-6)**
+- **[Page 7](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/master/comic/zero/page-7)**
+
 ## Act III
 Bursun fights the remaining cyber.beast in space or in the hub
+- **[Page 8](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/master/comic/zero/page-8)**
+- **[Page 9](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/master/comic/zero/page-9)**
+- **[Page 10](https://github.com/Sheldon-Lloyd/Cyber.Beast/blob/master/comic/zero/page-10/script.md)**
 
 ## Epilogue
 Eventually a scientist decided to harness the power of these cyber.beast as a weapon they had no problems with these experiments as people card very little of these people the had a gentic mutation causing them to grow tails in the back of their heads many of them died Bursun was able to harness its power
