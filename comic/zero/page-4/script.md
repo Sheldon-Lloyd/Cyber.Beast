@@ -1,4 +1,4 @@
-# Page 4 Script
+﻿# Page 4 Script
 
 They glowing flowing hair that glows less lower down on the body they glow in the color of their type. They only have eyes and no mouth. And they have a large number on each of their chest matching their prison/slave uniforms
 
@@ -22,6 +22,4 @@ Bursun doesn't answer
 
 **Yaharia:** Of course you can't answer you don't have a mouth. Well apparently still I have a mouth so I’ll do all the talking.
 
-A Honey Badger cyber.beast is seen behind bursun
-
-**Yaharia:** Ooh look a Cyber.Beast
+A Honey Badger cyber.beast is seen behind Yaharia

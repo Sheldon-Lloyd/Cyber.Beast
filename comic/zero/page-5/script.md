@@ -1,2 +1,7 @@
 # Page 5 Script
-A Honey badger Cyber.Beast eats him
+Bursun pushes Yaharia to the side just before she is eaten
+
+Bursun holds the cyber.beast by its teeth
+
+Yaharia: you... you saved me
+
