@@ -6,7 +6,7 @@ He gathers a team of cybervators starting with Minia and his fiance Leona
 
 
 # Act 1
-It opens with Jax watching a video about busrsun and how the war of the past created todays luxuries
+It opens with Jax watching a video about busrsun the first Cybervator how he sacrificed hisselff to save the citizens put an end and how the war of the past created todays luxuries
 # Act 2
 His rivalry with Makkusu (and maybe Airiona) begins as he seemingly always gets the Cyber.Beast before him
 # Act 3
