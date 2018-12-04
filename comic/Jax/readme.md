@@ -9,7 +9,7 @@ He gathers a team of cybervators starting with Minia and his fiance Leona
 It opens with Jax watching a video about busrsun the first Cybervator how he sacrificed hisselff to save the citizens put an end and how the war of the past created todays luxuries
 Mina asks Jax if he would like to team up or Leona tells him that they are teaming up or he is the one that will ask the two of them Mina/Leona first who then invites her sister.
 
-Their first Match is against Makkusu the lowest ranked Cybervator and they lose by a land slide
+Their first Match is against Makkusu the lowest ranked Cybervator and they lose by a land slide despite it being a two/three on one battle
 
 Jax and Mina does not make the championship team Leona however does. Even Makusu was ranked ahead of them and maybe even selected(although declining). Minia and Jax are both upset. 
 
