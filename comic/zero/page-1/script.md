@@ -5,9 +5,9 @@ Bursun and Yaharia is handcuffed in uniform standing on an elevator and waiting 
 
 Each floor number is seen in each panel as the elevator progresses downward
 
-All of them are stressed about it except bursun and maybe Yaharia(who keeps trying to to chat Bursun up while they wait to be wired and asking why he is so calm for someone that is about to be killed) who seems to not care
+All of them are stressed about it except bursun and maybe Yaharia who seems to not care
 
-Yaharia: Hi I’m Yahaira, Yahaira Akinosun. What's your name
+**Yaharia:** Hi I’m Yahaira, Yahaira Akinosun. What's your name
 
 Bursun looks at her but ignores her
 
