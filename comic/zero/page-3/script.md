@@ -1,16 +1,14 @@
-# Page 3 Script
-The Cybervators go inside the scientist  start pulling down everyone including Bursun’s hoodies and plugging their tails in
+# Page 2 Script
 
-All panels are equally sized
+**Yaharia:** Bursun!!
 
-Sitting in a circle Bursun is seen from the side and the back of the previous cybervator
+**Yaharia:** how about it, sound good?
 
-Yaharia pulls down her own hood
+Bursun again says nothing
 
-Bursun sits down but Bursun has his eyes closed Yaharia is calm but her eyes are open every else is nervous
+**Yaharia:** Hmm, I’ll take that as a yes
 
-They get injections in their neck/arm/shoulder to put them to sleep to they can link them into cyberspace bursun however is already in in cyberspace
+They reach the lowest level
 
-**Scientist:** This ones already hyper linked
-
-Yaharia and the others are shown going into cyberspace 
+**Yahaira:** well, looks like it’s our turn
+The other Cybervators say please don't make me go as the guard force them in

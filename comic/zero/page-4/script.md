@@ -1,27 +1,16 @@
-# Page 4 Script
+# Page 3 Script
+The Cybervators go inside the scientist  start pulling down everyone including Bursun’s hoodies and plugging their tails in
 
-They glowing flowing hair that glows less lower down on the body they glow in the color of their type. They only have eyes and no mouth. And they have a large number on each of their chest matching their prison/slave uniforms
+All panels are equally sized
 
-Bursun sits with his legs crossed calm while everyone else runs
+Sitting in a circle Bursun is seen from the side and the back of the previous cybervator
 
-Yaharia stands in front of him and again starts talking his head off
+Yaharia pulls down her own hood
 
-The scientist are observing them in cyberspace on their screen in the viewing room above them and the cybervator can be seen on the lower flower plugged in.
+Bursun sits down but Bursun has his eyes closed Yaharia is calm but her eyes are open every else is nervous
 
-The head it tail of a cybervator blows up and the scientist says up there goes another one or turns into a seed
+They get injections in their neck/arm/shoulder to put them to sleep to they can link them into cyberspace bursun however is already in in cyberspace
 
-The Cybervators behind her are being eaten by the Cyber.Beast
+**Scientist:** This ones already hyper linked
 
-**Yaharia:** Wow it feels so real/Wow my hallucinations have never felt this real before
-
-**Yaharia:** Oh my goodness look at your hair
-
-**Yaharia:** And your mouth it’s gone. Do I look like that
-
-Bursun doesn't answer
-
-**Yaharia:** Of course you can't answer you don't have a mouth. Well apparently still I have a mouth so I’ll do all the talking.
-
-A Honey Badger cyber.beast is seen behind bursun
-
-**Yaharia:** Ooh look a Cyber.Beast
+Yaharia and the others are shown going into cyberspace 

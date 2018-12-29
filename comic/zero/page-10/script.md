@@ -1,4 +1,6 @@
-# Page 10 Script
-Yaharia rushes in and is seen jumping onto a Cyber.Beast
+# Page 9 Script
+Yaharia is excited and amazed as Bursun continues to fight the Cyber.Beast
 
-**Yaharia:** No Fair. Why should you get to have all the fun.
+A Cyber.Beast swoops down and grabs Bursun
+
+He kills/injures it then jumps down from it smashing the unexpecting Cyber.Beast beneath him
