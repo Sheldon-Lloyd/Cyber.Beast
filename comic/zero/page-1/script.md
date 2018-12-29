@@ -1,22 +1,8 @@
-# Page 1 Script
-They are all prisoners wearing have slave collars,handcuffs, and are hooded 
+﻿# Prologue Script
 
-Bursun and Yaharia is handcuffed in uniform standing on an elevator and waiting to be placed in the room beneath them while hearing screams
+**Narrator**: When Cyber.Beast first appeared no one knew what they were or where they came from.
 
-Each floor number is seen in each panel as the elevator progresses downward
+A Cyber.Beast is seen Terrorizing a city standing over what transinon into a hub on the next page
 
-All of them are stressed about it except bursun and maybe Yaharia(who keeps trying to to chat Bursun up while they wait to be wired and asking why he is so calm for someone that is about to be killed) who seems to not care
+**Narrator**: Cyber.Beast wielded an enormous amount of unstoppable power wreaking havoc on the world.
 
-Yaharia: Hi I’m Yahaira, Yahaira Akinosun. What's your name
-
-Bursun looks at her but ignores her
-
-**Yaharia:**
-  1. Silly me how can I forget we don't have names, I named myself and assumed you did the same
-  1. Silly me I keep forgetting. Just because I named myself. That doesn't mean other people gave their self a name
-
-**Yaharia:** I know, I’ll give you a name!
-
-**Yaharia:** How about…?
-
-It appears at first that Bursun is having a internal monologue but turns out to be Yaharia talking telepathically

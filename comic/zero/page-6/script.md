@@ -1,13 +1,7 @@
-# Page 6 Script
+# Page 5 Script
+Bursun pushes Yaharia to the side just before she is eaten
 
-Yaharia yells about that the fact that he was eaten in a fanatical fashion
+Bursun holds the cyber.beast by its teeth
 
-**Yaharia:** You you ate my friend
+Yaharia: you... you saved me
 
-Yaharia tries to pull the cyber.beast off or pull open its mouth
-
-**Yaharia:** Let him go
-
-Something happens to the cyber.beast
-
-**Yaharia:** oops/uh-oh. What did I dooo

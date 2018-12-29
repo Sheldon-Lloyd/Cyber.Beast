@@ -1,3 +1,3 @@
-# Page 8 Script
-As the Cyber.beast all seem to be drawn toward Yaharia. The Cyber.Beast all start to close in on them.
-
+# Page 7 Script
+Instead of being eaten Bursun Absorbs it
+The Scientist are amazed by what has happened to bursun vitals and/or body outside of cyberspace

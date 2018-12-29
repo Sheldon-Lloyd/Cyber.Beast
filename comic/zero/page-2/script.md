@@ -1,14 +1,24 @@
-# Page 2 Script
+﻿# Page 1 Script
+**Narrator**: Now they are kept at bay by sacrificing individuals they call Cybervators.
 
-**Yaharia:** Bursun!!
+They are all prisoners wearing have slave collars,handcuffs, and are hooded 
 
-**Yaharia:** how about it, sound good?
+Bursun and Yaharia is handcuffed in uniform standing on an elevator and waiting to be placed in the room beneath them while hearing screams
 
-Bursun again says nothing
+Each floor number is seen in each panel as the elevator progresses downward
 
-**Yaharia:** Hmm, I’ll take that as a yes
+All of them are stressed about it except bursun and maybe Yaharia(who keeps trying to to chat Bursun up while they wait to be wired and asking why he is so calm for someone that is about to be killed) who seems to not care
 
-They reach the lowest level
+Yaharia: Hi I’m Yahaira, Yahaira Akinosun. What's your name
 
-**Yahaira:** well, looks like it’s our turn
-The other Cybervators say please don't make me go as the guard force them in
+Bursun looks at her but ignores her
+
+**Yaharia:**
+  1. Silly me how can I forget we don't have names, I named myself and assumed you did the same
+  1. Silly me I keep forgetting. Just because I named myself. That doesn't mean other people gave their self a name
+
+**Yaharia:** I know, I’ll give you a name!
+
+**Yaharia:** How about…?
+
+It appears at first that Bursun is having a internal monologue but turns out to be Yaharia talking telepathically
