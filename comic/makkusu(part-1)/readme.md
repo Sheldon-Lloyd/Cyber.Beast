@@ -36,9 +36,7 @@
 
 ## Act 1
 
-- Leona selects Jax to join her Kyshumu is angry that she didn't invite her own sister
-
-- Leona Invites Minia to join the CyberOps Kyshumu is angry that she didn't invite her own fiance
+Airiona is found outside the home of Makkusu
 ### 1. Ordinary World
 - Minia is hated among cybervators no one would team up with her even her own sister as it seems that she only cares about making money and nothing more. Jax is the only one that excepts and decides to work with her
 
@@ -92,6 +90,7 @@ Avis is accused of being a cyvolter and is killed by Kyshumu
 ### 9. Reward (Seizing The Sword)
 Minia is Given Avis' Cyber.Beast and replaces him
 ## Act 3
+Makkusu Fights Jax in the championships
 ### 10. The Road Back
 ### 11. Resurrection
 ### 12. Return With The Elixir
