@@ -36,48 +36,48 @@
 
 ## Arc 1
 ###	Act 1
-		1. Ordinary World
-			Makkusu watches Championships
-				Alex Wins the Championships
-				Xenos loses the Championships
-				Kyshumu Wins the Championships
-		2. Call To Adventure 
-			Makkusu Applies to be a Cybervator
-		3. Refusal Of The Call
-			Makkusu is rejected
-		4. Meeting The Mentor
-			Airiona is found
-			Makkusu is given a cyberbeast
+1. Ordinary World
+	- Makkusu watches Championships
+		Alex Wins the Championships
+		Xenos loses the Championships
+		Kyshumu Wins the Championships
+2. Call To Adventure 
+	- Makkusu Applies to be a Cybervator
+3. Refusal Of The Call
+	- Makkusu is rejected
+4. Meeting The Mentor
+	- Airiona is found
+	- Makkusu is given a cyberbeast
 ###	Act 2
-		5. Crossing The Threshold
-			Makkusu teams up with Airiona in cyberspace
-			The 22? championships is going on
-			Makkusu trains his body
-		6. Tests, Allies, Enemies
-			Minia teams up with Makkusu
-			Makkusu helps someone
-			Makkusu loses to jax 
-			Makkusu looks ahead to see who his team may be
-			Minia helps Makkusu who is bullied
-		7. Approach To The Inmost Cave
-			Makkusu might not have enough points
-			Some one he helped before allows him to compete
-			Makkusu is seen outside of cyberspacae
-			Alex becomes chief
-			Makkusu works on his new tech
-		8. Ordeal
-			Kyshumu announces that citizens cant compete
-		9. Reward (Seizing The Sword)
-			Makkusu uses his tech to compete
-			Makkusu team is formed
-		10. The Road Back
-			Alex allows Makkusu to compete with BluNet
-			An ultimatum/wager is purposed for Makkusu
+5. Crossing The Threshold
+	- Makkusu teams up with Airiona in cyberspace
+	- The 22? championships is going on
+	- Makkusu trains his body
+6. Tests, Allies, Enemies
+	- Minia teams up with Makkusu
+	- Makkusu helps someone
+	- Makkusu loses to jax 
+	- Makkusu looks ahead to see who his team may be
+	- Minia helps Makkusu who is bullied
+7. Approach To The Inmost Cave
+	- Makkusu might not have enough points
+	- Some one he helped before allows him to compete
+	- Makkusu is seen outside of cyberspacae
+	- Alex becomes chief
+	- Makkusu works on his new tech
+8. Ordeal
+	- Kyshumu announces that citizens cant compete
+9. Reward (Seizing The Sword)
+	- Makkusu uses his tech to compete
+	- Makkusu team is formed
+10. The Road Back
+	- Alex allows Makkusu to compete with BluNet
+	- An ultimatum/wager is purposed for Makkusu
 ###	Act 3
-		11. Resurrection
-			Makkusu fights Jax
-				Max suggests a line up change
-		12. Return With The Elixir
-			Makkusu wins/loses championship
-			Cyvolters are teased/revealed
-			The CNS is shut down?
+11. Resurrection
+	- Makkusu fights Jax
+		Max suggests a line up change
+12. Return With The Elixir
+	- Makkusu wins/loses championship
+	- Cyvolters are teased/revealed
+	- The CNS is shut down?
