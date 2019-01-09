@@ -1,6 +1,6 @@
 # Cyber.Beast(Makkusu) outline
 ## Brainstorm
-
+- Episodes: 22-27
 - Roles
   - Broadcaster/Commentator : Spike, Makkusu?
   - Handlers/Cornerman/crew: Makkusu?
