@@ -1,4 +1,4 @@
-# Cyber.Beast(miniajax) outline
+# Cyber.Beast(Makkusu) outline
 ## Brainstorm
 
 - Roles
@@ -34,63 +34,50 @@
 
 - Minia discovers who eclipse is or reveals that she already knows
 
-## Act 1
-
-Airiona is found outside the home of Makkusu
-### 1. Ordinary World
-- Minia is hated among cybervators no one would team up with her even her own sister as it seems that she only cares about making money and nothing more. Jax is the only one that excepts and decides to work with her
-
-### 2. Call To Adventure 
-### 3. Refusal Of The Call
-- Minia initially rejects the CyberOps and wants to focus on earning money for her family but finds a far more enticing goal upon learning the Cyvolters are looking to change the world in favor of citizens
-### 4. Meeting The Mentor
-- Minia Teams up with Xenos in the CNS and is given the code name Airiona as a Cyvolter
-
-## Act 2
-
-### 5. Crossing The Threshold
-- Minia attempts to fight a Cyber.Beast in space stealing Avis' Cyber.Beast to do so
-### 6. Tests, Allies, Enemies
-- After falling on the appartment of Makkusu she becomes his personal cybervator steping in to protect him from his bully Akia dispite enforcement being unecessary
-
-- Makkusu recognizes Minia 
-
-  Makkusu: hey arent you the Cybervator everyone calls Meania you don't seem all that mean
-  
-  Minia(yelling): It's Minia I hate that name
-  
-  Makkusu: ha ha ha. Ok
-  
-- Upon Minia leaving
-  Makkusu: See ya later Minia
-  
-  Minia:(scowlling) it’s Minia
-  
-  Makkusu: Myy Nia
-  
-  Minia:(scowling with head tilted to the right)Nooo, Mih nee ah. 
-  
-  Makkusu: nope I found you so know your My Nia
-
-  Minia:(she laughs/giggles loudly and rolls eyes with head up transitioning from scowling) ok fine
-  
-  Xenos(half smiling): well, It's better than Meania
-  
-  Minia: hey! I told you not to call me that
-  
-  Minia: weeell that's beacuse you're [special/different]
-  
-  Makkusu: how so?
-  
-  Minia:
-### 7. Approach To The Inmost Cave
-- Minia suggests enlisting Makkusu as a cyvolter
-### 8. Ordeal
-Avis is accused of being a cyvolter and is killed by Kyshumu
-### 9. Reward (Seizing The Sword)
-Minia is Given Avis' Cyber.Beast and replaces him
-## Act 3
-Makkusu Fights Jax in the championships
-### 10. The Road Back
-### 11. Resurrection
-### 12. Return With The Elixir
+## Arc 1
+###	Act 1
+		1. Ordinary World
+			Makkusu watches Championships
+				Alex Wins the Championships
+				Xenos loses the Championships
+				Kyshumu Wins the Championships
+		2. Call To Adventure 
+			Makkusu Applies to be a Cybervator
+		3. Refusal Of The Call
+			Makkusu is rejected
+		4. Meeting The Mentor
+			Airiona is found
+			Makkusu is given a cyberbeast
+###	Act 2
+		5. Crossing The Threshold
+			Makkusu teams up with Airiona in cyberspace
+			The 22? championships is going on
+			Makkusu trains his body
+		6. Tests, Allies, Enemies
+			Minia teams up with Makkusu
+			Makkusu helps someone
+			Makkusu loses to jax 
+			Makkusu looks ahead to see who his team may be
+			Minia helps Makkusu who is bullied
+		7. Approach To The Inmost Cave
+			Makkusu might not have enough points
+			Some one he helped before allows him to compete
+			Makkusu is seen outside of cyberspacae
+			Alex becomes chief
+			Makkusu works on his new tech
+		8. Ordeal
+			Kyshumu announces that citizens cant compete
+		9. Reward (Seizing The Sword)
+			Makkusu uses his tech to compete
+			Makkusu team is formed
+		10. The Road Back
+			Alex allows Makkusu to compete with BluNet
+			An ultimatum/wager is purposed for Makkusu
+###	Act 3
+		11. Resurrection
+			Makkusu fights Jax
+				Max suggests a line up change
+		12. Return With The Elixir
+			Makkusu wins/loses championship
+			Cyvolters are teased/revealed
+			The CNS is shut down?
