@@ -1,4 +1,5 @@
 # Cyber.Beast(Makkusu) outline
+*Minia is Airiona*
 ## Brainstorm
 
 - Roles
@@ -32,23 +33,47 @@
 3. Refusal Of The Call
 	- Makkusu is rejected
 4. Meeting The Mentor
-	- Airiona is found
+	- Minia is found
+		Makkusu recognizes Minia 
+
+	  Makkusu: hey arent you the Cybervator everyone calls Meania you don't seem all that mean
+
+	  Minia(yelling): It's Minia I hate that name
+
+	  Makkusu: ha ha ha. Ok
+
+	- Upon Minia leaving
+	  Makkusu: See ya later My nia
+
+	  Minia:(scowlling) it’s Minia
+
+	  Makkusu: Myy Nia
+
+	  Minia:(scowling with head tilted to the right)Nooo, Mih nee ah. 
+
+	  Makkusu: nope I found you so now your My Nia
+
+	  Minia:(she laughs/giggles loudly and rolls eyes with head up transitioning from scowling) ok fine
+
+	  Xenos(half smiling): well, It's better than Meania
+
+	  Minia: hey! I told you not to call me that
+
+	  Minia: weeell that's beacuse you're [special/different]
+
+	  Makkusu: how so?
+
+	  Minia:
 	- Makkusu is given a cyberbeast
 ###	Act 2
 5. Crossing The Threshold
-	- Makkusu teams up with Airiona in cyberspace
+	- Makkusu teams up with a cybervator that goes by the name Airiona in cyberspace
 	- The 22? championships is going on
 	- Makkusu trains his body
 		
 	Expecting to be in the tournament he trains his body and ignores his doubters
 	
 6. Tests, Allies, Enemies
-	- Minia teams up with Makkusu
-		
-		Mina is no longer paired with her sister Leona as she has decided to team up with Jax who has yet to find a pair.
-
-		This leads Mina to find and pair up with Makkusu.
-		
 	- Makkusu helps someone
 	- Makkusu loses to jax 
 	- Makkusu looks ahead to see who his team may be
