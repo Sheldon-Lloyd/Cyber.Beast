@@ -33,7 +33,7 @@
 	- Makkusu is rejected
 4. Meeting The Mentor
 	- Airiona is found
-	- Makkusu is given a cyberbeast
+	- Makkusu is given a cyberbeast and invited to be a cybervator
 ###	Act 2
 5. Crossing The Threshold
 	- Makkusu teams up with Airiona in cyberspace
@@ -42,37 +42,46 @@
 		
 	Expecting to be in the tournament he trains his body and ignores his doubters
 	
-6. Tests, Allies, Enemies
-	- Minia teams up with Makkusu
+6. Tests, Allies, Enemies	
+	- Makkusu helps someone in cyberspace 
 		
-		Mina is no longer paired with her sister Leona as she has decided to team up with Jax who has yet to find a pair.
-
-		This leads Mina to find and pair up with Makkusu.
-		
-	- Makkusu helps someone
-	- Makkusu loses to jax 
-	- Makkusu looks ahead to see who his team may be
+		he has develop a reputation for being an alturistic cybervator not just help others but in terms of giving money unlike other cybervators he gives 70% or more of his earnings to fans
+	- Makkusu looks ahead to see who his team may be if he earns a spot
 	
-		This team consists of Minia and Jax
+		This team consists of Minia and Jax	
+	- Makkusu loses to jax 
+
+	- Makkusu is seen outside of cyberspace
+	
+		Makkusu has not been seen out side of cyberspace for a while but when we see him he now has hair on his head and no longer has a fat belly.		
 		
+	- Minia fights Airiona in cyberspace
+	- Mini falls in the backyard of Makkusu
+	- Makkusu learns that Airiona is a cyvolter and he may have been helping them
+7. Approach To The Inmost Cave
 	- Minia helps Makkusu who is bullied
 	
-7. Approach To The Inmost Cave
+		Akia tells haha look at Makkusu trying to get buff you think that just because you are geting in shape you will become a cybervator. lets see what you got.
+		
+		It aperars like he might stand up for his self but he doesn't
 	- Makkusu might not have enough points
-	- Some one he helped before allows him to compete
+	- Someone he helped before allows him to compete
 	
 		The person either resigns or give him on fight that he needs to be ranked high enough to joins as they don't need them (thunora?)
 		
-	- Makkusu is seen outside of cyberspace
-	
-		Makkusu has not been seen out side of cyberspace for a while but when we see him he now has hair on his head and no longer has a fat belly.
+
 		
 	- Alex becomes chief
 	- Makkusu works on his new tech
 8. Ordeal
-	- Kyshumu announces that citizens cant compete
+	- Citzens are now offically allowed to compete
+		
+		All of the citzen who has become cybervators up until now to prevent this citins will be allowed to join the CNS. this is done to prevent them from joining the cybervators just so that they can join the CNS.		
 	
-		He suggest that it is to dangerous and not having armor they are more likely to be killed and that they cant regrow limbs like a real cybervator
+	- Kyshumu announces that citizens shouldn't compete
+		
+		He suggest that it is too dangerous and not having armor they are more likely to be killed and that they can't regrow limbs like a real cybervator
+		
 	
 9. Reward (Seizing The Sword)
 	- Makkusu uses his tech to compete
