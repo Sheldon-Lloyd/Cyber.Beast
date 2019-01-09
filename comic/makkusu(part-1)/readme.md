@@ -5,7 +5,7 @@
   - Broadcaster/Commentator : Spike, Makkusu?
   - Handlers/Cornerman/crew: Makkusu?
   - Fan: Makkusu
-  - Cybervator: Minia, Jax 
+  - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex
 
 ## Arc 1
@@ -57,8 +57,20 @@
 		
 	- Minia fights Airiona in cyberspace
 	- Mini falls in the backyard of Makkusu
+		
+		Makkusu asks what happend Minia tells him that she is not supposed to tell him but because he saved her that he will tell him. She insist that he does not tell anyone because if word gets out she will be in trouble
+		
+	- Makkusu tells a worried Spike what happen
+		
+		it is placed on the news Minia teleports to Makkusu enraged that he told
+		
 	- Makkusu learns that Airiona is a cyvolter and he may have been helping them
 7. Approach To The Inmost Cave
+	- Makkusu finds old cyber.tech
+		
+		Makkusu realizes that even if he makes it into the tournament he won't be of much help since he can't go into a BurstDrive mode.
+		
+		He finds a hole in the ground left by Minia in it is old cyber.tech this is just what he needs to compete on even grounds
 	- Minia helps Makkusu who is bullied
 	
 		Akia tells haha look at Makkusu trying to get buff you think that just because you are geting in shape you will become a cybervator. lets see what you got.
@@ -67,7 +79,7 @@
 	- Makkusu might not have enough points
 	- Someone he helped before allows him to compete
 	
-		The person either resigns or give him on fight that he needs to be ranked high enough to joins as they don't need them (thunora?)
+		The person either resigns or give him the fight that he needs to be ranked high enough to joins as they don't need them (thunora?)
 		
 
 		
@@ -76,7 +88,7 @@
 8. Ordeal
 	- Citzens are now offically allowed to compete
 		
-		All of the citzen who has become cybervators up until now to prevent this citins will be allowed to join the CNS. this is done to prevent them from joining the cybervators just so that they can join the CNS.		
+		All of the citzen who has become cybervators up until now to prevent this citizens will be allowed to join the CNS. this is done to prevent them from joining the cybervators just so that they can join the CNS.		
 	
 	- Kyshumu announces that citizens shouldn't compete
 		
@@ -87,8 +99,12 @@
 	- Makkusu uses his tech to compete
 	- Makkusu's team is formed
 	
-		Makkusu(back up green/white) Ace Harmony(red/blue) Knilla(black) Airiona/Minia(green) Xenos
+		Makkusu(back up green/white) Ace Harmony(red/blue) Knilla(black) ~~Airiona~~(green) Xenos
+	- Makkusu gets to talk to his opponets Minia and Jax Before the tournament 
+		
+		he asks Minia what happened to her shirt
 10. The Road Back
+
 	- Alex allows Makkusu to compete with BluNet
 	
 		Alex has been newly elected as the Chief of BluNet
@@ -101,13 +117,13 @@
 
 		Alex makes a ultimatum suggesting that a citizen is unlikely to win the championships--If Makkusu loses no Citizen will be allowed to compete in the CNS again.
 
-		Someones says and if he wins
+		:and if he wins
 
 		Alex is about to say something
 
 		Kyshumu(interrupts): He won't. I'll make sure of it.
 
-		some: With al due respect sir you can't compete in the championships any more you're the chief.
+		: With al due respect sir you can't compete in the championships any more you're the chief.
 
 		Kyhsumu: I know that I can't but my wife can
 
@@ -127,5 +143,5 @@
 	
 		If Makkusu wins it is because Tomasina lets him or is distracted by the fact that he looks/feels familiar
 		
-	- Cyvolters are teased/revealed
+	- Cyvolters are revealed
 	- The CNS is shut down?
