@@ -6,33 +6,7 @@
   - Handlers/Cornerman/crew: Makkusu?
   - Fan: Makkusu
   - Cybervator: Minia, Jax 
-  - **CyberOps**  
-    does that dirty work that no one else could or would do to maintain the world order. Missions are assigned in level dependent on how much they are trust.
-    
-    level 1: Throwing matches to maximse profits and maintain perceived competitiveness to keep fans happy and to make sure weaelth is properly destributed
-    
-    level 2: Cheating also to maximse profits and maintain perceived competitiveness
-    
-    level 3: Killing Cyber.Beast knowing that which are former cybervators
-    
-    level 4: killing cybervators/citizens that may disrupt order (only 12 cybervators are at this level at one time)
-    
-    Xenos however does the opposite and chooses cybervators that will hesitate to complete these missions whivh is why Minia and not Jax is selected to join the CyberOps.
-  - Cyvolters
-  
-
-
-- Minia joins the cyvolters after Kyshumu kills Avis and uses the name Airiona
-
-- Minia Joins the Cyvolters replacing Avis
-
-- Jax and Minia fight in space sending Minia crashing on Makkusu's appartment
-
-- Minia learns that the Cyber.Beast she is assigned to kill are former Cybervators and learning so is a test of her loyalty/trustworthyness
-
-- Makkusu goes from being a fan to cyberops handler for minia/Makkusu becomes the first citzen to a handler for a cybervator in the CNS
-
-- Minia discovers who eclipse is or reveals that she already knows
+  - Chief: Kyshumu, Alex
 
 ## Arc 1
 ###	Act 1
