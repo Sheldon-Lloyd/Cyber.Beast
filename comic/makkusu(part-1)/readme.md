@@ -38,7 +38,8 @@
 ###	Act 1
 1. Ordinary World
 	- Makkusu watches Championships
-		- **Alex Wins the Championships**		
+		- **Alex Wins the Championships**
+		
 			After Alex wins a fan of the other team runs up to him(maybe a younger Makkusu) and says I don't like you any more.
 
 			Alex is asked by a reporter what he will do know that he won. He says he will become chief
