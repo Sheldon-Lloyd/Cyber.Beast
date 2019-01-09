@@ -10,7 +10,8 @@
 
 ## Arc 1
 ###	Act 1
-1. Ordinary World
+1. **Ordinary World**<br/>
+Episodes: 1
 	- Makkusu watches Championships
 		- **Alex Wins the Championships**
 		
@@ -27,22 +28,27 @@
 
 			Kyshumu is asked by a reporter what he will do know that he won. He says he will become chief
 			
-2. Call To Adventure 
+2. **Call To Adventure**<br/>
+Episodes: 2
 	- Makkusu Applies to be a Cybervator
-3. Refusal Of The Call
+3. **Refusal Of The Call**<br>
+Episodes: 3
 	- Makkusu is rejected
-4. Meeting The Mentor
+4. **Meeting The Mentor**<br>
+Episodes: 4, 5
 	- Airiona is found
 	- Makkusu is given a cyberbeast and invited to be a cybervator
 ###	Act 2
-5. Crossing The Threshold
+5. **Crossing The Threshold**<br>
+Episodes: 6, 7, 8, 9
 	- Makkusu teams up with Airiona in cyberspace
 	- The 22? championships is going on
 	- Makkusu trains his body
 		
 	Expecting to be in the tournament he trains his body and ignores his doubters
 	
-6. Tests, Allies, Enemies	
+6. **Tests, Allies, Enemies**<br>
+Episodes: 9, 10, 11, 12
 	- Makkusu helps someone in cyberspace 
 		
 		he has develop a reputation for being an alturistic cybervator not just help others but in terms of giving money unlike other cybervators he gives 70% or more of his earnings to fans
@@ -65,7 +71,8 @@
 		it is placed on the news Minia teleports to Makkusu enraged that he told
 		
 	- Makkusu learns that Airiona is a cyvolter and he may have been helping them
-7. Approach To The Inmost Cave
+7. **Approach To The Inmost Cave**<br>
+Episodes: 13, 14
 	- Makkusu finds old cyber.tech
 		
 		Makkusu realizes that even if he makes it into the tournament he won't be of much help since he can't go into a BurstDrive mode.
@@ -75,7 +82,7 @@
 	
 		Akia tells haha look at Makkusu trying to get buff you think that just because you are geting in shape you will become a cybervator. lets see what you got.
 		
-		It aperars like he might stand up for his self but he doesn't
+		It appears like he might stand up for his self but he doesn't
 	- Makkusu might not have enough points
 	- Someone he helped before allows him to compete
 	
@@ -85,7 +92,8 @@
 		
 	- Alex becomes chief
 	- Makkusu works on his new tech
-8. Ordeal
+8. **Ordeal**<br>
+Episodes: 15
 	- Citzens are now offically allowed to compete
 		
 		All of the citzen who has become cybervators up until now to prevent this citizens will be allowed to join the CNS. this is done to prevent them from joining the cybervators just so that they can join the CNS.		
@@ -95,7 +103,8 @@
 		He suggest that it is too dangerous and not having armor they are more likely to be killed and that they can't regrow limbs like a real cybervator
 		
 	
-9. Reward (Seizing The Sword)
+9. **Reward (Seizing The Sword)**<br>
+Episodes: 16
 	- Makkusu uses his tech to compete
 	- Makkusu's team is formed
 	
@@ -103,8 +112,8 @@
 	- Makkusu gets to talk to his opponets Minia and Jax Before the tournament 
 		
 		he asks Minia what happened to her shirt
-10. The Road Back
-
+10. **The Road Back**<br>
+Episodes: 17, 18, 19
 	- Alex allows Makkusu to compete with BluNet
 	
 		Alex has been newly elected as the Chief of BluNet
@@ -131,14 +140,16 @@
 
 		Kyshumu(angry):Fine!
 ###	Act 3
-11. Resurrection
+11. **Resurrection**<br>
+Episodes: 20, 21
 	- Makkusu fights Jax
 		-Max suggests a line up change
 		
 		Mina is changed from the blue to the green position
 
 		Harmony goes from red to blue after being calmed or Xenos take Blue
-12. Return With The Elixir
+12. **Return With The Elixir**<br>
+Episodes: 22
 	- Makkusu wins/loses championship
 	
 		If Makkusu wins it is because Tomasina lets him or is distracted by the fact that he looks/feels familiar
