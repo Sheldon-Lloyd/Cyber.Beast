@@ -8,21 +8,21 @@ The ending of CNS Championships is shown. An 8 year old Makkusu is shown watchin
 Pages: 4, 5, 6, 7
 
 After the Match
-*The back of Xenos/Kyshumu/Tomasina is shown a losing the reader to see their tail*
+*The back of Xenos/Tomasina is shown a losing the reader to see their tail*
 
 **Makkusu:** Hey mister hey mister 
 
-*Tomasina/Xenos/Kyshumu Turns around preparing to give him an autograph*
+*Tomasina/Xenos Turns around preparing to give him an autograph*
 
 **Makkusu:** I don't like you anymore
 
-**Tomasina/Xenos/Kyshumu:** What did I do
+**Tomasina/Xenos:** What did I do
 
-**Makkusu's Gurdian**(*pulling Makkusu away*)/**Akia**(*jumping in front of Makkusu*): he he Makkusu's upset because you lost/beat his favorite cybervator
+**Makkusu's Gurdian**(*pulling Makkusu away*)/**Akia**(*jumping in front of Makkusu*): he he Makkusu's upset because you lost
 
 **Makkusu:** Just you wait when I'm old enough I'm gonna be a better Cybervator than even you
 
-**Tomasina/Kyshumu/Xenos** (*rubs the top of his head*): Ha ha ha. I'll be waiting.
+**Tomasina/Xenos** (*rubs the top of his head*): Ha ha ha. I'll be waiting.
 
 
 
