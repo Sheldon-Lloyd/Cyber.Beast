@@ -7,7 +7,7 @@ After the Match
 
 **Makkusu:** Hey mister hey mister 
 
-*Tomasina/Xenos/Kyshumu Turns around preparing to give n interview*
+*Tomasina/Xenos/Kyshumu Turns around preparing to give him an autograph*
 
 **Makkusu:** I don't like you anymore
 
