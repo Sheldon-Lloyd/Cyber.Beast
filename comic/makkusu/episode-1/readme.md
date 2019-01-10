@@ -1,8 +1,12 @@
 # Episode 1 Outline
 ## Act 1
+Pages: 1, 2, 3
+
 The ending of CNS Championships is shown. An 8 year old Makkusu is shown watching as a fan
 
 ## Act 2
+Pages: 4, 5, 6, 7
+
 After the Match
 
 **Makkusu:** Hey mister hey mister 
@@ -22,6 +26,8 @@ After the Match
 
 
 ## Act 3
+Pages: 8, 9, 10
+
 10 years later Makkusu is now old enough to compete in the CNS
 
 Makkusu is teased about being delusional trying become a cybervator when he doesn't even have a tail
