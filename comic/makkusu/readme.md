@@ -29,10 +29,10 @@ Episodes: 1
 			Kyshumu is asked by a reporter what he will do know that he won. He says he will become chief
 			
 2. **Call To Adventure**<br/>
-Episodes: 2
+Episodes: 1
 	- Makkusu Applies to be a Cybervator
 3. **Refusal Of The Call**<br>
-Episodes: 3
+Episodes: 2,3
 	- Makkusu is rejected
 4. **Meeting The Mentor**<br>
 Episodes: 4, 5
