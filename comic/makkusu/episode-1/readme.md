@@ -8,6 +8,7 @@ The ending of CNS Championships is shown. An 8 year old Makkusu is shown watchin
 Pages: 4, 5, 6, 7
 
 After the Match
+*The back of Xenos/Kyshumu/Tomasina is shown a losing the reader to see their tail*
 
 **Makkusu:** Hey mister hey mister 
 
