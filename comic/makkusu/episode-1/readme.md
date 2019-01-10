@@ -19,9 +19,19 @@ After the Match
 
 **Tomasina/Kyshumu/Xenos** (*rubs the top of his head*): Ha ha ha. I'll be waiting.
 
+
+
+## Act 3
 10 years later Makkusu is now old enough to compete in the CNS
 
 Makkusu is teased about being delusional trying become a cybervator when he doesn't even have a tail
 
-## Act 3
 Makkusu starts to have doubts but submits his application regardless
+<hr>
+
+10 years later Makkusu is now old enough to compete in the CNS
+
+Makkusu submits his application to become a Cybervator
+
+Makkusu is teased about being delusional trying become a cybervator when he doesn't even have a tail
+
