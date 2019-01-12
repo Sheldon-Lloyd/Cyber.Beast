@@ -7,7 +7,13 @@
   - Fan: Makkusu
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex
-
+- Minia is traded to BluNet by Leona which is all over the news. 
+	- Kyshumu is enraged as this is right before the hub she is traded to becomes a Cyvolter hub. He then realizes this is the perfect opportuity to ensure Makkusu loses he tells her to throw the match. This leaves Minia conflicted because she does not want to see Makkusu fail.
+	- During the match it appears that she is doing just what her father wanted as performs poorly during her match. It turn out that this is not the case. She has been trying her best but does she not want to hurt her opponet hampering her abilities.
+	- Airiona tells Makkusu that Minia is sabatoging them. Makkusu(he was voted team captain despite not starting) then suggests that Minia be removed from her Blue position. Airiona is happy thinking Minia is being bench--however Makkusu benchs Airiona instead who is visibly upset. Someone asks then who will take the Blue/White position (Hamony/Xenos/Avis can't or wont). 
+		Makkusu: well then I guess Air...
+		Airiona/Xenos: You should Makkusu. It will be the perfect chance to show everyone what you're capable of.
+	 - They begin to make a historic comeback but their efforts fall short as the deficit Minia creating was to great to overcome
 ## Arc 1
 ###	Act 1
 1. **Ordinary World**<br/>
@@ -45,7 +51,7 @@ Episodes: 4, 5
 ###	Act 2
 5. **Crossing The Threshold**<br>
 Episodes: 6, 7, 8, 9
-	- Makkusu teams up with Airiona in cyberspace
+	- Makkusu teams up with Airiona in cyberspace. He assumes that because Airiiona and Minia are teammates that he is a ReNet Cybervator
 	- The 22? championships is going on
 	- Makkusu trains his body
 		
@@ -76,7 +82,7 @@ Episodes: 9, 10, 11, 12
 		
 		it is placed on the news Minia teleports to Makkusu enraged that he told
 		
-	- Makkusu learns that Airiona is a cyvolter and he may have been helping them
+	- Makkusu learns that Airiona is a cyvolter and he may have been helped them
 7. **Approach To The Inmost Cave**<br>
 Episodes: 13, 14, 15
 
@@ -103,11 +109,13 @@ Episodes: 13, 14, 15
 	- Makkusu works on his new tech
 8. **Ordeal**<br>
 Episodes: 16
-	- Citzens are now offically allowed to compete
+	- The NRA are against allowing citizens to participate in the CNS using unsanctioned Cyber.Beast distributed by the Cyvolters. They hold a metting to discuss this with the CNS.
+	
+	- Not only does the CNS ignore their complaints offically recgonize the Cyvolters allowing citizens to compete in the league. But beacuse they don't have a hub the can't compete in the championships. Their reasoning is that the primary mission of the CNS is to distribute wealth amoung the citzens and this furthers that agenda. 
 		
 		All of the citzen who has become cybervators up until now to prevent this citizens will be allowed to join the CNS. this is done to prevent them from joining the cybervators just so that they can join the CNS.		
 	
-	- Kyshumu announces that citizens shouldn't compete
+	- Adding insult to injury the CNS request that both ReNet and BluNet gives up one hub to the Cyvolters so they can compete. This angers Kyshumu who yells that citizens shouldn't compete he treatens to pull ReNet out of the CNS
 		
 		He suggest that it is too dangerous and not having armor they are more likely to be killed and that they can't regrow limbs like a real cybervator
 		
@@ -115,11 +123,14 @@ Episodes: 16
 9. **Reward (Seizing The Sword)**<br>
 Episodes: 17
 
-	- Alex allows Makkusu to compete with BluNet
+	- Alex has been newly elected as the Chief of BluNet
 	
-		Alex has been newly elected as the Chief of BluNet	
+	- Alex tells the NRA that both Citizens and Cybervators has taken a liking to Makkusu and that their no telling how they might respond if they don't let him compete. They discuss the possibility of angering the citizens if they don't let him compete citing the decrease in ReNet stock as an example.
+
+	- Alex allows Makkusu to compete with BluNet or offers up Kassiea/Xenos' hub allowing Makkusu to compete
 	
-	- Makkusu uses his tech to compete
+	
+	- Makkusu uses his tech to compete in the CNS championships
 	
 	- Makkusu's team is formed
 	
@@ -135,35 +146,34 @@ Episodes: 18, 19
 	
 		With Makkusu joining ReNet Kyshumu tells the CNS/NRA that no Citizen should be allowed to compete in the CNS.
 
-		They discuss the possibility of angering the citizens if they don't let him compete citing the decrease in ReNet stock as an example.
-
 		Alex makes a ultimatum suggesting that a citizen is unlikely to win the championships--If Makkusu loses no Citizen will be allowed to compete in the CNS again.
 
+		Kyshumu(angry):Fine!
+		
 		:and if he wins
 
 		Alex is about to say something
 
 		Kyshumu(interrupts): He won't. I'll make sure of it.
 
-		: With al due respect sir you can't compete in the championships any more you're the chief.
+		: With all due respect sir you can't compete in the championships any more you're the chief.
 
 		Kyhsumu: I know that I can't but my wife can
 
 		:She's been retired for years!?
 
-		Kyshumu(angry):Fine!
 ###	Act 3
 11. **Resurrection**<br>
 Episodes: 20, 21
 	- Makkusu fights Jax
-		-Max suggests a line up change
+		- Max suggests a line up change.
 		
 		Mina is changed from the blue to the green position
 
 		Harmony goes from red to blue after being calmed or Xenos take Blue
 12. **Return With The Elixir**<br>
 Episodes: 22
-	- Makkusu wins/loses championship
+	- Makkusu wins/loses(do to the unforseen random nature of Jax) championship
 	
 		If Makkusu wins it is because Tomasina lets him or is distracted by the fact that he looks/feels familiar
 		
