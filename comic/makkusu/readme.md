@@ -7,6 +7,7 @@
   - Fan: Makkusu
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex
+- This is Xenos' last season before he anounces his retirement
 - Minia is traded to BluNet by Leona which is all over the news. 
 	- Kyshumu is enraged as this is right before the hub she is traded to becomes a Cyvolter hub. He then realizes this is the perfect opportuity to ensure Makkusu loses he tells her to throw the match. This leaves Minia conflicted because she does not want to see Makkusu fail.
 	- During the match it appears that she is doing just what her father wanted as performs poorly during her match. It turn out that this is not the case. She has been trying her best but does she not want to hurt her opponet hampering her abilities.
@@ -134,10 +135,14 @@ Episodes: 17
 	
 	- Makkusu's team is formed
 	
-		Makkusu(back up green/white) Ace Harmony(red/blue) Knilla(black) ~~Airiona~~(green) Xenos
-	- Makkusu gets to talk to his opponets Minia and Jax Before the tournament 
-		
-		he asks Minia what happened to her shirt
+		| Position | First   | Second       | Third | Fourth |
+		|----------|---------|--------------|-------|--------|
+		| Red      | Harmony | Aarock       |       |        |
+		| Green    | Airiona | Makkusu      |       |        |
+		| Blue     | Minia   | Xenos        |       |        |
+		| Black    | Knilla  | Avis?        |       |        |
+		| White    | Ace     | Avis/Makkusu |       |        |
+
 10. **The Road Back**<br>
 Episodes: 18, 19
 
@@ -162,7 +167,7 @@ Episodes: 18, 19
 
 		:She's been retired for years!?
 
-###	Act 3
+### Act 3
 11. **Resurrection**<br>
 Episodes: 20, 21
 	- Makkusu fights Jax
