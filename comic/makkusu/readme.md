@@ -11,7 +11,7 @@
 - Minia is traded to BluNet by Leona which is all over the news. 
 	- Kyshumu is enraged as this is right before the hub she is traded to becomes a Cyvolter hub. He then realizes this is the perfect opportuity to ensure Makkusu loses he tells her to throw the match. This leaves Minia conflicted because she does not want to see Makkusu fail.
 	- During the match it appears that she is doing just what her father wanted as performs poorly during her match. It turn out that this is not the case. She has been trying her best but does she not want to hurt her opponet hampering her abilities.
-	- Airiona tells Makkusu that Minia is sabatoging them. Makkusu(he was voted team captain despite not starting) then suggests that Minia be removed from her Blue position. Airiona is happy thinking Minia is being bench--however Makkusu benchs Airiona instead who is visibly upset. Someone asks then who will take the Blue/White position (Hamony/Xenos/Avis can't or wont). 
+	- Airiona tells Makkusu that Minia is sabatoging them. Makkusu(he was voted team captain despite not starting) then suggests that Minia be removed from her Blue position. Airiona is happy thinking Minia is being bench--however Makkusu benchs Airiona instead who is visibly upset. Someone asks then who will take the Blue/White position (Harmony/Xenos(maybe injured)/Avis can't or wont). 
 		Makkusu: well then I guess Air...
 		Airiona/Xenos: You should Makkusu. It will be the perfect chance to show everyone what you're capable of.
 	 - They begin to make a historic comeback but their efforts fall short as the deficit Minia creating was to great to overcome
@@ -20,20 +20,11 @@
 1. **Ordinary World**<br/>
 Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
 	- Makkusu watches Championships
-		- **Alex Wins the Championships**
-		
-			After Alex wins a fan of the other team runs up to him(maybe a younger Makkusu) and says I don't like you any more.
-
-			Alex is asked by a reporter what he will do know that he won. He says he will become chief
-			
-		- **Xenos loses the Championships**
-			**Shown as a early flash back:**
+	
+		- **Xenos/Tomasina loses the Championships**
+			**Shown as an early flash back:**
 			After Xenos loses and Makkusu who is fan of him runs up to him(maybe a younger Makkusu) and says I don't like you any more.
-		- **Kyshumu Wins the Championships**
-			
-			After Kyshumu wins a fan of the other team runs up to him(maybe a younger Makkusu) and says I don't like you any more.
 
-			Kyshumu is asked by a reporter what he will do know that he won. He says he will become chief
 			
 2. **Call To Adventure**<br/>
 Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
