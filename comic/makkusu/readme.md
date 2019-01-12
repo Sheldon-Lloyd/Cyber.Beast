@@ -53,6 +53,8 @@ Episodes: 6, 7, 8, 9
 	
 6. **Tests, Allies, Enemies**<br>
 Episodes: 9, 10, 11, 12
+	- The Cyvolters are teased as a mysterious group of Cybervators that has been capturing/stealing the satellites the house Cyber.Beast. It is revealed to be something that has been going on for a while now.
+
 	- Makkusu helps someone in cyberspace 
 		
 		he has develop a reputation for being an alturistic cybervator not just help others but in terms of giving money unlike other cybervators he gives 70% or more of his earnings to fans
@@ -76,7 +78,10 @@ Episodes: 9, 10, 11, 12
 		
 	- Makkusu learns that Airiona is a cyvolter and he may have been helping them
 7. **Approach To The Inmost Cave**<br>
-Episodes: 13, 14
+Episodes: 13, 14, 15
+
+	- More citizens are now competing in the CNS league thanks to the Cyvolters destrubting the tech that Makkusu made
+	
 	- Makkusu finds old cyber.tech
 		
 		Makkusu realizes that even if he makes it into the tournament he won't be of much help since he can't go into a BurstDrive mode.
@@ -97,7 +102,7 @@ Episodes: 13, 14
 	- Alex becomes chief
 	- Makkusu works on his new tech
 8. **Ordeal**<br>
-Episodes: 15
+Episodes: 16
 	- Citzens are now offically allowed to compete
 		
 		All of the citzen who has become cybervators up until now to prevent this citizens will be allowed to join the CNS. this is done to prevent them from joining the cybervators just so that they can join the CNS.		
@@ -108,8 +113,14 @@ Episodes: 15
 		
 	
 9. **Reward (Seizing The Sword)**<br>
-Episodes: 16
+Episodes: 17
+
+	- Alex allows Makkusu to compete with BluNet
+	
+		Alex has been newly elected as the Chief of BluNet	
+	
 	- Makkusu uses his tech to compete
+	
 	- Makkusu's team is formed
 	
 		Makkusu(back up green/white) Ace Harmony(red/blue) Knilla(black) ~~Airiona~~(green) Xenos
@@ -117,10 +128,8 @@ Episodes: 16
 		
 		he asks Minia what happened to her shirt
 10. **The Road Back**<br>
-Episodes: 17, 18, 19
-	- Alex allows Makkusu to compete with BluNet
-	
-		Alex has been newly elected as the Chief of BluNet
+Episodes: 18, 19
+
 	
 	- An ultimatum/wager is purposed for Makkusu
 	
