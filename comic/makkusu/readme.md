@@ -142,6 +142,8 @@ Episodes: 17
 		| Blue     | Minia   | Xenos        |       |        |
 		| Black    | Knilla  | Avis?        |       |        |
 		| White    | Ace     | Avis/Makkusu |       |        |
+		
+	- Harmony attacks Makkusu who tries to introduce his self a nearly kills him but she stops which surprises Ace
 
 10. **The Road Back**<br>
 Episodes: 18, 19
@@ -181,6 +183,7 @@ Episodes: 22
 	- Makkusu wins/loses(do to the unforseen random nature of Jax) championship
 	
 		If Makkusu wins it is because Tomasina lets him or is distracted by the fact that he looks/feels familiar
-		
-	- Cyvolters are revealed
+	
+	- Xenos retires from the CNS league and annouces that he will lead the Cyvolters
+	- Cyvolters intentions are revealed
 	- The CNS is shut down?
