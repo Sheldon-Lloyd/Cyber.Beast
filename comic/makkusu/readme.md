@@ -2,7 +2,7 @@
 ## Brainstorm
 - Episodes: 22-27
 - Roles
-  - Broadcaster/Commentator : Spike, Makkusu?
+  - Broadcaster/Commentator: Spike, Makkusu?
   - Handlers/Cornerman/crew: Makkusu?
   - Fan: Makkusu
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
@@ -18,7 +18,7 @@
 ## Arc 1
 ###	Act 1
 1. **Ordinary World**<br/>
-Episodes: 1
+Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
 	- Makkusu watches Championships
 		- **Alex Wins the Championships**
 		
@@ -36,7 +36,7 @@ Episodes: 1
 			Kyshumu is asked by a reporter what he will do know that he won. He says he will become chief
 			
 2. **Call To Adventure**<br/>
-Episodes: 1
+Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
 	- Makkusu Applies to be a Cybervator
 3. **Refusal Of The Call**<br>
 Episodes: 2,3
