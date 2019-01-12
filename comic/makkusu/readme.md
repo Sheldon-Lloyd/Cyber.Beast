@@ -9,6 +9,7 @@
   - Chief: Kyshumu, Alex
 - This is Xenos' last season before he anounces his retirement
 - Minia is traded to BluNet by Leona which is all over the news. 
+	- Minia would've been starting over Leona had she not been traded.
 	- Kyshumu is enraged as this is right before the hub she is traded to becomes a Cyvolter hub. He then realizes this is the perfect opportuity to ensure Makkusu loses he tells her to throw the match. This leaves Minia conflicted because she does not want to see Makkusu fail.
 	- During the match it appears that she is doing just what her father wanted as performs poorly during her match. It turn out that this is not the case. She has been trying her best but does she not want to hurt her opponet hampering her abilities.
 	- Airiona tells Makkusu that Minia is sabatoging them. Makkusu(he was voted team captain despite not starting) then suggests that Minia be removed from her Blue position. Airiona is happy thinking Minia is being bench--however Makkusu benchs Airiona instead who is visibly upset. Someone asks then who will take the Blue/White position (Harmony/Xenos(maybe injured)/Avis can't or wont). 
@@ -131,8 +132,18 @@ Episodes: 17
 		| Red      | Harmony | Aarock       |       |        |
 		| Green    | Airiona | Makkusu      |       |        |
 		| Blue     | Minia   | Xenos        |       |        |
-		| Black    | Knilla  | Avis?        |       |        |
-		| White    | Ace     | Avis/Makkusu |       |        |
+		| Black    | Knilla  | Avis?/Echo   |       |        |
+		| White    | Ace     | Avis/Makkusu |       |        |	
+	
+	- Jax's team
+	
+		| Position | First   | Second       | Third | Fourth |
+		|----------|---------|--------------|-------|--------|
+		| Red      | Jax     |              |       |        |
+		| Green    | Leona   | Tomasina     |       |        |
+		| Blue     | Leona?  |              |       |        |
+		| Black    | Jax     |              |       |        |
+		| White    | Thunora |              |       |        |
 		
 	- Harmony attacks Makkusu who tries to introduce his self a nearly kills him but she stops which surprises Ace
 
