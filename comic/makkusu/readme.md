@@ -37,6 +37,10 @@ Episodes: 2,3
 4. **Meeting The Mentor**<br>
 Episodes: 4, 5
 	- Airiona is found
+	- Makkusu uses this opportunity to test his Cyber.Beast controler using Airiona's Cyber.Beast 
+		- Maybe with out her permission. In which case Airiona comes up behind him creating the poisiblty of punishment
+		- Airiona is excited about his creation
+		
 	- Makkusu is given a cyberbeast and invited to be a cybervator
 ###	Act 2
 5. **Crossing The Threshold**<br>
@@ -77,7 +81,7 @@ Episodes: 13, 14
 		
 		Makkusu realizes that even if he makes it into the tournament he won't be of much help since he can't go into a BurstDrive mode.
 		
-		He finds a hole in the ground left by Minia in it is old cyber.tech this is just what he needs to compete on even grounds
+		He finds a hole in the ground left by Minia in it is old cyber.tech this is just what he needs to compete on even grounds (exposition opportunity)
 	- Minia helps Makkusu who is bullied
 	
 		Akia tells haha look at Makkusu trying to get buff you think that just because you are geting in shape you will become a cybervator. lets see what you got.
