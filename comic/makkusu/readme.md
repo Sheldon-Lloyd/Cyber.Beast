@@ -38,6 +38,12 @@
 		Makkusu: well then I guess Air...
 		Airiona/Xenos: You should Makkusu. It will be the perfect chance to show everyone what you're capable of.
 	 - They begin to make/orchestrate a historic comeback but their efforts fall short as the deficit Minia creating was to great to overcome
+	 
+- In the second season the cyvolters is now considered the Citizens league begin to do a type of initiation or point system in which Cybervators(not citizens) must attack "bad" cybervators inorder to become a Cyvolter -- it is a rule created by Cybervators.
+	- Since anyone can be a Cyvolter they are doing whatever they want and claim to be apart of the Cyvolters, because of this the Cyvolters realize they need a leader to lay a framework and places that duty upon Xenos.
+	- Airiona is upset by the way the other cyvolter are acting
+	- This event Airiona strengthens her belief that the majority of of Cybervators are stupid. Xenos tells her that it actually mob mentality and selfish preservation that cause people to act this way. people don't want to be alone so they follow what they may think is the masses no matter how wrong it maybe to protect their self
+
 ## Arc 1
 ###	Act 1
 1. **Ordinary World**<br/>
