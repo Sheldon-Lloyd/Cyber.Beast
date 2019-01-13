@@ -6,16 +6,38 @@
   - Handlers/Cornerman/crew: Makkusu?
   - Fan: Makkusu
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
-  - Chief: Kyshumu, Alex
+  - Chief: Kyshumu, Alex  
+  
 - This is Xenos' last season before he anounces his retirement
+	
+	- Xenos gives a retirement speach before declaring himself the leader of the Cyvolters (maybe save this for next season)
+		
+		Xenos: I want the future to be a world were there are no distincions between citzen and cybervator one in which everyone is a cybervator in their on right.
+			
+		Xenos: Up to this point Cyvolters has not had a leader. Because of this they have done some things I am not proud. many if which goes against the vision/values of the Cyvolter. Without a leader the Cyvolters will become nothing more than an organization resembling a chicken without a head.
+			
+		Xenos:
+			
+		Right now There are 4 types of cyvolters
+			
+		The malicious type that just like finding people to take down the worst of them all.
+			
+		The type that doesn't want to look like the bad guy so they attack others to prove that they are not bad
+			
+		The one that has reformed and feels it is their duty to fix/save others. This type that does not want others to attack you so they prefer to warn you of repercussions
+			
+		Then there ones that follows(majority) the crowd doing what seems to be what's cool. This type is easily embarrassed and just wants others to fit in
+			
+		Xenos: From this moment forward I will the lead the Cyvolters. Change can happen, has happened and, will happen.
+
 - Minia is traded to BluNet by Leona which is all over the news. 
 	- Minia would've been starting over Leona had she not been traded.
-	- Kyshumu is enraged as this is right before the hub she is traded to becomes a Cyvolter hub. He then realizes this is the perfect opportuity to ensure Makkusu loses he tells her to throw the match. This leaves Minia conflicted because she does not want to see Makkusu fail.
+	- Kyshumu is enraged as this is right before the hub she is traded to becomes a Cyvolter hub. He then realizes this is the perfect opportuity to ensure Makkusu loses -- he tells her to throw the match. This leaves Minia conflicted because she does not want to see Makkusu fail.
 	- During the match it appears that she is doing just what her father wanted as performs poorly during her match. It turn out that this is not the case. She has been trying her best but does she not want to hurt her opponet hampering her abilities.
 	- Airiona tells Makkusu that Minia is sabatoging them. Makkusu(he was voted team captain despite not starting) then suggests that Minia be removed from her Blue position. Airiona is happy thinking Minia is being bench--however Makkusu benchs Airiona instead who is visibly upset. Someone asks then who will take the Blue/White position (Harmony/Xenos(maybe injured)/Avis can't or wont). 
 		Makkusu: well then I guess Air...
 		Airiona/Xenos: You should Makkusu. It will be the perfect chance to show everyone what you're capable of.
-	 - They begin to make a historic comeback but their efforts fall short as the deficit Minia creating was to great to overcome
+	 - They begin to make/orchestrate a historic comeback but their efforts fall short as the deficit Minia creating was to great to overcome
 ## Arc 1
 ###	Act 1
 1. **Ordinary World**<br/>
@@ -39,12 +61,16 @@ Episodes: 4, 5
 	- Makkusu uses this opportunity to test his Cyber.Beast controler using Airiona's Cyber.Beast 
 		- Maybe with out her permission. In which case Airiona comes up behind him creating the poisiblty of punishment
 		- Airiona is excited about his creation
+			Airiona: Wow you're smart
+			Makkusu: Not really I just most are combined ideas from real scientist to put ideas together to come up with a new one
+
 		
 	- Makkusu is given a cyberbeast and invited to be a cybervator
 ###	Act 2
 5. **Crossing The Threshold**<br>
 Episodes: 6, 7, 8, 9
 	- Makkusu teams up with Airiona in cyberspace. He assumes that because Airiiona and Minia are teammates that he is a ReNet Cybervator
+	- Makkusu develops Airiona's character as he gets her to not only help other citzens in cyberspace but Cybervarors as well
 	- The 22? championships is going on
 	- Makkusu trains his body
 		
@@ -102,7 +128,7 @@ Episodes: 13, 14, 15
 	- Makkusu works on his new tech
 8. **Ordeal**<br>
 Episodes: 16
-	- The NRA are against allowing citizens to participate in the CNS using unsanctioned Cyber.Beast distributed by the Cyvolters. They hold a metting to discuss this with the CNS.
+	- The NRA are against allowing citizens to participate in the CNS using unsanctioned Cyber.Beast distributed by the Cyvolters. They hold a metting to discuss this with the CNS. The CNS tells them that is not their place to be decide rather someone should legaly be allowed to compete.
 	
 	- Not only does the CNS ignore their complaints offically recgonize the Cyvolters allowing citizens to compete in the league. But beacuse they don't have a hub the can't compete in the championships. Their reasoning is that the primary mission of the CNS is to distribute wealth amoung the citzens and this furthers that agenda. 
 		
@@ -186,6 +212,7 @@ Episodes: 22
 	
 		If Makkusu wins it is because Tomasina lets him or is distracted by the fact that he looks/feels familiar
 	
-	- Xenos retires from the CNS league and annouces that he will lead the Cyvolters
+	- Xenos retires from the CNS league
+		
 	- Cyvolters intentions are revealed
 	- The CNS is shut down?
