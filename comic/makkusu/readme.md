@@ -45,7 +45,22 @@
 	- Airiona is upset by the way the other cyvolter are acting she realizes that citizens can be just as bad as cybervator
 	- This changes Airiona strengthens belief that the majority of of Cybervators are stupid instead all humans are. Xenos tells her that it actually mob mentality and selfish preservation that cause people to act this way. people don't want to be alone so they follow what they may think is the masses no matter how wrong it maybe to protect their self
 
-- Makkusu's alturism becomes contagious and eventually becomes the basis for the Cyvolters identity
+- Makkusu's alturism becomes contagious and eventually becomes the basis for the Cyvolters identity at this point Makkusu either accepts or realize that he is a Cyvolter
+	
+	Makkusu is about to mine cyber.beast or fight another cybervator alone He spots a girl that waves at him but he doesn't know who she is so he he casually ignores her
+	
+	Later he gets into some trouble and is saved by her. As she pick him  up and carries him out of harm's way
+
+	Girl: She says hi again
+	
+	Makkusu: wait aren't you(showing image of her waving)
+	
+	Girl: Yep I knew you were a cyvolter the moment I saw you. It would be a disgrace if I didn't -- my cyber.beast is a bear/shark after all. Us cyvolter have to stick together ya know
+	
+	Makkusu: wait so you know who each AND EVERY cyvolter is
+	
+	Girl: Don’t woorry I won't tell
+
 
 ## Arc 1
 ###	Act 1
