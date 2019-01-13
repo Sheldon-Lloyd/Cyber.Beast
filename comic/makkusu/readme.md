@@ -10,7 +10,7 @@
   
 - This is Xenos' last season before he anounces his retirement
 	
-	- Xenos gives a retirement speach before declaring himself the leader of the Cyvolters (maybe save this for next season)
+	- Xenos gives a retirement speech before declaring himself the leader of the Cyvolters (maybe save this for next season)
 		
 		Xenos: I want the future to be a world were there are no distincions between citzen and cybervator one in which everyone is a cybervator in their on right.
 			
@@ -39,10 +39,13 @@
 		Airiona/Xenos: You should Makkusu. It will be the perfect chance to show everyone what you're capable of.
 	 - They begin to make/orchestrate a historic comeback but their efforts fall short as the deficit Minia creating was to great to overcome
 	 
-- In the second season the cyvolters is now considered the Citizens league begin to do a type of initiation or point system in which Cybervators(not citizens) must attack "bad" cybervators inorder to become a Cyvolter -- it is a rule created by Cybervators.
+- In the second season years later the cyvolters is now considered the Citizens league begin to do a type of initiation or point system in which Cybervators(not citizens) must attack "bad" cybervators inorder to become a Cyvolter -- it is a rule created by Citizens.
+	- The cyvolters increase in sizes has become a detriment to their initial values
 	- Since anyone can be a Cyvolter they are doing whatever they want and claim to be apart of the Cyvolters, because of this the Cyvolters realize they need a leader to lay a framework and places that duty upon Xenos.
-	- Airiona is upset by the way the other cyvolter are acting
-	- This event Airiona strengthens her belief that the majority of of Cybervators are stupid. Xenos tells her that it actually mob mentality and selfish preservation that cause people to act this way. people don't want to be alone so they follow what they may think is the masses no matter how wrong it maybe to protect their self
+	- Airiona is upset by the way the other cyvolter are acting she realizes that citizens can be just as bad as cybervator
+	- This changes Airiona strengthens belief that the majority of of Cybervators are stupid instead all humans are. Xenos tells her that it actually mob mentality and selfish preservation that cause people to act this way. people don't want to be alone so they follow what they may think is the masses no matter how wrong it maybe to protect their self
+
+- Makkusu's alturism becomes contagious and eventually becomes the basis for the Cyvolters identity
 
 ## Arc 1
 ###	Act 1
@@ -67,16 +70,29 @@ Episodes: 4, 5
 	- Makkusu uses this opportunity to test his Cyber.Beast controler using Airiona's Cyber.Beast 
 		- Maybe with out her permission. In which case Airiona comes up behind him creating the poisiblty of punishment
 		- Airiona is excited about his creation
-			Airiona: Wow you're smart
+		
+			Airiona: Wow you're smart 
+			
+			Airiona: you see, you were able to make the csd and controler because unilike others he doesn't rely on cyber.beast to code he does is on as society does not have the skills they once did
+			
 			Makkusu: Not really I just most are combined ideas from real scientist to put ideas together to come up with a new one
-
+	
+			No unlike most scientist who have become singular focused and don't combined ideas from others you put ideas together to come up with a new one
 		
 	- Makkusu is given a cyberbeast and invited to be a cybervator
 ###	Act 2
 5. **Crossing The Threshold**<br>
 Episodes: 6, 7, 8, 9
-	- Makkusu teams up with Airiona in cyberspace. He assumes that because Airiiona and Minia are teammates that he is a ReNet Cybervator
-	- Makkusu develops Airiona's character as he gets her to not only help other citzens in cyberspace but Cybervarors as well
+	- Makkusu teams up with Airiona in cyberspace. He assumes that because Airiona and Minia are teammates that he is a ReNet Cybervator
+	
+		Airiona: It’s nice to be around someone smarter than me for a change especially when it is a citizen(minia is smart but does not enough confidence to exercise it)
+		
+		Makkusu: But aren't you a cybervator
+
+		Airiona: yea but my family isn’t, and your a perfect example that the distribution of money is misplaced citizen do all of the work while cybervator gets majority of revenue from your work even though they are only one percent of the population. But we’re gonna change all of that.
+
+	- Makkusu develops Airiona's character as he gets her to not only help other citzens in cyberspace but Cybervarors as well.
+		They help them mostly by teaming up with ReNet, BluNet, and Cyvolter Cybervators that are being out numbered
 	- The 22? championships is going on
 	- Makkusu trains his body
 		
@@ -91,8 +107,9 @@ Episodes: 9, 10, 11, 12
 		he has develop a reputation for being an alturistic cybervator not just help others but in terms of giving money unlike other cybervators he gives 70% or more of his earnings to fans
 	- Makkusu looks ahead to see who his team may be if he earns a spot
 	
-		This team consists of Minia and Jax	
 	- Makkusu loses to jax 
+	
+		This team consists of Minia and Jax	
 
 	- Makkusu is seen outside of cyberspace
 	
@@ -117,7 +134,9 @@ Episodes: 13, 14, 15
 		
 		Makkusu realizes that even if he makes it into the tournament he won't be of much help since he can't go into a BurstDrive mode.
 		
-		He finds a hole in the ground left by Minia in it is old cyber.tech this is just what he needs to compete on even grounds (exposition opportunity)
+		He finds a hole in the ground left by Minia in it is old cyber.tech this is just what he needs to compete on even grounds (exposition opportunity):
+		
+		Earlier in the Cyber world history they used robots and somewhat bulky exosuits they even had space ships. this technology was lost after cybervators took over. Many would say that it halted their growth as Cybervator instead relied on cyber tech
 	- Minia helps Makkusu who is bullied
 	
 		Akia tells haha look at Makkusu trying to get buff you think that just because you are geting in shape you will become a cybervator. lets see what you got.
@@ -152,10 +171,15 @@ Episodes: 17
 	
 	- Alex tells the NRA that both Citizens and Cybervators has taken a liking to Makkusu and that their no telling how they might respond if they don't let him compete. They discuss the possibility of angering the citizens if they don't let him compete citing the decrease in ReNet stock as an example.
 
-	- Alex allows Makkusu to compete with BluNet or offers up Kassiea/Xenos' hub allowing Makkusu to compete
-	
+	- Alex allows Makkusu to compete with BluNet or offers up Kassiea/Xenos' hub allowing Makkusu to compete	
 	
 	- Makkusu uses his tech to compete in the CNS championships
+	
+		Arionona: Wow I thought what you made before was incredble how did you create this stuff
+		
+		Makkusu: I didn't make it. Its I made from tech that I found under my house(the hole Minia/Airiona created). A lot of it was unfinished All I did was make a few modifications
+		
+		Airiona: This must be the(tech lost to time) lost technology from thousands of years ago Xenos was telling. Haha who Cybervators realy are a ~~cancer~~(find new word) to the world
 	
 	- Makkusu's team is formed
 	
