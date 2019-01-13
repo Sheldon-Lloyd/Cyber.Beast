@@ -16,6 +16,8 @@
 			
 		Xenos: Up to this point Cyvolters has not had a leader. Because of this they have done some things I am not proud. many if which goes against the vision/values of the Cyvolter. Without a leader the Cyvolters will become nothing more than an organization resembling a chicken without a head.
 			
+		It may be better if this show by using each person as an example rather than told {
+		
 		Xenos:
 			
 		Right now There are 4 types of cyvolters
@@ -27,6 +29,8 @@
 		The one that has reformed and feels it is their duty to fix/save others. This type that does not want others to attack you so they prefer to warn you of repercussions
 			
 		Then there ones that follows(majority) the crowd doing what seems to be what's cool. This type is easily embarrassed and just wants others to fit in
+		
+		}
 			
 		Xenos: From this moment forward I will the lead the Cyvolters. Change can happen, has happened and, will happen.
 
@@ -45,7 +49,7 @@
 	- Airiona is upset by the way the other cyvolter are acting she realizes that citizens can be just as bad as cybervator
 	- This changes Airiona strengthens belief that the majority of of Cybervators are stupid instead all humans are. Xenos tells her that it actually mob mentality and selfish preservation that cause people to act this way. people don't want to be alone so they follow what they may think is the masses no matter how wrong it maybe to protect their self
 
-- Makkusu's alturism becomes contagious and eventually becomes the basis for the Cyvolters identity at this point Makkusu either accepts or realize that he is a Cyvolter
+- Makkusu's alturism becomes contagious and eventually becomes the basis for the Cyvolters identity at this point Makkusu either accepts or realize that he is a Cyvolter or she is shown helping another cyvolter
 	
 	Makkusu is about to mine cyber.beast or fight another cybervator alone He spots a girl that waves at him but he doesn't know who she is so he he casually ignores her
 	
