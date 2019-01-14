@@ -65,7 +65,8 @@
 	
 	Girl: Don’t woorry I won't tell
 
-Upon
+- Max or someone that max helps someone or max saying its is solely for the purpose making him a stronger opponent strong enough to be a challenge for him in the future
+
 ## Arc 1
 ###	Act 1
 1. **Ordinary World**<br/>
