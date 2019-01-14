@@ -31,7 +31,8 @@
 		Then there ones that follows(majority) the crowd doing what seems to be what's cool. This type is easily embarrassed and just wants others to fit in
 		
 		}
-			
+		if(they win) Xenos: even though we lost today I wont give up on helping the Cyvolters mission of creating a world with equal opportunity for all. We have technolgy but sometime socity needs that final push
+		
 		Xenos: From this moment forward I will the lead the Cyvolters. Change can happen, has happened and, will happen.
 
 - Minia is traded to BluNet by Leona which is all over the news. 
