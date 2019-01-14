@@ -65,7 +65,7 @@
 	
 	Girl: Don’t woorry I won't tell
 
-
+Upon
 ## Arc 1
 ###	Act 1
 1. **Ordinary World**<br/>
@@ -94,10 +94,20 @@ Episodes: 4, 5
 			
 			Airiona: you see, you were able to make the csd and controler because unilike others he doesn't rely on cyber.beast to code he does is on as society does not have the skills they once did
 			
+			Makkusu tells her that it is some thing he made a long time ago when had dreams of becoming a cybervator
+			
 			Makkusu: Not really I just most are combined ideas from real scientist to put ideas together to come up with a new one
 	
 			No unlike most scientist who have become singular focused and don't combined ideas from others you put ideas together to come up with a new one
-		
+			
+
+			
+	- Makkusu tends to the injured Airiona fixing her CSD which allows her to heal. she encourages him to try again and that she will give word to her superiours to give him a chance
+	
+	- Makkusu customized his CSD to have a talking Ai which he calls torrey
+	
+	- She tells him maybe with your cyber.beast controler I'll be able to see you in cyberspace one day 
+
 	- Makkusu is given a cyberbeast and invited to be a cybervator
 ###	Act 2
 5. **Crossing The Threshold**<br>
@@ -135,6 +145,9 @@ Episodes: 9, 10, 11, 12
 		Makkusu has not been seen out side of cyberspace for a while but when we see him he now has hair on his head and no longer has a fat belly.		
 		
 	- Minia fights Airiona in cyberspace
+	
+	- Now having a Cyber.Beast Makkusu has customized his CSD to have a hologram of a dog/bird
+	
 	- Mini falls in the backyard of Makkusu
 		
 		Makkusu asks what happend Minia tells him that she is not supposed to tell him but because he saved her that he will tell him. She insist that he does not tell anyone because if word gets out she will be in trouble
@@ -156,8 +169,16 @@ Episodes: 13, 14, 15
 		He finds a hole in the ground left by Minia in it is old cyber.tech this is just what he needs to compete on even grounds (exposition opportunity):
 		
 		Earlier in the Cyber world history they used robots and somewhat bulky exosuits they even had space ships. this technology was lost after cybervators took over. Many would say that it halted their growth as Cybervator instead relied on cyber tech
+		
+		What he learns contradicts common knowledge as history has be rewritten
+			
+		- History is written by the losers as they write the history they are able to shape the perceived realty of their victors the future generation that sees this history will judge their current leaders based on the past villain like winners and the reasons the current system is place by this and will rise and over throw them or even an outside party may take them down based on this history much like the Mongols  (http://scholars-stage.blogspot.com/2016/11/history-is-written-by-losers.html)
+		
 	- Minia helps Makkusu who is bullied
-	
+		Makkusu is watching a CNS broadcast while at the gym and is wearing headphones maybe visor headphones 
+		
+		Makkusu uses his UBI credit to become the sponser of the cheapest cybervator he could find. Akia/Spike tells him he spent more money than he can make in a year as he buys majority of her stock shares in credit. He does not know how much money he has made as a cybervator an maybe doesnt even know he is a cybervator.
+
 		Akia tells haha look at Makkusu trying to get buff you think that just because you are geting in shape you will become a cybervator. lets see what you got.
 		
 		It appears like he might stand up for his self but he doesn't
