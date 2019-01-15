@@ -102,7 +102,7 @@ Episodes: 4, 5
 	
 			No unlike most scientist who have become singular focused and don't combined ideas from others you put ideas together to come up with a new one
 			
-
+	- S/He talks about how citizens can’t become cybervators because they dont a tail which means they can synergise. With the device he made anyone will be able to use a cyberbeast in cyberspace even though they still won’t be able to become cybervators since they still won’t be able to go into burtdrive
 			
 	- Makkusu tends to the injured Airiona fixing her CSD which allows her to heal. she encourages him to try again and that she will give word to her superiours to give him a chance
 	
@@ -111,6 +111,15 @@ Episodes: 4, 5
 	- She tells him maybe with your cyber.beast controler I'll be able to see you in cyberspace one day 
 
 	- Makkusu is given a cyberbeast and invited to be a cybervator
+		- Makkusu takes the cyber.beast given to him by Xenos/Airiona inviting him to join the Cyvolters which he in excitement misread as cybervators
+		- Airiona sends the invite to which Xenos scolds her because he wanted to trick him into joining. As he know he would never join knowing that it is the Cyvolters. 
+		
+			**Airiona(Scowling):** so you wanted to trick him?! right after she says this to their suprise they get a message accepting the invite. 
+			
+			They immediately or eventually realize that he does not know who they are. 
+			
+			**Xenos:** I guess it worked out in our favor after all
+	
 ###	Act 2
 5. **Crossing The Threshold**<br>
 Episodes: 6, 7, 8, 9
