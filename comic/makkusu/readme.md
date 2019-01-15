@@ -221,12 +221,12 @@ Episodes: 17
 		
 		Makkusu: I didn't make it. Its I made from tech that I found under my house(the hole Minia/Airiona created). A lot of it was unfinished All I did was make a few modifications
 		
-		Makkusu: I call it an Elimter. Normally a cyber.beast would be able to synergize with a cybervator thanks to thier tail. Since everbody including cybervators evovled from plants I used a plant to act as the cyber.beast[1](https://www.msn.com/en-us/news/technology/mit-researchers-create-a-robot-houseplant-that-moves-on-its-own/ar-BBQxhMh),[2]( https://www.theverge.com/2018/7/12/17563688/robot-plant-hybrid-hexa-vincross-succulent ). 
+		Makkusu: I call it an Elimter. Normally a cyber.beast would be able to synergize with a cybervator thanks to thier tail. Since everbody including cybervators evovled from plants I used a plant to act as the cyber.beast[1](https://www.engadget.com/2018/12/05/mit-researchers-create-a-robot-houseplant-that-moves-on-its-own/),[2]( https://www.theverge.com/2018/7/12/17563688/robot-plant-hybrid-hexa-vincross-succulent ). 
 		
 		:so you are basicly sending commands to a beserk cyber.beast a green/black cybervator. So it basicly makes you like a Xybrid. 
 		other.person: what how.
 		
-		Max: <Will you see I can also hyperlink with other cybervator see what they are thinking and send comands as well.>
+		Max: < Well you see I can also hyperlink with other cybervator see what they are thinking and send comands as well. >
 		
 		other.person: you just hyperlinked to me with out a fist bump. 
 		
