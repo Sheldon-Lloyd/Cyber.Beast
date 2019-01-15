@@ -221,6 +221,17 @@ Episodes: 17
 		
 		Makkusu: I didn't make it. Its I made from tech that I found under my house(the hole Minia/Airiona created). A lot of it was unfinished All I did was make a few modifications
 		
+		Makkusu: I call it an Elimter. Normally a cyber.beast would be able to synergize with a cybervator thanks to thier tail. Since everbody including cybervators evovled from plants I used a plant to act as the cyber.beast[1](https://www.msn.com/en-us/news/technology/mit-researchers-create-a-robot-houseplant-that-moves-on-its-own/ar-BBQxhMh),[2]( https://www.theverge.com/2018/7/12/17563688/robot-plant-hybrid-hexa-vincross-succulent ). 
+		
+		:so you are basicly sending commands to a beserk cyber.beast a green/black cybervator. So it basicly makes you like a Xybrid. 
+		other.person: what how.
+		
+		Max: <Will you see I can also hyperlink with other cybervator see what they are thinking and send comands as well.>
+		
+		other.person: you just hyperlinked to me with out a fist bump. 
+		
+		Max: no I did, during the fight(geting blood) / I did it using the right vibration frequency
+		
 		Airiona: This must be the(tech lost to time) lost technology from thousands of years ago Xenos was telling. Haha who Cybervators realy are a ~~cancer~~(find new word) to the world
 	
 	- Makkusu's team is formed
@@ -275,6 +286,10 @@ Episodes: 20, 21
 	- Makkusu fights Jax
 		- Max suggests a line up change.
 		
+		When Minia subs for Xenos max is at to read her mind. He learns that the reason she doesn't do well as a blue style fighter is not lack of skill and imagination but rather a matter of mind set.
+		 
+		 
+		Minia thinks to much particularly the well being of her opponent and is too passive when fighting
 		Mina is changed from the blue to the green position
 
 		Harmony goes from red to blue after being calmed or Xenos take Blue
