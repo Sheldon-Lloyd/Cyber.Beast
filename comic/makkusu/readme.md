@@ -87,11 +87,12 @@ Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makk
 Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
 	- Makkusu Applies to be a Cybervator
 3. **Refusal Of The Call**<br>
-Episodes: 2,3
+Episodes: 2
 	- Makkusu is rejected
 4. **Meeting The Mentor**<br>
-Episodes: 4, 5
+Episodes: 3, 4, 5
 	- Airiona is found
+	- The reader sees the inside of Makkusu’s room which has posters and cybervator Fandom items everywhere
 	- Makkusu uses this opportunity to test his Cyber.Beast controler using Airiona's Cyber.Beast 
 		- Maybe with out her permission. In which case Airiona comes up behind him creating the poisiblty of punishment
 		- Airiona is excited about his creation
@@ -138,7 +139,7 @@ Episodes: 6, 7, 8, 9
 	- Makkusu and maybe Minia lose their first ranked/unranked fight and prepare for a second. An announcer is either surprised that he even has a fan and laughs at the fact the he only has one fan probably because ever saw his first fight in which he did terrible. Spike is that only fan
 	- Spike wanted him to join his company which is secretly helping the cyvolter orginization.
 		
-		After constantly losing Spike offers to make Makkusu a co-owner at the same time the cyvolters/cybervators send him an invite who tells him that he is a white/green type and doesnt have the affinty to be a broadcaster? spike responds we could use a white type like you especaily one so knowledgable about... Makkusu cuts him off turning him down thinking he is on the path to becoming a cybervator(Makkusu later accepts the request  after the CNS championships but maybe it is to late). He tells him that he wants to succed on his own merrit. 
+		After constantly losing Spike offers to make Makkusu a co-owner or employee since he will be able to pursue is passion in a more realstic manner. Makkusu tells him that he is a white/green type and doesnt have the affinty to be a broadcaster? spike responds we could use a white type like you especaily one so knowledgable about... Makkusu cuts him off turning him down thinking he is on the path to becoming a cybervator(Makkusu later accepts the request  after the CNS championships but maybe it is to late). He tells him that he wants to succed on his own merrit. 
 		
 		Spike tells him that he has tallents that should not be wasted and pasive agressivelly puts down cybervators in general pointing out the cons. he also tells him that he should  not put the on a pedstal like he is worshiping them.
 		
