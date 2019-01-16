@@ -32,10 +32,10 @@ Pages: 8, 9, 10
 10 years later Makkusu is now old enough to compete in the CNS
 
 Makkusu is seen sleeping on a train. He is awakened by spike or his CSD
-  1. Spike: Hey Makkusu he get up isn't this your stop
-  1. CSD: \*Beep Beep\* Rise and shine Makkusu you have arrived at your destination
+  1. Spike: Hey Makkusu hey get up isn't this your stop
+  1. CSD: \*Beep Beep Beep\* Rise and shine Makkusu you have arrived at your destination
 
-Makkusu is teased about being delusional trying become a cybervator when he doesn't even have a tail
+Makkusu is teased about being delusional for trying to become a cybervator when he doesn't even have a tail
 
 Makkusu starts to have doubts but submits his application regardless
 <hr>
