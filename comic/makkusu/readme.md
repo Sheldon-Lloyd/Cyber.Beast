@@ -134,10 +134,22 @@ Episodes: 6, 7, 8, 9
 		Makkusu: But aren't you a cybervator
 
 		Airiona: yea but my family isn’t, and your a perfect example that the distribution of money is misplaced citizen do all of the work while cybervator gets majority of revenue from your work even though they are only one percent of the population. But we’re gonna change all of that.
+	
+	- Makkusu and maybe Minia lose their first ranked/unranked fight and prepare for a second. An announcer is either surprised that he even has a fan and laughs at the fact the he only has one fan probably because ever saw his first fight in which he did terrible. Spike is that only fan
+	- Spike wanted him to join his company which is secretly helping the cyvolter orginization.
+		
+		After constantly losing Spike offers to make Makkusu a co-owner at the same time the cyvolters/cybervators send him an invite who tells him that he is a white/green type and doesnt have the affinty to be a broadcaster? spike responds we could use a white type like you especaily one so knowledgable about... Makkusu cuts him off turning him down thinking he is on the path to becoming a cybervator(Makkusu later accepts the request  after the CNS championships but maybe it is to late). He tells him that he wants to succed on his own merrit. 
+		
+		Spike tells him that he has tallents that should not be wasted and pasive agressivelly puts down cybervators in general pointing out the cons. he also tells him that he should  not put the on a pedstal like he is worshiping them.
+		
+		He tells Makkusu to give it another shot but he shouldnt wait on an uncertainty forever
 
 	- Makkusu develops Airiona's character as he gets her to not only help other citzens in cyberspace but Cybervarors as well.
 		They help them mostly by teaming up with ReNet, BluNet, and Cyvolter Cybervators that are being out numbered
-	- The 22? championships is going on
+	- The 21st? championships is going on
+	
+		The announcer talks about how team Miniajax has not won a championship match since becoming a Cybervator and that she is a disappointment as a Xybrid Cybervator and will likely lose against Ace and Alex who might be retiring after this fight as he might become the next BluNet cheif.
+		
 	- Makkusu trains his body
 		
 	Expecting to be in the tournament he trains his body and ignores his doubters
@@ -194,9 +206,12 @@ Episodes: 13, 14, 15
 		
 		Makkusu uses his UBI credit to become the sponser of the cheapest cybervator he could find. Akia/Spike tells him he spent more money than he can make in a year as he buys majority of her stock shares in credit. He does not know how much money he has made as a cybervator an maybe doesnt even know he is a cybervator.
 
-		Akia tells haha look at Makkusu trying to get buff you think that just because you are geting in shape you will become a cybervator. lets see what you got.
+			
 		
-		It appears like he might stand up for his self but he doesn't
+		Makkusu is getting bullied first they verbally abuse him. Akia tells haha look at Makkusu trying to get buff you think that just because you are geting in shape you will become a cybervator. lets see what you got. They then begin pushing him at this point the alert system on his CSD turns yellow or orange at which point the CSD says the threat level and ask Makkusu if he would like assistance he says no. one of the bullies Akia his it turned orange/yellow the leader then says don't worry the Cybervators will only come if it turns red or Makkusu asks for help which he says would never happen. 
+		
+		It appears like he might stand up for his self but he doesn't. Just as Makkusu is pushed or about to be pushed to the ground Minia appears the bullies run away. After they run away Makkusu ask what are you doing here and shes say i'm your Nia remember. Minia asks Makkusu if he is alright to which he replies that he is fine and that they are just bullies and tells her thanks but that he didn't need her help and that it never reached level red and she says she just happened to notice it rising and decided to intervene on her own “and besides I was bored anyway”
+
 	- Makkusu might not have enough points
 	- Someone he helped before allows him to compete
 	
@@ -292,6 +307,20 @@ Episodes: 18, 19
 		Kyhsumu: I know that I can't but my wife can
 
 		:She's been retired for years!?
+- Championship commentary	
+
+	**Panel 1:**
+	This years class of cybervators displayed their breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief. This is the moment when cybervators gets the opportunity to fulfill their hopes and their family dreams. 
+	
+	**Panel 2:**
+	And as they prepare to take this stage they will follow in the the footsteps of so many cybervators, 
+	
+	**Panel 3:**
+	some of which stepped into greatness(Kyshumu) the moment they became cybervators 
+	
+	**Panel 4:**
+	others grew into their greatness(Xenos). 
+
 
 ### Act 3
 11. **Resurrection**<br>
