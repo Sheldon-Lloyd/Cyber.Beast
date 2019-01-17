@@ -34,15 +34,6 @@
 		if(they win) Xenos: even though we lost today I wont give up on helping the Cyvolters mission of creating a world with equal opportunity for all. We have technolgy but sometime socity needs that final push
 		
 		Xenos: From this moment forward I will the lead the Cyvolters. Change can happen, has happened and, will happen.
-
-- Minia is traded to BluNet by Leona which is all over the news. 
-	- Minia would've been starting over Leona had she not been traded.
-	- Kyshumu is enraged as this is right before the hub she is traded to becomes a Cyvolter hub. He then realizes this is the perfect opportuity to ensure Makkusu loses -- he tells her to throw the match. This leaves Minia conflicted because she does not want to see Makkusu fail.
-	- During the match it appears that she is doing just what her father wanted as performs poorly during her match. It turn out that this is not the case. She has been trying her best but does she not want to hurt her opponet hampering her abilities.
-	- Airiona tells Makkusu that Minia is sabatoging them. Makkusu(he was voted team captain despite not starting) then suggests that Minia be removed from her Blue position. Airiona is happy thinking Minia is being bench--however Makkusu benchs Airiona instead who is visibly upset. Someone asks then who will take the Blue/White position (Harmony/Xenos(maybe injured)/Avis can't or wont). 
-		Makkusu: well then I guess Air...
-		Airiona/Xenos: You should Makkusu. It will be the perfect chance to show everyone what you're capable of.
-	 - They begin to make/orchestrate a historic comeback but their efforts fall short as the deficit Minia creating was to great to overcome
 	 
 - In the second season years later the cyvolters is now considered the Citizens league begin to do a type of initiation or point system in which Cybervators(not citizens) must attack "bad" cybervators inorder to become a Cyvolter -- it is a rule created by Citizens.
 	- The cyvolters increase in sizes has become a detriment to their initial values
@@ -243,6 +234,10 @@ Episodes: 17
 	- Alex tells the NRA that both Citizens and Cybervators has taken a liking to Makkusu and that their no telling how they might respond if they don't let him compete. They discuss the possibility of angering the citizens if they don't let him compete citing the decrease in ReNet stock as an example.
 
 	- Alex allows Makkusu to compete with BluNet or offers up Kassiea/Xenos' hub allowing Makkusu to compete	
+
+- Minia is traded to BluNet by Leona which is all over the news. 
+	- Minia would've been starting over Leona had she not been traded.
+	- Kyshumu is enraged as this is right before the hub she is traded to becomes a Cyvolter hub. He then realizes this is the perfect opportuity to ensure Makkusu loses -- he tells her to throw the match. This leaves Minia conflicted because she does not want to see Makkusu fail.
 	
 	- Makkusu uses his tech to compete in the CNS championships
 	
@@ -322,7 +317,12 @@ Episodes: 18, 19
 	**Panel 4:**
 	others grew into their greatness(Xenos). 
 
-
+- Xenos gets injured and gets a limb or two cut off and Avis is missing
+	- During the match it appears that Minia is doing just what her father wanted(throwing the match) as she performs poorly during her match. It turns out that this is not the case. She has been trying her best but does she not want to hurt her opponet hampering her abilities.
+	- Airiona tells Makkusu that Minia is sabatoging them. Makkusu(he was voted team captain despite not starting) then suggests that Minia be removed from her Blue position. Airiona is happy thinking Minia is being bench--however Makkusu benchs Airiona instead who is visibly upset. Someone asks then who will take the Blue/White position (Harmony(can't)/Xenos(injured)/Avis (missing)). 
+		Makkusu: well then I guess Air...
+		Airiona/Xenos: You should Makkusu. It will be the perfect chance to show everyone what you're capable of.
+	 - They begin to make/orchestrate a historic comeback but their efforts fall short as the deficit Minia creating was to great to overcome
 ### Act 3
 11. **Resurrection**<br>
 Episodes: 20, 21
@@ -338,6 +338,8 @@ Episodes: 20, 21
 		Harmony goes from red to blue after being calmed or Xenos take Blue
 12. **Return With The Elixir**<br>
 Episodes: 22
+	- Makkusu uses his trump card utilizing the energy bean he ate earlier this allows him to partially synergize with the cost of depleting all of his energy with the risk of killing him.
+	
 	- Makkusu wins/loses(do to the unforseen random nature of Jax) championship
 	
 		If Makkusu wins it is because Tomasina lets him or is distracted by the fact that he looks/feels familiar
