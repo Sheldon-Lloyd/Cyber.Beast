@@ -7,7 +7,9 @@
   - Fan: Makkusu
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
-  
+ 
+ - Makkusu is laughed at by a broadcaster maybe Akia for the fact that sure he may have managed to become a highly ranked Cybervator but does not have an Tail let alone his missing arm and leg(s) so how does he expect to doing anything with out being able to go into burst drive mode.
+ 
 - This is Xenos' last season before he anounces his retirement
 	
 	- Xenos gives a retirement speech before declaring himself the leader of the Cyvolters (maybe save this for next season)
