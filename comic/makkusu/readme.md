@@ -71,7 +71,7 @@
 Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
 	- Makkusu watches Championships
 	
-		- **Xenos/Tomasina loses the Championships**
+		- **Xenos loses the Championships**
 			**Shown as an early flash back:**
 			After Xenos loses and Makkusu who is fan of him runs up to him(maybe a younger Makkusu) and says I don't like you any more.
 
