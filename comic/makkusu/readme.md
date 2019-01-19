@@ -167,7 +167,7 @@ Episodes: 9, 10, 11, 12
 		
 	- Minia fights Airiona in cyberspace
 	
-	- Now having a Cyber.Beast Makkusu has customized his CSD to have a hologram of a dog/bird
+	- Now having a Cyber.Beast Makkusu has customized his CSD to have a hologram of a bird(owl?)
 	
 	- Mini falls in the backyard of Makkusu
 		
@@ -175,7 +175,7 @@ Episodes: 9, 10, 11, 12
 		
 	- Makkusu tells a worried Spike what happen
 		
-		it is placed on the news Minia teleports to Makkusu enraged that he told
+		it is placed on the news Minia teleports to Makkusu enraged that he told. He is seen taking a shower and is wearing his headband/glasses Minia asks him why he wears even while in the shower. He tells her that it is a keepsake from his parents that he doesnt want to lose.
 		
 	- Makkusu learns that Airiona is a cyvolter and he may have been helped them
 7. **Approach To The Inmost Cave**<br>
