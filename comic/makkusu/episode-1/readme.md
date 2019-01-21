@@ -8,28 +8,28 @@ The ending of CNS Championships is shown. An 8 year old Makkusu is shown watchin
 Pages: 4, 5, 6, 7
 
 After the Match
-*The back of Xenos/Tomasina is shown a losing the reader to see their tail*
+*The back of Xenos is shown a losing the reader to see their tail*
 
 **Makkusu:** Hey mister hey mister 
 
-*Tomasina/Xenos Turns around preparing to give him an autograph*
+*Xenos Turns around with a smile preparing to give him an autograph*
 
 **Makkusu:** I don't like you anymore
 
-**Tomasina/Xenos:** What did I do
+**Xenos:** What did I do
 
-**Makkusu's Gurdian**(*pulling Makkusu away*)/**Akia**(*jumping in front of Makkusu*): he he Makkusu's upset because you lost
+**Makkusu's Gurdian**(*pulling Makkusu away*): Makkusu's upset because you lost
 
 **Makkusu:** Just you wait when I'm old enough I'm gonna be a better Cybervator than even you
 
-**Tomasina/Xenos** (*rubs the top of his head*): Ha ha ha. I'll be waiting.
+**Xenos** (*rubs the top of his head*): Ha ha ha. Okay. I'll be waiting.
 
 
 
 ## Act 3
 Pages: 8, 9, 10
 
-10 years later Makkusu is now old enough to compete in the CNS
+12 years later Makkusu is now old enough to compete in the CNS
 
 Makkusu is seen sleeping on a train. He is awakened by spike or his CSD
   1. Spike: Hey Makkusu hey get up isn't this your stop
