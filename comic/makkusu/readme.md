@@ -7,7 +7,9 @@
   - Fan: Makkusu
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
-  
+ 
+ - Makkusu is laughed at by a broadcaster maybe Akia for the fact that sure he may have managed to become a highly ranked Cybervator but does not have an Tail let alone his missing arm and leg(s) so how does he expect to doing anything with out being able to go into burst drive mode.
+ 
 - This is Xenos' last season before he anounces his retirement
 	
 	- Xenos gives a retirement speech before declaring himself the leader of the Cyvolters (maybe save this for next season)
@@ -69,7 +71,7 @@
 Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
 	- Makkusu watches Championships
 	
-		- **Xenos/Tomasina loses the Championships**
+		- **Xenos loses the Championships**
 			**Shown as an early flash back:**
 			After Xenos loses and Makkusu who is fan of him runs up to him(maybe a younger Makkusu) and says I don't like you any more.
 
@@ -165,7 +167,7 @@ Episodes: 9, 10, 11, 12
 		
 	- Minia fights Airiona in cyberspace
 	
-	- Now having a Cyber.Beast Makkusu has customized his CSD to have a hologram of a dog/bird
+	- Now having a Cyber.Beast Makkusu has customized his CSD to have a hologram of a bird(owl?)
 	
 	- Mini falls in the backyard of Makkusu
 		
@@ -173,7 +175,7 @@ Episodes: 9, 10, 11, 12
 		
 	- Makkusu tells a worried Spike what happen
 		
-		it is placed on the news Minia teleports to Makkusu enraged that he told
+		it is placed on the news Minia teleports to Makkusu enraged that he told. He is seen taking a shower and is wearing his headband/glasses Minia asks him why he wears even while in the shower. He tells her that it is a keepsake from his parents that he doesnt want to lose.
 		
 	- Makkusu learns that Airiona is a cyvolter and he may have been helped them
 7. **Approach To The Inmost Cave**<br>
