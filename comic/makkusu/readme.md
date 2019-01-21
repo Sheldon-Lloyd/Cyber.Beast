@@ -80,11 +80,12 @@ Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makk
 Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
 	- Makkusu Applies to be a Cybervator
 3. **Refusal Of The Call**<br>
-Episodes: 2
-	- Makkusu is rejected
+Episodes: [2](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-2)
+	- Makkusu is rejected and heads back home
+	- Airiona is seen escaping the hub Makkusu was at
 4. **Meeting The Mentor**<br>
 Episodes: 3, 4, 5
-	- Airiona is found
+	- When Makkusu arrives home an injured Airiona is found at the foot of his door
 	- The reader sees the inside of Makkusu’s room which has posters and cybervator Fandom items everywhere
 	- Makkusu uses this opportunity to test his Cyber.Beast controler using Airiona's Cyber.Beast 
 		- Maybe with out her permission. In which case Airiona comes up behind him creating the poisiblty of punishment
@@ -118,9 +119,6 @@ Episodes: 3, 4, 5
 			
 			**Xenos:** I guess it worked out in our favor after all
 	
-###	Act 2
-5. **Crossing The Threshold**<br>
-Episodes: 6, 7, 8, 9
 	- Makkusu teams up with Airiona in cyberspace. He assumes that because Airiona and Minia are teammates that he is a ReNet Cybervator
 	
 		Airiona: It’s nice to be around someone smarter than me for a change especially when it is a citizen(minia is smart but does not enough confidence to exercise it)
@@ -128,6 +126,10 @@ Episodes: 6, 7, 8, 9
 		Makkusu: But aren't you a cybervator
 
 		Airiona: yea but my family isn’t, and your a perfect example that the distribution of money is misplaced citizen do all of the work while cybervator gets majority of revenue from your work even though they are only one percent of the population. But we’re gonna change all of that.
+		
+###	Act 2
+5. **Crossing The Threshold**<br>
+Episodes: 6, 7, 8, 9
 	
 	- Makkusu and maybe Airiona lose their first ranked/unranked fight and prepare for a second. An announcer is either surprised that he even has a fan and laughs at the fact the he only has one fan probably because ever saw his first fight in which he did terrible. Spike is that only fan
 	- Spike wanted him to join his company which is secretly helping the cyvolter orginization.
