@@ -129,7 +129,7 @@ Episodes: 6, 7, 8, 9
 
 		Airiona: yea but my family isn’t, and your a perfect example that the distribution of money is misplaced citizen do all of the work while cybervator gets majority of revenue from your work even though they are only one percent of the population. But we’re gonna change all of that.
 	
-	- Makkusu and maybe Minia lose their first ranked/unranked fight and prepare for a second. An announcer is either surprised that he even has a fan and laughs at the fact the he only has one fan probably because ever saw his first fight in which he did terrible. Spike is that only fan
+	- Makkusu and maybe Airiona lose their first ranked/unranked fight and prepare for a second. An announcer is either surprised that he even has a fan and laughs at the fact the he only has one fan probably because ever saw his first fight in which he did terrible. Spike is that only fan
 	- Spike wanted him to join his company which is secretly helping the cyvolter orginization.
 		
 		After constantly losing Spike offers to make Makkusu a co-owner or employee since he will be able to pursue is passion in a more realstic manner. Makkusu tells him that he is a white/green type and doesnt have the affinty to be a broadcaster? spike responds we could use a white type like you especaily one so knowledgable about... Makkusu cuts him off turning him down thinking he is on the path to becoming a cybervator(Makkusu later accepts the request  after the CNS championships but maybe it is to late). He tells him that he wants to succed on his own merrit. 
@@ -140,17 +140,35 @@ Episodes: 6, 7, 8, 9
 
 	- Makkusu develops Airiona's character as he gets her to not only help other citzens in cyberspace but Cybervarors as well.
 		They help them mostly by teaming up with ReNet, BluNet, and Cyvolter Cybervators that are being out numbered
-	- The 22?.3 championships is going on
 	
-		The announcer talks about how team Miniajax has not won a championship match since becoming a Cybervator and that she is a disappointment as a Xybrid Cybervator and will likely lose against Ace and Alex who might be retiring after this fight as he might become the next BluNet cheif.
 		
 	- Makkusu trained his body
 		
 		Expecting to be in the tournament he trained his body and ignores his doubters
+		
+	- The 22?.3 championships is going on
 	
+		The announcer talks about how team Miniajax has not won a championship match since becoming a Cybervator and that she is a disappointment as a Xybrid Cybervator and will likely lose against Ace and Alex who might be retiring after this fight as he might become the next BluNet cheif.
+		
+		The satellite in which Minia and Jax is fighting on malfunctions causing Minia to fall back down to earth	
+		
 6. **Tests, Allies, Enemies**<br>
 Episodes: 9, 10, 11, 12
+
+
+		
+		
+	- Mini falls in the backyard of Makkusu
+		
+		Makkusu asks what happend Minia tells him that she is not supposed to tell him but because he saved her that he will tell him. She insist that he does not tell anyone because if word gets out she will be in trouble
+		
+	- Makkusu tells a worried Spike what happen
+		
+		it is placed on the news Minia teleports to Makkusu enraged that he told. He is seen taking a shower and is wearing his headband/glasses Minia asks him why he wears even while in the shower. He tells her that it is a keepsake from his parents that he doesnt want to lose.
+
 	- The Cyvolters are teased as a mysterious group of Cybervators that has been capturing/stealing the satellites the house Cyber.Beast. It is revealed to be something that has been going on for a while now.
+		
+		It turns out that the reason the satellite Minia was fighting on malfunctioned causing her to fall was because the Cyvolters had tammperd with it it. This is something that may have been kown by the NRA/CyberOps for a while but hidden from the public as they did not know which Satellite was tampered with or what had been done.
 
 	- Makkusu helps someone in cyberspace 
 		
@@ -165,17 +183,7 @@ Episodes: 9, 10, 11, 12
 	
 		Makkusu has not been seen out side of cyberspace for a while but when we see him he now has hair on his head and no longer has a fat belly.		
 		
-	- Minia fights Airiona in cyberspace
-	
 	- Now having a Cyber.Beast Makkusu has customized his CSD to have a hologram of a bird(owl?)
-	
-	- Mini falls in the backyard of Makkusu
-		
-		Makkusu asks what happend Minia tells him that she is not supposed to tell him but because he saved her that he will tell him. She insist that he does not tell anyone because if word gets out she will be in trouble
-		
-	- Makkusu tells a worried Spike what happen
-		
-		it is placed on the news Minia teleports to Makkusu enraged that he told. He is seen taking a shower and is wearing his headband/glasses Minia asks him why he wears even while in the shower. He tells her that it is a keepsake from his parents that he doesnt want to lose.
 		
 	- Makkusu learns that Airiona is a cyvolter and he may have been helped them
 7. **Approach To The Inmost Cave**<br>
