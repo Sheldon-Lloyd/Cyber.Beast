@@ -86,6 +86,24 @@ Episodes: [2](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makk
 4. **Meeting The Mentor**<br>
 Episodes: 3, 4, 5
 	- When Makkusu arrives home an injured Airiona is found at the foot of his door
+		
+		Makkusu: Whoa what happened. Why arent you healing
+		
+		Airiona(holding her arm stub): My argh My CSD is broken/damaged
+		
+		Makkusu: I'll call for help
+		
+		#### Version 1
+		Airiona: No don't... There is no time I need you to fix it
+		
+		Makkusu: But I'm not a doctor 
+		
+		Airiona(she hands him her CSD): no argh my CSD
+		
+		#### Version 2
+		Airiona(she hands him her CSD): It's already on the way argh my CSD I need you to fix it
+
+		
 	- The reader sees the inside of Makkusu’s room which has posters and cybervator Fandom items everywhere
 	- Makkusu uses this opportunity to test his Cyber.Beast controler using Airiona's Cyber.Beast 
 		- Maybe with out her permission. In which case Airiona comes up behind him creating the poisiblty of punishment
