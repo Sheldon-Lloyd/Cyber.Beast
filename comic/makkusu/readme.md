@@ -138,13 +138,13 @@ Episodes: 6, 7, 8, 9
 
 	- Makkusu develops Airiona's character as he gets her to not only help other citzens in cyberspace but Cybervarors as well.
 		They help them mostly by teaming up with ReNet, BluNet, and Cyvolter Cybervators that are being out numbered
-	- The 21st? championships is going on
+	- The 22?.3 championships is going on
 	
 		The announcer talks about how team Miniajax has not won a championship match since becoming a Cybervator and that she is a disappointment as a Xybrid Cybervator and will likely lose against Ace and Alex who might be retiring after this fight as he might become the next BluNet cheif.
 		
-	- Makkusu trains his body
+	- Makkusu trained his body
 		
-	Expecting to be in the tournament he trains his body and ignores his doubters
+		Expecting to be in the tournament he trained his body and ignores his doubters
 	
 6. **Tests, Allies, Enemies**<br>
 Episodes: 9, 10, 11, 12
