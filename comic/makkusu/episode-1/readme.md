@@ -29,20 +29,34 @@ After the Match
 ## Act 3
 Pages: 8, 9, 10
 
-12 years later Makkusu is now old enough to compete in the CNS
+12 years later Makkusu feels he is now ready to compete in the CNS
 
 Makkusu is seen sleeping on a train. He is awakened by spike or his CSD
   1. Spike: Hey Makkusu hey get up isn't this your stop
   1. CSD: \*Beep Beep Beep\* Rise and shine Makkusu you have arrived at your destination
+  
+Makkusu goes to intiations ceromony in which cybervator are given their first Cyber.Beast
 
-Makkusu is teased about being delusional for trying to become a cybervator when he doesn't even have a tail
-
-Makkusu starts to have doubts but submits his application regardless
 <hr>
 
-10 years later Makkusu is now old enough to compete in the CNS
+### Version 1
+Akia blocks Makkusu from entering the building is teased about being delusional for trying to become a cybervator when he doesn't even have a tail. He says that she is going to make him late
 
-Makkusu submits his application to become a Cybervator
+Makkusu starts to have doubts but enters the building regardless regardless
 
-Makkusu is teased about being delusional trying become a cybervator when he doesn't even have a tail
+Makkusu is the first one their and waits in the lobby to get his first Cyber.Beast
+
+
+### Version 2
+Makkusu is the first one their and waits in the lobby to get his first Cyber.Beast
+
+While waiting Makkusu is teased about being delusional for trying become a cybervator when he doesn't even have a tail
+
+<hr>
+
+Makkusu Name is called
+
+:Makkusu Light
+
+
 
