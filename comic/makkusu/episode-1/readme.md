@@ -37,22 +37,19 @@ Makkusu is seen sleeping on a train. He is awakened by spike or his CSD
   
 Makkusu goes to intiations ceromony in which cybervator are given their first Cyber.Beast
 
-<hr>
+Akia blocks Makkusu from leaving the train station and is teased about being delusional for trying to become a cybervator when he doesn't even have a tail. 
 
-### Version 1
-Akia blocks Makkusu from entering the building is teased about being delusional for trying to become a cybervator when he doesn't even have a tail. He says that she is going to make him late
+Makkusu looks down at the light on his CSD that has turned yellow.
+
+  He says that she is going to make him late.
+
+Spike Walks in and intervenes as he treatens to stream her so that everyone can see what a bully she is
+
+She lets Makkusu go
 
 Makkusu starts to have doubts but enters the building regardless regardless
 
-Makkusu is the first one their and waits in the lobby to get his first Cyber.Beast
-
-
-### Version 2
-Makkusu is the first one their and waits in the lobby to get his first Cyber.Beast
-
-While waiting Makkusu is teased about being delusional for trying become a cybervator when he doesn't even have a tail
-
-<hr>
+Makkusu is the first one there and waits in the lobby to get his first Cyber.Beast
 
 Makkusu Name is called
 
