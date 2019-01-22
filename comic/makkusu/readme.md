@@ -86,47 +86,9 @@ Episodes: [2](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makk
 4. **Meeting The Mentor**<br>
 Episodes: 3, 4, 5
 	- When Makkusu arrives home an injured Airiona is found at the foot of his door
-		
-		Makkusu: Whoa what happened. Why arent you healing
-		
-		Airiona(holding her arm stub): My argh My CSD is broken/damaged
-		
-		Makkusu: I'll call for help
-		
-		#### (if enough space) Version 1
-		Airiona: No don't... There is no time I need you to fix it
-		
-		Makkusu: But I'm not a doctor 
-		
-		Airiona(she hands him her CSD): no argh my CSD
-		
-		#### (if not enough space) Version 2
-		Airiona(she hands him her CSD): It's already on the way argh my CSD I need you to fix it
-
-		
+				
 	- The reader sees the inside of Makkusu’s room which has posters and cybervator Fandom items everywhere
 	- Makkusu uses this opportunity to test his Cyber.Beast controler using Airiona's Cyber.Beast 
-		- With out her permission. Airiona comes up behind him creating the poisiblty of punishment
-			
-			Airiona(yells): What are you doing!
-			
-			on the next page/episode Makkusu looks with dismay
-			
-			Airiona: You/We don't have time for that right now. You need to fix my CSD so that I can heal my arm
-			
-			Makkusu: Oh! Right.
-			
-		- After begining her arm regenation process Airiona talks exciting about his creation while they wait
-		
-			Airiona: (You know) You're pretty smart 
-			
-			Airiona: you see, you were able to make the csd and controler because unilike others he doesn't rely on cyber.beast to code he does is on as society does not have the skills they once did
-			
-			Makkusu tells her that it is some thing he made a long time ago when had dreams of becoming a cybervator
-			
-			Makkusu: Not really I just most are combined ideas from real scientist to put ideas together to come up with a new one
-	
-			Arriona: No unlike most scientist who have become singular focused and don't combined ideas from others you put ideas together to come up with a new one
 			
 	- S/He talks about how citizens can’t become cybervators because they dont a tail which means they can synergise. With the device he made anyone will be able to use a cyberbeast in cyberspace even though they still won’t be able to become cybervators since they still won’t be able to go into burtdrive
 			
@@ -148,7 +110,7 @@ Episodes: 3, 4, 5
 			
 			**Xenos:** I guess it worked out in our favor after all
 	
-	- Makkusu teams up with Airiona in cyberspace. He assumes that because Airiona and Minia are teammates that he is a ReNet Cybervator
+	- Makkusu teams up with Airiona in cyberspace.
 	
 		Airiona: It’s nice to be around someone smarter than me for a change especially when it is a citizen(minia is smart but does not enough confidence to exercise it)
 		
