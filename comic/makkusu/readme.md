@@ -135,6 +135,8 @@ Episodes: 3, 4, 5
 	- Makkusu customized his CSD to have a talking Ai which he calls torrey
 	
 	- She tells him maybe with your cyber.beast controler I'll be able to see you in cyberspace one day 
+	
+		Airiona: See ya/good luck maybe next time we meet it'll be in cyberspace
 
 	- Makkusu is given a cyberbeast and invited to be a cybervator
 		- Makkusu takes the cyber.beast given to him by Xenos/Airiona inviting him to join the Cyvolters which he in excitement misread as cybervators
@@ -183,10 +185,9 @@ Episodes: 6, 7, 8, 9
 		
 6. **Tests, Allies, Enemies**<br>
 Episodes: 9, 10, 11, 12
-
-
 		
-		
+	- Makkusu asks why Minias her is red despite her being a green and blue type cybervator
+	
 	- Mini falls in the backyard of Makkusu
 		
 		Makkusu asks what happend Minia tells him that she is not supposed to tell him but because he saved her that he will tell him. She insist that he does not tell anyone because if word gets out she will be in trouble
