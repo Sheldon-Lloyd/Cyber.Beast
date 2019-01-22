@@ -65,7 +65,10 @@ Makkusu helps Airiona into his house to fix her CSD
       
 As they wait Makkusu turns on the TV on his CSD while asking if she wants to watch something while waiting
 ## Act 3
-Airiona has a look of shame as she knows that if puts on the TV he may see a news report of her break in
-Just as she is about to decline watch televisioning on Makkusu's CSD Xenos arrives to pick up Airiona
+- Airiona has a look of shame as she knows that if puts on the TV he may see a news report of her break in
 
-As Airiona leaves it can be seen in the Background on Makkusu's CSD a news report of Airiona breaking into the Hub he was at
+	Just as she is about to decline watching television on Makkusu's CSD Xenos arrives to pick up Airiona
+
+- As Airiona leaves taking a blueprint of the controlers with her it can be seen in the Background on Makkusu's CSD a news report of Airiona breaking into the Hub he was at
+
+	Airiona: See ya/good luck maybe next time we meet it'll be in cyberspace
