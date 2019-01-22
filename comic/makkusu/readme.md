@@ -93,23 +93,32 @@ Episodes: 3, 4, 5
 		
 		Makkusu: I'll call for help
 		
-		#### Version 1
+		#### (if enough space) Version 1
 		Airiona: No don't... There is no time I need you to fix it
 		
 		Makkusu: But I'm not a doctor 
 		
 		Airiona(she hands him her CSD): no argh my CSD
 		
-		#### Version 2
+		#### (if not enough space) Version 2
 		Airiona(she hands him her CSD): It's already on the way argh my CSD I need you to fix it
 
 		
 	- The reader sees the inside of Makkusu’s room which has posters and cybervator Fandom items everywhere
 	- Makkusu uses this opportunity to test his Cyber.Beast controler using Airiona's Cyber.Beast 
-		- Maybe with out her permission. In which case Airiona comes up behind him creating the poisiblty of punishment
-		- Airiona is excited about his creation
+		- With out her permission. Airiona comes up behind him creating the poisiblty of punishment
+			
+			Airiona(yells): What are you doing!
+			
+			on the next page/episode Makkusu looks with dismay
+			
+			Airiona: You/We don't have time for that right now. You need to fix my CSD so that I can heal my arm
+			
+			Makkusu: Oh! Right.
+			
+		- After begining her arm regenation process Airiona talks exciting about his creation while they wait
 		
-			Airiona: Wow you're smart 
+			Airiona: (You know) You're pretty smart 
 			
 			Airiona: you see, you were able to make the csd and controler because unilike others he doesn't rely on cyber.beast to code he does is on as society does not have the skills they once did
 			
@@ -117,11 +126,11 @@ Episodes: 3, 4, 5
 			
 			Makkusu: Not really I just most are combined ideas from real scientist to put ideas together to come up with a new one
 	
-			No unlike most scientist who have become singular focused and don't combined ideas from others you put ideas together to come up with a new one
+			Arriona: No unlike most scientist who have become singular focused and don't combined ideas from others you put ideas together to come up with a new one
 			
 	- S/He talks about how citizens can’t become cybervators because they dont a tail which means they can synergise. With the device he made anyone will be able to use a cyberbeast in cyberspace even though they still won’t be able to become cybervators since they still won’t be able to go into burtdrive
 			
-	- Makkusu tends to the injured Airiona fixing her CSD which allows her to heal. she encourages him to try again and that she will give word to her superiours to give him a chance
+	- Makkusu tends to the injured Airiona fixing her CSD which allows her to heal. she encourages him to try again and that she will give word to her superiours to give him a chance and that they will send him a Cyber.Beast so that he can test his device.
 	
 	- Makkusu customized his CSD to have a talking Ai which he calls torrey
 	
