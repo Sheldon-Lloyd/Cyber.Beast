@@ -93,13 +93,9 @@ Episodes: 3, 4, 5
 	- S/He talks about how citizens can’t become cybervators because they dont a tail which means they can synergise. With the device he made anyone will be able to use a cyberbeast in cyberspace even though they still won’t be able to become cybervators since they still won’t be able to go into burtdrive
 			
 	- Makkusu tends to the injured Airiona fixing her CSD which allows her to heal. she encourages him to try again and that she will give word to her superiours to give him a chance and that they will send him a Cyber.Beast so that he can test his device.
-	
-	- Makkusu customized his CSD to have a talking Ai which he calls torrey
-	
+		
 	- She tells him maybe with your cyber.beast controler I'll be able to see you in cyberspace one day 
 	
-		Airiona: See ya/good luck maybe next time we meet it'll be in cyberspace
-
 	- Makkusu is given a cyberbeast and invited to be a cybervator
 		- Makkusu takes the cyber.beast given to him by Xenos/Airiona inviting him to join the Cyvolters which he in excitement misread as cybervators
 		- Airiona sends the invite to which Xenos scolds her because he wanted to trick him into joining. As he know he would never join knowing that it is the Cyvolters. 
@@ -150,13 +146,15 @@ Episodes: 9, 10, 11, 12
 		
 	- Makkusu asks why Minias her is red despite her being a green and blue type cybervator
 	
+	- Makkusu has customized his Cyber.Beast and CSD to have a talking Ai which he calls torrey
+	
 	- Mini falls in the backyard of Makkusu
 		
 		Makkusu asks what happend Minia tells him that she is not supposed to tell him but because he saved her that he will tell him. She insist that he does not tell anyone because if word gets out she will be in trouble
 		
 	- Makkusu tells a worried Spike what happen
 		
-		it is placed on the news Minia teleports to Makkusu enraged that he told. He is seen taking a shower and is wearing his headband/glasses Minia asks him why he wears even while in the shower. He tells her that it is a keepsake from his parents that he doesnt want to lose.
+		it is placed on the news Minia teleports to Makkusu enraged that he told. He is seen taking a shower and is wearing his headband/glasses Minia asks him why he wears even while in the shower. He tells her that it is a keepsake from his parents that he doesnt want to lose. He tells her their names where Torrey and Mack.
 
 	- The Cyvolters are teased as a mysterious group of Cybervators that has been capturing/stealing the satellites the house Cyber.Beast. It is revealed to be something that has been going on for a while now.
 		
@@ -322,8 +320,22 @@ Episodes: 18, 19
 - Xenos gets injured and gets a limb or two cut off and Avis is missing
 	- During the match it appears that Minia is doing just what her father wanted(throwing the match) as she performs poorly during her match. It turns out that this is not the case. She has been trying her best but does she not want to hurt her opponet hampering her abilities.
 	- Airiona tells Makkusu that Minia is sabatoging them. Makkusu(he was voted team captain despite not starting) then suggests that Minia be removed from her Blue position. Airiona is happy thinking Minia is being bench--however Makkusu benchs Airiona instead who is visibly upset. Someone asks then who will take the Blue/White position (Harmony(can't)/Xenos(injured)/Avis (missing)). 
+	
 		Makkusu: well then I guess Air...
-		Airiona/Xenos: You should Makkusu. It will be the perfect chance to show everyone what you're capable of.
+		
+		Xenos: You should Makkusu. It will be the perfect chance to show everyone what you're capable of.
+		
+		Airiona: are you crazy he doesn't have a BurstDrive he'll get his self killed
+		
+		Makkusu: Actually! He might be a genius. You see Jax is alot like Minia and the last person on that team that would kill anyone. There is no telling how much he will hold back against a Citizen like me. But what I do know is that his biggist weaskness will become are strength.
+		
+	- After Makkusu is subsitued in
+	
+		Tomasina:We have huge lead there is now way they will make a comeback. So don’t go all out although he thinks he’s a Cybervator he’s still a citizen
+
+		Jax: ya ya ya I know one wrong move and I could kill him. Don’t worry I got this.
+
+		
 	 - They begin to make/orchestrate a historic comeback but their efforts fall short as the deficit Minia creating was to great to overcome
 ### Act 3
 11. **Resurrection**<br>
@@ -341,6 +353,21 @@ Episodes: 20, 21
 12. **Return With The Elixir**<br>
 Episodes: 22
 	- Makkusu uses his trump card utilizing the energy bean he ate earlier this allows him to partially synergize with the cost of depleting all of his energy with the risk of killing him.
+	
+	- In the final seconds of the match amidst a comeback
+
+		Makkusu: <Is he afraid of hurting me?>
+		
+		Makkusu: Jax! Don’t hold back/Give it all you got/Stop holding back
+		
+		Jax: <hes right if I lose now Makkusu won't be the only citizen who’s life will be at risk>
+		
+		Makkusu: why did I say that I have to win 
+		so that everyone will have the right compete
+		I am fighting so that all citizens will have the right to compete
+		
+		Makkusu: is it from the Cyber.Beast. No thats not it this feeling--this is what it means to truly compete/be a cybervator
+
 	
 	- Makkusu wins/loses(do to the unforseen random nature of Jax) championship
 	
