@@ -2,6 +2,10 @@
 ### Act 1
 Pages: 1, 2, 3, 4
 
+Makkusu: No one else is here am I the first person
+
+: No actually some was even earlier than you. She was very um... I guess you could say enthusiastic/eager
+
 Makkusu is rejected
 
 Makkusu tries to explain to them that he doesn't neen a tail to use a Cyber.Beast showing them the device he made
