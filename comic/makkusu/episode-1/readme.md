@@ -43,7 +43,9 @@ Makkusu looks down at the light on his CSD that has turned yellow.
 
   He says that she is going to make him late.
 
-Spike Walks in and intervenes as he treatens to stream her so that everyone can see what a bully she is
+Spike Walks in and intervenes
+
+Spike: what's going on here/ is their a problem
 
 She lets Makkusu go
 
