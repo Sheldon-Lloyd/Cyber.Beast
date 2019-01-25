@@ -22,6 +22,6 @@ Airiona: I gave him the one we just got
 ## Act 3
 Airiona sends the invite to which Xenos scolds her because he wanted to trick him into joining. As he know he would never join knowing that it is the Cyvolters.
 
-Airiona: so you wanted to trick him?! (right after she says this to their suprise they get a message accepting the invite.)
+Airiona(Scowling): so you wanted to trick him?! (right after she says this to their suprise they get a message accepting the invite.)
 
 Makkusu accepts the invite

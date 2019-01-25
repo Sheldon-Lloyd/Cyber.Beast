@@ -1,4 +1,8 @@
 ﻿# Cyber.Beast(Makkusu) outline
+## Theme
+**The role sports play in society**
+*subtheme: competition vs cooperation*
+
 ## Brainstorm
 - Episodes: 22-27
 - Roles
@@ -96,39 +100,15 @@ Episodes: 3, 4, 5
 	- Makkusu is given a cyberbeast and invited to be a cybervator
 		- Makkusu takes the cyber.beast given to him by Xenos/Airiona inviting him to join the Cyvolters which he in excitement misread as cybervators
 		- Airiona sends the invite to which Xenos scolds her because he wanted to trick him into joining. As he know he would never join knowing that it is the Cyvolters. 
-		
-			**Airiona(Scowling):** so you wanted to trick him?! right after she says this to their suprise they get a message accepting the invite. 
-			
-			They immediately or eventually realize that he does not know who they are. 
-			
-			**Xenos:** I guess it worked out in our favor after all
 	
 	- Makkusu teams up with Airiona in cyberspace.
-	
-		Airiona: It’s nice to be around someone smarter than me for a change especially when it is a citizen(minia is smart but does not enough confidence to exercise it)
-		
-		Makkusu: But aren't you a cybervator
-
-		Airiona: yea but my family isn’t, and your a perfect example that the distribution of money is misplaced citizen do all of the work while cybervator gets majority of revenue from your work even though they are only one percent of the population. But we’re gonna change all of that.
 		
 ##	Act 2
 ### 5. Crossing The Threshold
-Episodes: 6, 7, 8, 9
+Episodes: 6, 7
 	
 	- Makkusu and maybe Airiona lose their first ranked/unranked fight and prepare for a second. They lose to Jax who does not let up and Jax nearly takes his only cyber.beast. Makkusu ejects just in time An announcer is either surprised that he even has a fan and laughs at the fact the he only has one fan probably because ever saw his first fight in which he did terrible. Spike is that only fan
 	- Spike wanted him to join his company which is secretly helping the cyvolter orginization.
-		
-		After constantly losing Spike offers to make Makkusu a co-owner or employee since he will be able to pursue is passion in a more realstic manner. Just because it is not what does not matter as long as it still aligns with your vision it is still your passion. He tells him that from what he has seen that he is not cut out for the CNS that not being anle to synergize is to much of a disatvantage. That he has was a henderance to Airiona as he has never seen her perform so poorly.
-
-		Spike tells Makkusu that only the top broadcasting studio get to commentate the Championships each year
-		
-		It would do wonders for our channels ratings to have former Cybervator on our team. It might be the boost we need to get choosen to broadcast the Championship
-
-		Makkusu tells him that he is a white/green type and doesnt have the affinty to be a broadcaster? spike responds we could use a white type like you especaily one so knowledgable about... Makkusu cuts him off turning him down thinking he is on the path to becoming a cybervator(Makkusu later accepts the request  after the CNS championships but maybe it is to late). He tells him that he wants to succed on his own merrit. 
-		
-		Spike tells him that he has tallents that should not be wasted and pasive agressivelly puts down cybervators in general pointing out the cons. he also tells him that he should  not put the on a pedstal like he is worshiping them.
-		
-		He tells Makkusu to give it another shot but he shouldnt wait on an uncertainty forever
 
 	- Makkusu takes the critisims of Spike and improves the contoler he made
 
@@ -147,15 +127,11 @@ Episodes: 6, 7, 8, 9
 		The satellite in which Minia and Jax is fighting on malfunctions causing Minia to fall back down to earth	
 		
 ### 6. Tests, Allies, Enemies
-Episodes: 9, 10, 11, 12
+Episodes: 8, 9, 10, 11, 12
 		
-	- Makkusu asks why Minias her is red despite her being a green and blue type cybervator
-	
 	- Makkusu has customized his Cyber.Beast and CSD to have a talking Ai which he calls torrey
 	
 	- Mini falls in the backyard of Makkusu
-		
-		Makkusu asks what happend Minia tells him that she is not supposed to tell him but because he saved her that he will tell him. She insist that he does not tell anyone because if word gets out she will be in trouble
 		
 	- Makkusu tells a worried Spike what happen
 		
@@ -252,8 +228,6 @@ Episodes: 17
 		Jax: Don't get any ideas I'm just paying back the favor. 
 		
 		**Flash back of Jax shown huging Minia after Makkusu saved her**
-
-		Jax: I thought you were dead
 
 		Minia is surprised that he knew there was not much time left as he normal has a bad concept of time. He tells her Makkusu but he never said anything out loud
 
