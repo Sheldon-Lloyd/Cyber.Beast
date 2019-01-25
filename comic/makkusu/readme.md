@@ -1,4 +1,4 @@
-# Cyber.Beast(Makkusu) outline
+﻿# Cyber.Beast(Makkusu) outline
 ## Brainstorm
 - Episodes: 22-27
 - Roles
@@ -7,8 +7,6 @@
   - Fan: Makkusu
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
- 
- - Makkusu is laughed at by a broadcaster maybe Akia for the fact that sure he may have managed to become a highly ranked Cybervator but does not have an Tail let alone his missing arm and leg(s) so how does he expect to doing anything with out being able to go into burst drive mode.
  
 - This is Xenos' last season before he anounces his retirement
 	
@@ -65,9 +63,8 @@
 
 
 
-## Arc 1
-###	Act 1
-1. **Ordinary World**<br/>
+##	Act 1
+### 1. Ordinary World
 Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
 	- Makkusu watches Championships
 	
@@ -76,14 +73,14 @@ Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makk
 			After Xenos loses and Makkusu who is fan of him runs up to him(maybe a younger Makkusu) and says I don't like you any more.
 
 			
-2. **Call To Adventure**<br/>
+### 2. Call To Adventure
 Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
 	- Makkusu Applies to be a Cybervator
-3. **Refusal Of The Call**<br>
+### 3. Refusal Of The Call
 Episodes: [2](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-2)
 	- Makkusu is rejected and heads back home
 	- Airiona is seen escaping the hub Makkusu was at
-4. **Meeting The Mentor**<br>
+### 4. Meeting The Mentor
 Episodes: 3, 4, 5
 	- When Makkusu arrives home an injured Airiona is found at the foot of his door
 				
@@ -114,18 +111,26 @@ Episodes: 3, 4, 5
 
 		Airiona: yea but my family isn’t, and your a perfect example that the distribution of money is misplaced citizen do all of the work while cybervator gets majority of revenue from your work even though they are only one percent of the population. But we’re gonna change all of that.
 		
-###	Act 2
-5. **Crossing The Threshold**<br>
+##	Act 2
+### 5. Crossing The Threshold
 Episodes: 6, 7, 8, 9
 	
-	- Makkusu and maybe Airiona lose their first ranked/unranked fight and prepare for a second. An announcer is either surprised that he even has a fan and laughs at the fact the he only has one fan probably because ever saw his first fight in which he did terrible. Spike is that only fan
+	- Makkusu and maybe Airiona lose their first ranked/unranked fight and prepare for a second. They lose to Jax who does not let up and Jax nearly takes his only cyber.beast. Makkusu ejects just in time An announcer is either surprised that he even has a fan and laughs at the fact the he only has one fan probably because ever saw his first fight in which he did terrible. Spike is that only fan
 	- Spike wanted him to join his company which is secretly helping the cyvolter orginization.
 		
-		After constantly losing Spike offers to make Makkusu a co-owner or employee since he will be able to pursue is passion in a more realstic manner. Makkusu tells him that he is a white/green type and doesnt have the affinty to be a broadcaster? spike responds we could use a white type like you especaily one so knowledgable about... Makkusu cuts him off turning him down thinking he is on the path to becoming a cybervator(Makkusu later accepts the request  after the CNS championships but maybe it is to late). He tells him that he wants to succed on his own merrit. 
+		After constantly losing Spike offers to make Makkusu a co-owner or employee since he will be able to pursue is passion in a more realstic manner. Just because it is not what does not matter as long as it still aligns with your vision it is still your passion. He tells him that from what he has seen that he is not cut out for the CNS that not being anle to synergize is to much of a disatvantage. That he has was a henderance to Airiona as he has never seen her perform so poorly.
+
+		Spike tells Makkusu that only the top broadcasting studio get to commentate the Championships each year
+		
+		It would do wonders for our channels ratings to have former Cybervator on our team. It might be the boost we need to get choosen to broadcast the Championship
+
+		Makkusu tells him that he is a white/green type and doesnt have the affinty to be a broadcaster? spike responds we could use a white type like you especaily one so knowledgable about... Makkusu cuts him off turning him down thinking he is on the path to becoming a cybervator(Makkusu later accepts the request  after the CNS championships but maybe it is to late). He tells him that he wants to succed on his own merrit. 
 		
 		Spike tells him that he has tallents that should not be wasted and pasive agressivelly puts down cybervators in general pointing out the cons. he also tells him that he should  not put the on a pedstal like he is worshiping them.
 		
 		He tells Makkusu to give it another shot but he shouldnt wait on an uncertainty forever
+
+	- Makkusu takes the critisims of Spike and improves the contoler he made
 
 	- Makkusu develops Airiona's character as he gets her to not only help other citzens in cyberspace but Cybervarors as well.
 		They help them mostly by teaming up with ReNet, BluNet, and Cyvolter Cybervators that are being out numbered
@@ -141,7 +146,7 @@ Episodes: 6, 7, 8, 9
 		
 		The satellite in which Minia and Jax is fighting on malfunctions causing Minia to fall back down to earth	
 		
-6. **Tests, Allies, Enemies**<br>
+### 6. Tests, Allies, Enemies
 Episodes: 9, 10, 11, 12
 		
 	- Makkusu asks why Minias her is red despite her being a green and blue type cybervator
@@ -176,7 +181,7 @@ Episodes: 9, 10, 11, 12
 	- Now having a Cyber.Beast Makkusu has customized his CSD to have a hologram of a bird(owl?)
 		
 	- Makkusu learns that Airiona is a cyvolter and he may have been helped them
-7. **Approach To The Inmost Cave**<br>
+### 7. Approach To The Inmost Cave
 Episodes: 13, 14, 15
 
 	- More citizens are now competing in the CNS league thanks to the Cyvolters destrubting the tech that Makkusu made
@@ -209,11 +214,15 @@ Episodes: 13, 14, 15
 	
 		The person either resigns or give him the fight that he needs to be ranked high enough to joins as they don't need them (thunora?)
 		
-
+ 	- Makkusu is laughed at by a broadcaster maybe Akia for the fact that  he may have managed to become a highly ranked Cybervator but does not have an Tail let alone his missing arm and leg(s) so even if he makes it to the championship how does he expect to doing anything with out being able to go into burst drive mode.
+	
+	- Makkusu loses a match and with it his cyber.beast which pretty much elimatantes any chances of making it into the championships
 		
 	- Alex becomes chief
 	- Makkusu works on his new tech
-8. **Ordeal**<br>
+	
+	
+### 8. Ordeal
 Episodes: 16
 	- The NRA are against allowing citizens to participate in the CNS using unsanctioned Cyber.Beast distributed by the Cyvolters. They hold a metting to discuss this with the CNS. The CNS tells them that is not their place to be decide rather someone should legaly be allowed to compete.
 	
@@ -224,11 +233,34 @@ Episodes: 16
 	- Adding insult to injury the CNS request that both ReNet and BluNet gives up one hub to the Cyvolters so they can compete. This angers Kyshumu who yells that citizens shouldn't compete he treatens to pull ReNet out of the CNS
 		
 		He suggest that it is too dangerous and not having armor they are more likely to be killed and that they can't regrow limbs like a real cybervator
-		
+
+
 	
-9. **Reward (Seizing The Sword)**<br>
+### 9. Reward (Seizing The Sword)
 Episodes: 17
 
+	- Makkusu is given/finds a new cyber.beast or the one he beats gives him his Cyber.Beast back as they know how much he helped others and wants to return the favor.
+
+		The only problem is that he is almost out of time and no one would consider risking a match this late in the running. And he needs to face a top 3/5 cybervator to have any hope
+
+		Jax however gives him that match after Minia pleads him citing him saving her. He agrees but tells her but dont expect me to let him win. She says she would never ask that of him.
+
+		Jax and Makkusu fights which is watch by none/many as no one expect a match at this time.
+
+		Makkusu fairs well but time is running out. At this point Jax forefits knowing that he has a huge lead as the number one ranked cybervator.
+
+		Jax: Don't get any ideas I'm just paying back the favor. 
+		
+		**Flash back of Jax shown huging Minia after Makkusu saved her**
+
+		Jax: I thought you were dead
+
+		Minia is surprised that he knew there was not much time left as he normal has a bad concept of time. He tells her Makkusu but he never said anything out loud
+
+	- Someone  asks if he is Upset that he was handed the spot rather than earning it on the team Makkusu tell Alex/Xenos/Minia/Jax/Akia/Airiona that it does matter that it is just a game. They reply telling him that is his problem/Thats why I can stand you/Its not just a game
+
+		Makkusu is told that it is not just a game but that it the reason that we have no more wars and maintain peace among citizens as it gives people a place to belong satisfying the human desire for tribalism
+		
 	- Alex has been newly elected as the Chief of BluNet
 	
 	- Alex tells the NRA that both Citizens and Cybervators has taken a liking to Makkusu and that their no telling how they might respond if they don't let him compete. They discuss the possibility of angering the citizens if they don't let him compete citing the decrease in ReNet stock as an example.
@@ -280,10 +312,17 @@ Episodes: 17
 		
 	- Harmony attacks Makkusu who tries to introduce his self a nearly kills him but she stops which surprises Ace
 
-10. **The Road Back**<br>
+### 10. The Road Back
 Episodes: 18, 19
 
-	
+	- Makkusu is fight on Akia's favorite Cybervators team
+
+		Makkusu runs into Akia before his championship match.
+
+		Akia: Hey Makkusu(She looks as if she will punch/hit him)
+
+		AKia(She has her hand/fist on his shoulder): Xenos is my favorite Cybervator/Every one is count on you so don't lose/Mess up.
+
 	- An ultimatum/wager is purposed for Makkusu
 	
 		With Makkusu joining ReNet Kyshumu tells the CNS/NRA that no Citizen should be allowed to compete in the CNS.
@@ -337,8 +376,8 @@ Episodes: 18, 19
 
 		
 	 - They begin to make/orchestrate a historic comeback but their efforts fall short as the deficit Minia creating was to great to overcome
-### Act 3
-11. **Resurrection**<br>
+## Act 3
+### 11. Resurrection
 Episodes: 20, 21
 	- Makkusu fights Jax
 		- Max suggests a line up change.
@@ -350,7 +389,7 @@ Episodes: 20, 21
 		Mina is changed from the blue to the green position
 
 		Harmony goes from red to blue after being calmed or Xenos take Blue
-12. **Return With The Elixir**<br>
+### 12. Return With The Elixir
 Episodes: 22
 	- Makkusu uses his trump card utilizing the energy bean he ate earlier this allows him to partially synergize with the cost of depleting all of his energy with the risk of killing him.
 	

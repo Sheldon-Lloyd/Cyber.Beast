@@ -2,7 +2,11 @@
 ## Act 1
 While working Makkusu is notified that Xenos is about to have a match he stops what he is doing to watch it
 ## Act 2
-After Airiona and Xenos is shown disscusing the possibilty of Makkusu joining the cyvolters
+Makkusu watches a ranked Cyberspace CNS match with Xenos and Airiona through Spikes commentary feed 
+
+Spike: Welcome Spike.TV i'm you're host Spike along with my color commentator Akia
+
+After the match Airiona and Xenos is shown disscusing the possibilty of Makkusu joining the cyvolters
 
 Xenos Discovers that Airiona already sent Makkusu an invite along with a Cyber.Beast
 
