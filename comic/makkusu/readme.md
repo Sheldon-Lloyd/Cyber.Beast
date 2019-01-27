@@ -12,11 +12,11 @@
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
  
-- This is Xenos' last season before he anounces his retirement
+- This is Xenos' last season before he announces his retirement
 	
 	- Xenos gives a retirement speech before declaring himself the leader of the Cyvolters (maybe save this for next season)
 		
-		Xenos: I want the future to be a world were there are no distincions between citzen and cybervator one in which everyone is a cybervator in their on right.
+		Xenos: I want the future to be a world were there are no distinctions between citizen and cybervator one in which everyone is a cybervator in their on right.
 			
 		Xenos: Up to this point Cyvolters has not had a leader. Because of this they have done some things I am not proud. many if which goes against the vision/values of the Cyvolter. Without a leader the Cyvolters will become nothing more than an organization resembling a chicken without a head.
 			
@@ -24,7 +24,7 @@
 		
 		Xenos:
 			
-		Right now There are 4 types of cyvolters
+		Right now There are 4 types of Cyvolters
 			
 		The malicious type that just like finding people to take down the worst of them all.
 			
@@ -35,21 +35,21 @@
 		Then there ones that follows(majority) the crowd doing what seems to be what's cool. This type is easily embarrassed and just wants others to fit in
 		
 		}
-		if(they win) Xenos: even though we lost today I wont give up on helping the Cyvolters mission of creating a world with equal opportunity for all. We have technolgy but sometime socity needs that final push
+		if(they win) Xenos: even though we lost today I wont give up on helping the Cyvolters mission of creating a world with equal opportunity for all. We have technology but sometime society needs that final push
 		
 		Xenos: From this moment forward I will the lead the Cyvolters. Change can happen, has happened and, will happen.
 	 
-- In the second season years later the cyvolters is now considered the Citizens league begin to do a type of initiation or point system in which Cybervators(not citizens) must attack "bad" cybervators inorder to become a Cyvolter -- it is a rule created by Citizens.
+- In the second season years later the Cyvolters is now considered the Citizens league begin to do a type of initiation or point system in which Cybervators(not citizens) must attack "bad" cybervators in order to become a Cyvolter -- it is a rule created by Citizens.
 	- The cyvolters increase in sizes has become a detriment to their initial values
 	- Since anyone can be a Cyvolter they are doing whatever they want and claim to be apart of the Cyvolters, because of this the Cyvolters realize they need a leader to lay a framework and places that duty upon Xenos.
 	- Airiona is upset by the way the other cyvolter are acting she realizes that citizens can be just as bad as cybervator
 	- This changes Airiona strengthens belief that the majority of of Cybervators are stupid instead all humans are. Xenos tells her that it actually mob mentality and selfish preservation that cause people to act this way. people don't want to be alone so they follow what they may think is the masses no matter how wrong it maybe to protect their self
 
-- Makkusu's alturism becomes contagious and eventually becomes the basis for the Cyvolters identity at this point Makkusu either accepts or realize that he is a Cyvolter or she is shown helping another cyvolter
+- Makkusu's altruism becomes contagious and eventually becomes the basis for the Cyvolters identity at this point Makkusu either accepts or realize that he is a Cyvolter or she is shown helping another cyvolter
 
 	- Max or someone that max helps someone or max saying its is solely for the purpose making him a stronger opponent strong enough to be a challenge for him in the future
 
-	- Someone joins forces with Makusu because they want the chance to fight someone even stronger than that protagonist in hopes of climbing up in ranking	
+	- Someone joins forces with Makkusu because they want the chance to fight someone even stronger than that protagonist in hopes of climbing up in ranking	
 	
 	- Makkusu is about to mine cyber.beast or fight another cybervator alone He spots a girl that waves at him but he doesn't know who she is so he he casually ignores her
 	
@@ -89,9 +89,9 @@ Episodes: 3, 4, 5
 - When Makkusu arrives home an injured Airiona is found at the foot of his door
 				
 - The reader sees the inside of Makkusu’s room which has posters and cybervator Fandom items everywhere
-- Makkusu uses this opportunity to test his Cyber.Beast controler using Airiona's Cyber.Beast 
+- Makkusu uses this opportunity to test his Cyber.Beast controller using Airiona's Cyber.Beast 
 			
-- S/He talks about how citizens can’t become cybervators because they dont a tail which means they can synergise. With the device he made anyone will be able to use a cyberbeast in cyberspace even though they still won’t be able to become cybervators since they still won’t be able to go into burtdrive
+- S/He talks about how citizens can’t become cybervators because they don't a tail which means they can synergize. With the device he made anyone will be able to use a Cyber.Beast in cyberspace even though they still won’t be able to become cybervators since they still won’t be able to go into BurstDrive
 			
 - Makkusu tends to the injured Airiona fixing her CSD which allows her to heal. she encourages him to try again and that she will give word to her superiours to give him a chance and that they will send him a Cyber.Beast so that he can test his device.
 		
@@ -129,13 +129,13 @@ Episodes: 6, 7
 ### 6. Tests, Allies, Enemies
 Episodes: 8, 9, 10, 11, 12
 		
-- Makkusu has customized his Cyber.Beast and CSD to have a talking Ai which he calls torrey
+- Makkusu has customized his Cyber.Beast and CSD to have a talking Ai which he calls Torrey
 	
 - Mini falls in the backyard of Makkusu
 		
 - Makkusu tells a worried Spike what happen
 		
-	it is placed on the news Minia teleports to Makkusu enraged that he told. He is seen taking a shower and is wearing his headband/glasses Minia asks him why he wears even while in the shower. He tells her that it is a keepsake from his parents that he doesnt want to lose. He tells her their names where Torrey and Mack.
+	it is placed on the news Minia teleports to Makkusu enraged that he told. He is seen taking a shower and is wearing his headband/glasses Minia asks him why he wears even while in the shower. He tells her that it is a keepsake from his parents that he doesn't want to lose. He tells her their names where Torrey and Mack.
 
 - The Cyvolters are teased as a mysterious group of Cybervators that has been capturing/stealing the satellites the house Cyber.Beast. It is revealed to be something that has been going on for a while now.
 		
@@ -223,11 +223,11 @@ Episodes: 17
 
 	Jax and Makkusu fights which is watch by none/many as no one expect a match at this time.
 
-	Makkusu fairs well but time is running out. At this point Jax forefits knowing that he has a huge lead as the number one ranked cybervator.
+	Makkusu fairs well but time is running out. At this point Jax forfeits knowing that he has a huge lead as the number one ranked cybervator.
 
 	Jax: Don't get any ideas I'm just paying back the favor. 
 		
-	*Flash back of Jax shown huging Minia after Makkusu saved her*
+	*Flash back of Jax shown hugging Minia after Makkusu saved her*
 
 	Minia is surprised that he knew there was not much time left as he normal has a bad concept of time. He tells her Makkusu but he never said anything out loud
 
@@ -247,22 +247,22 @@ Episodes: 17
 	
 - Makkusu uses his tech to compete in the CNS championships
 	
-	Arionona: Wow I thought what you made before was incredible how did you create this stuff
+	Airiona: Wow I thought what you made before was incredible how did you create this stuff
 		
 	Makkusu: I didn't make it. Its I made from tech that I found under my house(the hole Minia/Airiona created). A lot of it was unfinished All I did was make a few modifications
 		
 	Makkusu: I call it an Elimiter. Normally a cyber.beast would be able to synergize with a cybervator thanks to thier tail. Since everybody including cybervators evolved from plants I used a plant to act as the cyber.beast[1](https://www.engadget.com/2018/12/05/mit-researchers-create-a-robot-houseplant-that-moves-on-its-own/),[2]( https://www.theverge.com/2018/7/12/17563688/robot-plant-hybrid-hexa-vincross-succulent ). 
 		
-	:so you are basicly sending commands to a beserk cyber.beast a green/black cybervator. So it basicly makes you like a Xybrid. 
+	:so you are basically sending commands to a berserk cyber.beast a green/black cybervator. So it basically makes you like a Xybrid. 
 		other.person: what how.
 		
-	Max: < Well you see I can also hyperlink with other cybervator see what they are thinking and send comands as well. >
+	Max: < Well you see I can also hyperlink with other cybervator see what they are thinking and send commands as well. >
 		
 	other.person: you just hyperlinked to me with out a fist bump. 
 		
-	Max: no I did, during the fight(geting blood) / I did it using the right vibration frequency
+	Max: no I did, during the fight(getting blood) / I did it using the right vibration frequency
 		
-	Airiona: This must be the(tech lost to time) lost technology from thousands of years ago Xenos was telling. Haha who Cybervators realy are a ~~cancer~~(find new word) to the world
+	Airiona: This must be the(tech lost to time) lost technology from thousands of years ago Xenos was telling. Haha who Cybervators really are a ~~cancer~~(find new word) to the world
 	
 - Makkusu's team is formed
 	
