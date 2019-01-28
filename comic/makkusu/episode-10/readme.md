@@ -1,8 +1,5 @@
 # Episode 10 Outline
 ## Act 1
-Makkusu is in cyberspace he sees another cybervator maybe a cyvolter getting double/triple team team Makkusu and maybe Airiona joins in to even things up
-
+A montage is shown of the reputation that Makkusu has made help other cybervators and giving 70% of his earnings and how it has earned him many fans.
 ## Act 2
-
 ## Act 3
-Makkusu helps them win while also increasing his ranking match

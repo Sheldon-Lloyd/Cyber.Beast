@@ -1,17 +1,32 @@
 # Episode 6 Outline
 ## Act 1
-Time has passed after mining cyber.beast Airiona and unranked Makkusu is ready for their first match against Jax and Minia
-
-Airiona tells Makkusu that Minia and Jax is probably the worst matchup they can get
+Just before Makkusu is defeat Airiona uses her chains to pull him to safety while taking a hit from Minia and yells at him to eject as he only has one cyber.beast she then loses her Cyber.Beast to save Makkusu
 
 ## Act 2
-Makkusu notices that Minia and Jax seems to be fused with 2 complete differnt Cyber.Beast at the same time and tells Airiona I thought that wasn't possible.
+1 week later
 
-Airiona tells Makkusu that they are Xybrids that they have two tails so they can use two cyber.beast at a time. She explain in further detail how it works.
+After losing multiple matches Spike offers to make Makkusu a co-owner or employee since he will be able to pursue is passion in a more realistic manner. Just because it is not what does not matter as long as it still aligns with your vision it is still your passion. He tells him that from what he has seen that he is not cut out for the CNS that not being angle to synergize is to much of a disadvantage. That he has was a hinderance to Airiona as he has never seen her perform so poorly. She gave up her chance at the championships just to help him.
 
-Makkusu and Jax continues their fight
+Spike tells Makkusu that only the top broadcasting studio get to commentate the Championships each year
+		
+It would do wonders for our channels ratings to have former Cybervator on our team. It might be the boost we need to get chosen to broadcast the Championship
+
+Makkusu tells him that he is a white/green type and doesn't have the affinity to be a broadcaster? spike responds we could use a white type like you especially one so knowledgeable about... Makkusu cuts him off turning him down thinking he is on the path to becoming a cybervator(Makkusu later accepts the request  after the CNS championships but maybe it is to late). He tells him that he wants to succeed on his own merit. 
+		
+Spike tells him that he has tallents that should not be wasted and pasive agressivelly puts down cybervators in general pointing out the cons. he also tells him that he should  not put the on a pedstal like he is worshiping them.
+		
+He tells Makkusu to give it another shot but he shouldnt wait on an uncertainty forever
+Airiona contacts Makkusu asking if he is ready for a match against her someone else or to mine cyber.beast.
+
+Makkusu: but the first Championship match is about to start.
+
+Airiona: You have yet to win a single match you dont have that luxury. If you're serious about being a cybervator now you need to take ever opportunity you can get. If you are not all in then I guess you're on your own.You need practice everyone else is watching this is the best time to mine cyber.beast thier will be no one else to compete with.
 
 ## Act 3
-The commentators point Jax is relentless in his fight with Jax as he is known as the type that never backs down from a fight and does not hold back no mater his opponent.
+Airiona and Makkusu are in cyberspace while the 22?.3 championships is going on 
 
-Makkusu is on the verge of losing his cyber.beast which is pointed out by the commentaor
+The announcer talks about how team Miniajax has not won a championship match since becoming a Cybervator and that she is a disappointment as a Xybrid Cybervator and will likely lose against Ace and Alex who might be retiring after this fight as he might become the next BluNet cheif.
+		
+The satellite in which Minia and Jax is fighting on malfunctions causing Minia to fall back down to earth
+		
+

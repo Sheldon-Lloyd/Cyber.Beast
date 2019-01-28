@@ -1,27 +1,23 @@
-# Episode 4 Outline
+## Episode 4 Outline
 ## Act 1
-While working Makkusu is notified that Xenos is about to have a match he stops what he is doing to watch it
+They realize that Makkusu does not know who they are.
+
+Xenos: I guess it worked out in our favor after all
+
 ## Act 2
-Makkusu watches a ranked Cyberspace CNS match with Xenos and Airiona through Spikes commentary feed 
+At first Makkusu tries to fight another cybervator but is quickly turned down by the Cybervator he tries to fight or Airiona
+### Version 1
+Airiona pairs with Makkusu to mine Cyber.Beast
+### Version 2
+Makkusu goes into cyberspace on his own he gets into trouble and Airiona saves him
 
-Spike: Welcome Spike.TV i'm you're host Spike along with my color commentator Akia
+- During or after the fight
 
-After the match Airiona and Xenos is shown disscusing the possibilty of Makkusu joining the cyvolters
+    Airiona: It’s nice to be around someone smarter than me for a change especially when it is a citizen(minia is smart but does not enough confidence to exercise it)
+            
+    Makkusu: But aren't you a cybervator
 
-Xenos Discovers that Airiona already sent Makkusu an invite along with a Cyber.Beast
-
-Airiona: I already sent the invite
-
-Xenos: When their 
-
-Airiona: Just a second ago
-
-Xenos: but what about the Cyber.Beast
-
-Airiona: I gave him the one we just got
+    Airiona: yea but my family isn’t, and your a perfect example that the distribution of money is misplaced citizen do all of the work while cybervator gets majority of revenue from your work even though they are only one percent of the population. But we’re gonna change all of that.
+    
 ## Act 3
-Airiona sends the invite to which Xenos scolds her because he wanted to trick him into joining. As he know he would never join knowing that it is the Cyvolters.
-
-Airiona(Scowling): so you wanted to trick him?! (right after she says this to their suprise they get a message accepting the invite.)
-
-Makkusu accepts the invite
+Makkusu takes down his first Cyber.Beast
