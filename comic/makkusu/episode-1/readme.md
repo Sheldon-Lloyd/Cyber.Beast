@@ -29,10 +29,6 @@ Makkusu Name is called
 
 --------------
 
-Makkusu: No one else is here am I the first person
-
-: No actually some was even earlier than you. She was very um... I guess you could say enthusiastic/eager
-
 Makkusu is rejected
 
 Makkusu tries to explain to them that he doesn't need a tail to use a Cyber.Beast showing them the device he made
