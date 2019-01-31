@@ -17,7 +17,7 @@ Akia: are you here for
 ## Panel 3
 Head shot of Makkusu as he gets closer
 
-Makkusu (scowls): come on I don't have time for this I'm gonna be late. can you let me trough please
+Makkusu (scowls): come on I don't have time for this I'm gonna be late. It's first come first serve, can you let me trough please
 
 ## Panel 4
 Akia slaps the back of Makkusu's head and his CSD turns yellow

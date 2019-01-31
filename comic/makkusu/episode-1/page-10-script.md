@@ -8,7 +8,7 @@ Makkusu is the first one there and waits in the lobby to get his first Cyber.Bea
 ## Panel 2 (wide panel shot 1/3rd vertical full width)
 Makkusu is shown sitting down looking to the left
 
-## Panel 2 (wide panel shot 1/3rd vertical full width)
+## Panel 3 (wide panel shot 1/3rd vertical full width)
 Makkusu is shown sitting down looking to the right and up
 
 Receptionist:Makkusu Light
