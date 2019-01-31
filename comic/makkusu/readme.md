@@ -40,7 +40,7 @@
 		Xenos: From this moment forward I will the lead the Cyvolters. Change can happen, has happened and, will happen.
 	 
 - In the second season years later the Cyvolters is now considered the Citizens league begin to do a type of initiation or point system in which Cybervators(not citizens) must attack "bad" cybervators in order to become a Cyvolter -- it is a rule created by Citizens.
-	- The cyvolters increase in sizes has become a detriment to their initial values
+	- The Cyvolters increase in sizes has become a detriment to their initial values
 	- Since anyone can be a Cyvolter they are doing whatever they want and claim to be apart of the Cyvolters, because of this the Cyvolters realize they need a leader to lay a framework and places that duty upon Xenos.
 	- Airiona is upset by the way the other cyvolter are acting she realizes that citizens can be just as bad as cybervator
 	- This changes Airiona strengthens belief that the majority of of Cybervators are stupid instead all humans are. Xenos tells her that it actually mob mentality and selfish preservation that cause people to act this way. people don't want to be alone so they follow what they may think is the masses no matter how wrong it maybe to protect their self
@@ -51,19 +51,7 @@
 
 	- Someone joins forces with Makkusu because they want the chance to fight someone even stronger than that protagonist in hopes of climbing up in ranking	
 	
-	- Makkusu is about to mine cyber.beast or fight another cybervator alone He spots a girl that waves at him but he doesn't know who she is so he he casually ignores her
-	
-		Later he gets into some trouble and is saved by her. As she pick him  up and carries him out of harm's way
 
-		Girl: She says hi again
-
-		Makkusu: wait aren't you(showing image of her waving)
-
-		Girl: Yep I knew you were a cyvolter the moment I saw you. It would be a disgrace if I didn't -- my cyber.beast is a bear/shark after all. Us cyvolter have to stick together ya know
-
-		Makkusu: wait so you know who each AND EVERY cyvolter is
-
-		Girl: Don’t woorry I won't tell
 
 
 
@@ -81,11 +69,11 @@ Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makk
 Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
 	- Makkusu Applies to be a Cybervator
 ### 3. Refusal Of The Call
-Episodes: [2](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-2)
+Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
 	- Makkusu is rejected and heads back home
 	- Airiona is seen escaping the hub Makkusu was at
 ### 4. Meeting The Mentor
-Episodes: 3, 4, 5
+Episodes: 2, 3, 4
 - When Makkusu arrives home an injured Airiona is found at the foot of his door
 				
 - The reader sees the inside of Makkusu’s room which has posters and cybervator Fandom items everywhere
@@ -93,18 +81,32 @@ Episodes: 3, 4, 5
 			
 - S/He talks about how citizens can’t become cybervators because they don't a tail which means they can synergize. With the device he made anyone will be able to use a Cyber.Beast in cyberspace even though they still won’t be able to become cybervators since they still won’t be able to go into BurstDrive
 			
-- Makkusu tends to the injured Airiona fixing her CSD which allows her to heal. she encourages him to try again and that she will give word to her superiours to give him a chance and that they will send him a Cyber.Beast so that he can test his device.
+- Makkusu tends to the injured Airiona fixing her CSD which allows her to heal. she encourages him to try again and that she will give word to her superiors to give him a chance and that they will send him a Cyber.Beast so that he can test his device.
 		
 	
-- Makkusu is given a cyberbeast and invited to be a cybervator
+- Makkusu is given a Cyber.Beast and invited to be a cybervator
 	- Makkusu takes the cyber.beast given to him by Xenos/Airiona inviting him to join the Cyvolters which he in excitement misread as cybervators
 	- Airiona sends the invite to which Xenos scolds her because he wanted to trick him into joining. As he know he would never join knowing that it is the Cyvolters. 
 	
 - Makkusu teams up with Airiona in cyberspace.
+	- When Makkusu logs into cyberspace it is recommended that
+	- Makkusu is about to mine cyber.beast or fight another cybervator alone He spots a girl that waves at him but he doesn't know who she is so he he casually ignores her
+	
+		Later he gets into some trouble and is saved by her. As she pick him  up and carries him out of harm's way
+
+		Girl: She says hi again
+
+		Makkusu: wait aren't you(showing image of her waving)
+
+		Girl: Yep I knew you were a cyvolter the moment I saw you. It would be a disgrace if I didn't -- my cyber.beast is a bear/shark after all. Us cyvolter have to stick together ya know
+
+		Makkusu: wait so you know who each AND EVERY cyvolter is
+
+		Girl: Don’t woorry I won't tell
 		
 ##	Act 2
 ### 5. Crossing The Threshold
-Episodes: 6, 7
+Episodes: 5, 6
 	
 - Makkusu and maybe Airiona lose their first ranked/unranked fight and prepare for a second. They lose to Jax who does not let up and Jax nearly takes his only cyber.beast. Makkusu ejects just in time An announcer is either surprised that he even has a fan and laughs at the fact the he only has one fan probably because ever saw his first fight in which he did terrible. Spike is that only fan
 - Spike wanted him to join his company which is secretly helping the Cyvolter organization.
@@ -127,7 +129,7 @@ Episodes: 6, 7
 	The satellite in which Minia and Jax is fighting on malfunctions causing Minia to fall back down to earth	
 		
 ### 6. Tests, Allies, Enemies
-Episodes: 8, 9, 10, 11, 12
+Episodes: 7, 8, 9, 10, 11, 12
 		
 - Makkusu has customized his Cyber.Beast and CSD to have a talking Ai which he calls Torrey
 	
@@ -200,21 +202,6 @@ Episodes: 13, 14, 15
 	
 ### 8. Ordeal
 Episodes: 16
-- The NRA are against allowing citizens to participate in the CNS using unsanctioned Cyber.Beast distributed by the Cyvolters. They hold a meeting to discuss this with the CNS. The CNS tells them that is not their place to be decide rather someone should legally be allowed to compete.
-	
-- Not only does the CNS ignore their complaints officially recognize the Cyvolters allowing citizens to compete in the league. But because they don't have a hub the can't compete in the championships. Their reasoning is that the primary mission of the CNS is to distribute wealth among the citizens and this furthers that agenda. 
-		
-	All of the citizen who has become cybervators up until now to prevent this citizens will be allowed to join the CNS. this is done to prevent them from joining the cybervators just so that they can join the CNS.		
-	
-- Adding insult to injury the CNS request that both ReNet and BluNet gives up one hub to the Cyvolters so they can compete. This angers Kyshumu who yells that citizens shouldn't compete he threatens to pull ReNet out of the CNS
-		
-	He suggest that it is too dangerous and not having armor they are more likely to be killed and that they can't regrow limbs like a real cybervator
-
-
-	
-### 9. Reward (Seizing The Sword)
-Episodes: 17
-
 - Makkusu is given/finds a new cyber.beast or the one he beats gives him his Cyber.Beast back as they know how much he helped others and wants to return the favor.
 
 	The only problem is that he is almost out of time and no one would consider risking a match this late in the running. And he needs to face a top 3/5 cybervator to have any hope
@@ -234,6 +221,22 @@ Episodes: 17
 - Someone  asks if he is Upset that he was handed the spot rather than earning it on the team Makkusu tell Alex/Xenos/Minia/Jax/Akia/Airiona that it does matter that it is just a game. They reply telling him that is his problem/Thats why I can stand you/Its not just a game
 
 	Makkusu is told that it is not just a game but that it the reason that we have no more wars and maintain peace among citizens as it gives people a place to belong satisfying the human desire for tribalism
+
+
+- The NRA are against allowing citizens to participate in the CNS using unsanctioned Cyber.Beast distributed by the Cyvolters. They hold a meeting to discuss this with the CNS. The CNS tells them that is not their place to be decide rather someone should legally be allowed to compete.
+	
+- Not only does the CNS ignore their complaints officially recognize the Cyvolters allowing citizens to compete in the league. But because they don't have a hub the can't compete in the championships. Their reasoning is that the primary mission of the CNS is to distribute wealth among the citizens and this furthers that agenda. 
+		
+	All of the citizen who has become cybervators up until now to prevent this citizens will be allowed to join the CNS. this is done to prevent them from joining the cybervators just so that they can join the CNS.		
+	
+- Adding insult to injury the CNS request that both ReNet and BluNet gives up one hub to the Cyvolters so they can compete. This angers Kyshumu who yells that citizens shouldn't compete he threatens to pull ReNet out of the CNS
+		
+	He suggest that it is too dangerous and not having armor they are more likely to be killed and that they can't regrow limbs like a real cybervator
+
+
+	
+### 9. Reward (Seizing The Sword)
+Episodes: 17
 		
 - Alex has been newly elected as the Chief of BluNet
 	
