@@ -1,48 +1,32 @@
 # Episode 7 Outline
 ## Act 1
-While Makkusu and Airiona is in cyberspace
+Just before Makkusu is defeat Airiona uses her chains to pull him to safety while taking a hit from Minia and yells at him to eject as he only has one cyber.beast she then loses her Cyber.Beast to save Makkusu
 
-Makkusu: what was that
-
-Airiona: are you watching the Championships
-
-Makkusu: no of course not
-
-*he hears another sound maybe a yell*
-
-Makkusu: what the heck sorry have to go
-
-Airiona: you are. Makkusu! if you leave now...
 ## Act 2
-Makkusu goes outside and finds a crater with an injured Minia
+1 week later
 
-Torrey Makkusu's CSD makes witty comment about him bring Minia in.
+After losing multiple matches Spike offers to make Makkusu a co-owner or employee since he will be able to pursue is passion in a more realistic manner. Just because it is not what does not matter as long as it still aligns with your vision it is still your passion. He tells him that from what he has seen that he is not cut out for the CNS that not being angle to synergize is to much of a disadvantage. That he has was a hinderance to Airiona as he has never seen her perform so poorly. She gave up her chance at the championships just to help him.
+
+Spike tells Makkusu that only the top broadcasting studio get to commentate the Championships each year
 		
-Minia: My name is...
+It would do wonders for our channels ratings to have former Cybervator on our team. It might be the boost we need to get chosen to broadcast the Championship
 
-Makkusu: My Nia
+Makkusu tells him that he is a white/green type and doesn't have the affinity to be a broadcaster? spike responds we could use a white type like you especially one so knowledgeable about... Makkusu cuts him off turning him down thinking he is on the path to becoming a cybervator(Makkusu later accepts the request  after the CNS championships but maybe it is to late). He tells him that he wants to succeed on his own merit. 
+		
+Spike tells him that he has tallents that should not be wasted and pasive agressivelly puts down cybervators in general pointing out the cons. he also tells him that he should  not put the on a pedstal like he is worshiping them.
+		
+He tells Makkusu to give it another shot but he shouldnt wait on an uncertainty forever
+Airiona contacts Makkusu asking if he is ready for a match against her someone else or to mine cyber.beast.
 
-Makkusu asks what happend Minia tells him. She insist that he does not tell anyone because if word gets out she will be in trouble
+Makkusu: but the first Championship match is about to start.
 
-Makkusu asks why Minias her is red despite her being a green and blue type cybervator
-
-Minia asks about his talking Cyber.Beast
+Airiona: You have yet to win a single match you dont have that luxury. If you're serious about being a cybervator now you need to take ever opportunity you can get. If you are not all in then I guess you're on your own.You need practice everyone else is watching this is the best time to mine cyber.beast thier will be no one else to compete with.
 
 ## Act 3
-Jax comes to get Minia
+Airiona and Makkusu are in cyberspace while the 22?.3 championships is going on 
 
-Jax(hugging Minia and maybe crying): I thought you were dead
+The announcer talks about how team Miniajax has not won a championship match since becoming a Cybervator and that she is a disappointment as a Xybrid Cybervator and will likely lose against Ace and Alex who might be retiring after this fight as he might become the next BluNet cheif.
+		
+The satellite in which Minia and Jax is fighting on malfunctions causing Minia to fall back down to earth
+		
 
-Makkusu has a look of suprise that Jax is not as tuff as he thought
-
-Makkusu is uncomfortable by thr sight of Jax crying. He intentionally disrubtes the mood.
-
-Makkusu: Hey Jax
-
-Makkusu tells Jax that he will get get stronger and next time they meet rather in cyberspace or the championships to not expect the same result as last time
-
-Jax holds back wipes his tears. scowls with confusion and Says dont make laugh or laughs.
-
-Jax: Lets go Minia
-
-After Minia leaves something is seen in the hole Minia left in the ground.

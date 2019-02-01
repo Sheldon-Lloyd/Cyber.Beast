@@ -66,30 +66,30 @@ Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makk
 
 			
 ### 2. Call To Adventure
-Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
+Episodes: [2](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-2), [3](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-3)
 	- Makkusu Applies to be a Cybervator
-### 3. Refusal Of The Call
-Episodes: [1](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-1)
-	- Makkusu is rejected and heads back home
+	- Makkusu heads back home
 	- Airiona is seen escaping the hub Makkusu was at
-### 4. Meeting The Mentor
-Episodes: 2, 3, 4
-- When Makkusu arrives home an injured Airiona is found at the foot of his door
-				
+	- When Makkusu arrives home an injured Airiona is found at the foot of his door
+
 - The reader sees the inside of Makkusu’s room which has posters and cybervator Fandom items everywhere
 - Makkusu uses this opportunity to test his Cyber.Beast controller using Airiona's Cyber.Beast 
 			
 - S/He talks about how citizens can’t become cybervators because they don't a tail which means they can synergize. With the device he made anyone will be able to use a Cyber.Beast in cyberspace even though they still won’t be able to become cybervators since they still won’t be able to go into BurstDrive
 			
 - Makkusu tends to the injured Airiona fixing her CSD which allows her to heal. she encourages him to try again and that she will give word to her superiors to give him a chance and that they will send him a Cyber.Beast so that he can test his device.
+
+### 3. Refusal Of The Call
+Episodes: [4](https://github.com/Sheldon-Lloyd/Cyber.Beast/tree/Cyber.Beast(Makkusu)/comic/makkusu/episode-4)
 		
 	
 - Makkusu is given a Cyber.Beast and invited to be a cybervator
 	- Makkusu takes the cyber.beast given to him by Xenos/Airiona inviting him to join the Cyvolters which he in excitement misread as cybervators
 	- Airiona sends the invite to which Xenos scolds her because he wanted to trick him into joining. As he know he would never join knowing that it is the Cyvolters. 
+	- The first person he tells is Spike
 	
 - Makkusu teams up with Airiona in cyberspace.
-	- When Makkusu logs into cyberspace it is recommended that
+	- When Makkusu logs into cyberspace it is recommended that he choose an alias in which he chooses Max
 	- Makkusu is about to mine cyber.beast or fight another cybervator alone He spots a girl that waves at him but he doesn't know who she is so he he casually ignores her
 	
 		Later he gets into some trouble and is saved by her. As she pick him  up and carries him out of harm's way
@@ -104,9 +104,14 @@ Episodes: 2, 3, 4
 
 		Girl: Don’t woorry I won't tell
 		
+### 4. Meeting The Mentor
+Episodes: 5
+
+Airiona gets back in contact with Makkusu and explains what they are about. Makkusu decides to join as he does not want to tell Spike the truth knowing that he will try to capitalize on this info by broadcasting it. 
+		
 ##	Act 2
 ### 5. Crossing The Threshold
-Episodes: 5, 6
+Episodes: 6, 7
 	
 - Makkusu and maybe Airiona lose their first ranked/unranked fight and prepare for a second. They lose to Jax who does not let up and Jax nearly takes his only cyber.beast. Makkusu ejects just in time An announcer is either surprised that he even has a fan and laughs at the fact the he only has one fan probably because ever saw his first fight in which he did terrible. Spike is that only fan
 - Spike wanted him to join his company which is secretly helping the Cyvolter organization.
