@@ -1,6 +1,6 @@
 ## Episode 4 Outline
 ## Act 1
-They realize that Makkusu does not know who they are.
+They realize that Makkusu might not not know who they are.
 
 Xenos: I guess it worked out in our favor after all
 
