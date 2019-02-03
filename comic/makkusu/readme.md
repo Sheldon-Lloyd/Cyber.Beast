@@ -374,6 +374,13 @@ Episodes: 20, 21
 ### 12. Return With The Elixir
 Episodes: 22
 - Makkusu uses his trump card utilizing the energy bean he ate earlier this allows him to partially synergize with the cost of depleting all of his energy with the risk of killing him.
+
+- Knilla allow Makkusu to ride after Ace cites what she said earlier
+	Makkusu ride knilla then jumps off hope the momentum from jax giving chase would create an opening.
+
+Makkusu acts as if he will slide under Jax who punches the ground breaking it sending debris upwards which makkusu rides the debris allowing him to dos an aerial attack.
+
+running circles around Makkusu does a spend being slower this gives him more mobility allowing ace to shot and score. he tries a second time thinking he has the upper hand but Jax is ready for it
 	
 - In the final seconds of the match amidst a comeback
 
