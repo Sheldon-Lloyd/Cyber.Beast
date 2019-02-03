@@ -373,14 +373,27 @@ Episodes: 20, 21
 	Harmony goes from red to blue after being calmed or Xenos take Blue
 ### 12. Return With The Elixir
 Episodes: 22
-- Makkusu uses his trump card utilizing the energy bean he ate earlier this allows him to partially synergize with the cost of depleting all of his energy with the risk of killing him.
-
-- Knilla allow Makkusu to ride after Ace cites what she said earlier
-	Makkusu ride knilla then jumps off hope the momentum from jax giving chase would create an opening.
+running circles around Makkusu does a spend being slower this gives him more mobility allowing ace to shot and score. he tries a second time thinking he has the upper hand but Jax is ready for it
 
 Makkusu acts as if he will slide under Jax who punches the ground breaking it sending debris upwards which makkusu rides the debris allowing him to dos an aerial attack.
 
-running circles around Makkusu does a spend being slower this gives him more mobility allowing ace to shot and score. he tries a second time thinking he has the upper hand but Jax is ready for it
+- Knilla allow Makkusu to ride after Ace cites what she said earlier
+	Knilla start runing and says Makkusu(who turns around)! jump on.
+
+	Makkusu takes he lance as she runs through Jax Makkusu opens the barrier and they are able to collect points
+
+	Makkusu ride Knilla again this time he jumps with her lance off hoping the momentum from Jax giving chase would create an opening. However he is shot at instead. The cybervator shots only at his feet but this enough to send a citizen like him flying backwards.
+
+	Makkusu starts to question why everyone is afraid to hit him. he then questions why he himself is upset by this as it was the plan after all. He states he can once again take advantage of the debris created by the blast.
+
+	using the cover from the debris he closes while typing telling Ace/Minia when and where to fire/attack at in creating an opening allowing Minia/Ace to get points
+
+- Makkusu uses his trump card utilizing the energy bean he ate earlier this allows him to partially synergize with the cost of depleting all of his energy with the risk of killing him.
+
+
+
+
+
 	
 - In the final seconds of the match amidst a comeback
 
