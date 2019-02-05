@@ -139,6 +139,10 @@ Episodes: 7, 8, 9, 10, 11, 12
 - Makkusu has customized his Cyber.Beast and CSD to have a talking Ai which he calls Torrey
 	
 - Mini falls in the backyard of Makkusu
+
+	Makkusu goes to call for help but remembers that Airiona says that it takes hours to fix CSDs. And that if he does not fix it soon she might never recover or worse dies. 
+	
+	After Minia wakes up she ask why he did not call for help. He says that once help arrived that there is no way they will let him repair it. Tells him that being a Xybrid she has two CSDs
 		
 - Makkusu tells a worried Spike what happen
 		
@@ -378,7 +382,7 @@ running circles around Makkusu does a spend being slower this gives him more mob
 Makkusu acts as if he will slide under Jax who punches the ground breaking it sending debris upwards which makkusu rides the debris allowing him to dos an aerial attack.
 
 - Knilla allow Makkusu to ride after Ace cites what she said earlier
-	Knilla start runing and says Makkusu(who turns around)! jump on.
+	Knilla start running and says Makkusu(who turns around)! jump on.
 
 	Makkusu takes he lance as she runs through Jax Makkusu opens the barrier and they are able to collect points
 
