@@ -1,11 +1,11 @@
 # Page 8
 ## Panel 1
-Airiona's arm is regenerating    
+Airiona's arm begins to regenerate
 		
     Airiona: (You know) You're pretty smart 
 
 ## Panel 2
-Airiona's arm is regeneration is complete    
+Airiona's arm is regeneration is complete and she test and moves her new hand
   
     Airiona: And not just because you were able to fix my CSD so quickly
 			

@@ -15,5 +15,6 @@ Airiona inspects her CSD
   Airiona: Already/Really. It usually takes hours to fix these things
 
 ## Panel 5
-Airiona's arm begins to regenerate
+Airiona Synergizes with her Cyber.Beast
+
 Airiona's CSD(red alert): \*ding ding\* distress signal sent help is on the way
