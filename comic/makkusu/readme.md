@@ -313,7 +313,7 @@ Episodes: 18, 19
 	
 	With Makkusu joining ReNet Kyshumu tells the CNS/NRA that no Citizen should be allowed to compete in the CNS.
 
-	Alex makes a ultimatum suggesting that a citizen is unlikely to win the championships--If Makkusu loses no Citizen will be allowed to compete in the CNS again.
+	The CNS' Yaharia  makes a ultimatum suggesting that a citizen is unlikely to win the championships--If Makkusu loses no Citizen will be allowed to compete in the CNS again.
 
 	Kyshumu(angry):Fine!
 		
