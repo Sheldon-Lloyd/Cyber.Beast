@@ -6,24 +6,6 @@ Makkusu asks Airiona what happened
 Makkusu helps Airiona into his house to fix her CSD
 
 - Airiona notices that Makkusu is a big CNS fan by all stuff in his home/room
-  
-  Airiona: So I see watch a lot of the CNS League. 
-  
-  She looks around
-  
-  Airiona: You're a fan of the ___ BluNet team
-  
-  Makkusu: well I am more of a fan of what ever team Xenos 
-  
-  Airiona: is he is the one that inspired you to become a Cybervator
-  
-  Makkusu: wait how did you know
-  
-  Airiona: oh um well
-  
-  Makkusu(with joking smile): have you been stalking me
-  
-  Airiona(she smiles with shifty eyes): Ha ha ha ye--a
 
 - Makkusu Decides to try to sneak and use Airiona Cyber.Beast/CSD to test his Cyber.Beast Controller with out her permission. Airiona comes up behind him creating the possibility of punishment
 			
