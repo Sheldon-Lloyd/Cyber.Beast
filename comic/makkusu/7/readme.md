@@ -13,9 +13,9 @@ It would do wonders for our channels ratings to have former Cybervator on our te
 
 Makkusu tells him that he is a white/green type and doesn't have the affinity to be a broadcaster? spike responds we could use a white type like you especially one so knowledgeable about... Makkusu cuts him off turning him down thinking he is on the path to becoming a cybervator(Makkusu later accepts the request  after the CNS championships but maybe it is to late). He tells him that he wants to succeed on his own merit. 
 		
-Spike tells him that he has tallents that should not be wasted and pasive agressivelly puts down cybervators in general pointing out the cons. he also tells him that he should  not put the on a pedstal like he is worshiping them.
+Spike tells him that he has talents that should not be wasted and passive aggressively puts down cybervators in general pointing out the cons. he also tells him that he should  not put the on a pedestal like he is worshiping them.
 		
-He tells Makkusu to give it another shot but he shouldnt wait on an uncertainty forever
+He tells Makkusu to give it another shot but he shouldn't wait on an uncertainty forever
 Airiona contacts Makkusu asking if he is ready for a match against her someone else or to mine cyber.beast.
 
 Makkusu: but the first Championship match is about to start.
@@ -25,7 +25,7 @@ Airiona: You have yet to win a single match you dont have that luxury. If you're
 ## Act 3
 Airiona and Makkusu are in cyberspace while the 22?.3 championships is going on 
 
-The announcer talks about how team Miniajax has not won a championship match since becoming a Cybervator and that she is a disappointment as a Xybrid Cybervator and will likely lose against Ace and Alex who might be retiring after this fight as he might become the next BluNet cheif.
+The announcer talks about how team Miniajax has not won a championship match since becoming a Cybervator and that she is a disappointment as a Xybrid Cybervator and will likely lose against Ace and Alex who might be retiring after this fight as he might become the next BluNet chief.
 		
 The satellite in which Minia and Jax is fighting on malfunctions causing Minia to fall back down to earth
 		
