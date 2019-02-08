@@ -1,10 +1,10 @@
 # Episode 3 Outline
 ## Act 1
 While working Makkusu is notified that Xenos is about to have a match he stops what he is doing to watch it
-## Act 2
 Makkusu watches a ranked Cyberspace CNS match with Xenos and Airiona through Spikes commentary feed 
 
-Spike: Welcome Spike.TV I'm you're host Spike along with my color commentator Akia
+## Act 2
+Xenos and Airiona completes their match
 
 After the match Airiona and Xenos is shown discussing the possibility of Makkusu joining the Cyvolters
 

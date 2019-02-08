@@ -302,7 +302,7 @@ When Airiona and Minia take off their cloaks leaving their one piece backless ou
 
 Airiona has had multiple wounds to her body most gained through her training to become a Cybervator fighting until all of her energy has been depleted in order to climb the ranks as quickly as possible, unlike the pristine MiNia who had everything handed to her who will quit at the halfway mark of her energy level. 
 
-After seeing both the backs of seeing the backs of both Airiona and Minia Makkusu looks confused Xenos sees him looking maybe makes a quip then proceeds to explain the reason that Aironia has so many scars compared to Everyone else and why Minia has none
+After seeing both seeing the backs of both Airiona and Minia Makkusu looks confused Xenos sees him looking maybe makes a quip then proceeds to explain the reason that Aironia has so many scars compared to Everyone else and why Minia has none
 
 Airiona's flashback shows parents yell at the kids encouraging to beat up the other kids “Get him, come on!"
 

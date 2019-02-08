@@ -16,7 +16,7 @@ Makkusu: yeah sure thing I'll email it to you.
 
 Airiona: Thanks
 
-Makkusu: You still remember me
+Makkusu: You still remember me!?
 
 Xenos (smirks): lets go Airiona
 

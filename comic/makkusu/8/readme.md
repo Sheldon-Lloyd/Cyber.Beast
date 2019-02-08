@@ -12,7 +12,7 @@ Makkusu: no of course not
 
 Makkusu: what the heck sorry have to go
 
-Airiona: you are. Makkusu! if you leave now...
+Airiona: you are. You're only cheating your self Makkusu! if you leave now...
 
 Makkusu goes outside and finds a crater with an injured Minia
 
