@@ -265,7 +265,7 @@ Episodes: 17
 		
 	Makkusu: I call it an Elimiter. Normally a cyber.beast would be able to synergize with a cybervator thanks to thier tail. Since everybody including cybervators evolved from plants I used a plant to act as the cyber.beast[1](https://www.engadget.com/2018/12/05/mit-researchers-create-a-robot-houseplant-that-moves-on-its-own/),[2]( https://www.theverge.com/2018/7/12/17563688/robot-plant-hybrid-hexa-vincross-succulent ). 
 		
-	:so you are basically sending commands to a berserk cyber.beast a green/black cybervator. So it basically makes you like a Xybrid. 
+	:so you are basically sending commands to a berserk cyber.beast like a green/black cybervator. So it basically makes you like a Xybrid. 
 		other.person: what how.
 		
 	Max: < Well you see I can also hyperlink with other cybervator see what they are thinking and send commands as well. >
@@ -298,10 +298,18 @@ Episodes: 17
 		
 - Harmony attacks Makkusu who tries to introduce his self a nearly kills him but she stops which surprises Ace
 
+When Airiona and Minia take off their cloaks leaving their one piece backless outfit their scar can be compared by the reader
+
+Airiona has had multiple wounds to her body most gained through her training to become a Cybervator fighting until all of her energy has been depleted in order to climb the ranks as quickly as possible, unlike the pristine MiNia who had everything handed to her who will quit at the halfway mark of her energy level. 
+
+After seeing both the backs of seeing the backs of both Airiona and Minia Makkusu looks confused Xenos sees him looking maybe makes a quip then proceeds to explain the reason that Aironia has so many scars compared to Everyone else and why Minia has none
+
+Airiona's flashback shows parents yell at the kids encouraging to beat up the other kids “Get him, come on!"
+
 ### 10. The Road Back
 Episodes: 18, 19
 
-- Makkusu is fight on Akia's favorite Cybervators team
+- Makkusu is fighting on Akia's favorite Cybervators team
 
 	Makkusu runs into Akia before his championship match.
 
