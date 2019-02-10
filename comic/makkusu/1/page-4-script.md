@@ -2,7 +2,7 @@
 
 *Xenos loses the fight*
 
-Commentator: And there you have it folks ReNet/BluNet is the world champions
+Commentator: And there you have it folks ReNet is the world champions
 
 *The audience can be heard cheering while Makkusu's head is down in disappointment*
 

@@ -1,9 +1,7 @@
 # Page 5
 
 ## Pane l
-Xenos is giving an interview with a crowd surrounding them. Makkusu is seen squeezing through
-
-Xenos: well we gave it our best effort but it just wasn't enough
+Kyshumu is giving an interview with a crowd surrounding them. Makkusu is seen squeezing through
 
 ## Panel 2 overlay top right side
 **Makkusu:** Hey mister 

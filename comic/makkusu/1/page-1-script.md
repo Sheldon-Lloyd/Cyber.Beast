@@ -1,8 +1,8 @@
 # Page 1
 ## Panel 1  (full page width 2/3rd height)
-*The stadium/hub in which the match is being fought in is shown from above*
+*The stadium/hub in which a match between Xenos and Kyshumu is being fought in is shown from above*
 
-+Commentator: ReNet/BluNet is in the lead but Even with only seconds left in this match it is still to close to call
++Commentator: ReNet is in the lead but Even with only seconds left in this match it is still to close to call
 
 ## Panel 2 (1/3rd height and width)
 

@@ -4,7 +4,7 @@ Pages: 1, 2, 3, 4, 5, 6, 7
 
 The ending of CNS Championships is shown. An 8 year old Makkusu is shown watching as a fan
 
-After the Match which Xenos loses Xenos has an interview but is interrupted by Makkusu
+After the Match between Xenos and Kyshumu which Xenos loses Kyshumu has an interview with maybe a young Spike but is interrupted by Makkusu.
 
 ## Act 2
 Pages: 8, 9, 10, 11, 12, 13, 14, 15
