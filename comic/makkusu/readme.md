@@ -283,7 +283,7 @@ Episodes: 17
 	| Red      | Harmony | Aarock       |       |        |
 	| Green    | Airiona | Makkusu      |       |        |
 	| Blue     | Minia   | Xenos        |       |        |
-	| Black    | Knilla  | Avis?/Echo   |       |        |
+	| Black    | Knilla  | Avis         |       |        |
 	| White    | Ace     | Avis/Makkusu |       |        |	
 	
 - Jax's team
@@ -370,6 +370,8 @@ Episodes: 18, 19
 
 		
 	 - They begin to make/orchestrate a historic comeback but their efforts fall short as the deficit Minia creating was to great to overcome
+
+	 - Yaharia takes notice of Makkusu as she realizes that he is using ancient tech that was locked up and hidden centuries ago
 ## Act 3
 ### 11. Resurrection
 Episodes: 20, 21
