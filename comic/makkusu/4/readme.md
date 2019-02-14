@@ -34,7 +34,7 @@ Makkusu: can you believe it I'm actually going to become a Cybervator
 
 After hanging up Makkusu pumps his fist in celebratory fashion
 
-Makkusu: Yeees!/Oh yeah!
+Makkusu: Yeesss!/Oh yeah!
 
 ## Act 2
 At first Makkusu tries to fight another cybervator but is quickly turned down by the Cybervator he tries to fight
