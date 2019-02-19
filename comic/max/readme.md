@@ -27,7 +27,9 @@ All citizens are allow to compete in cyberspace and are allowed to be cornermen 
 
 At one point Max and Jax finds a struggling Minia in cyberspace saving from a cyber.beast. Jax tells her is hybrids has to stick together after he carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. (maybe use this scene as a flashback)
 
-Minia Makes the team with Max and Jax
+Minia makes the team with Max and Jax
+
+Minia protects a bullied Max maybe as a flashback as she reflects back on far he has come along
 
 ### 2. Call To Adventure
 Episodes: 
@@ -78,6 +80,7 @@ Episodes:
 
 ### 10. The Road Back
 Episodes: 
+Max makes it to the final round of the championship
 
 ## Act 3
 ### 11. Resurrection
