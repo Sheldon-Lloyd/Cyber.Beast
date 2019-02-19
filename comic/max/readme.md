@@ -25,7 +25,7 @@ Everyone tail him it is virtually imposible for him to become a cybervator he sa
 
 All citizens are allow to compete in cyberspace and are allowed to be cornermen if they are good enough. They tend to avoid other cybervator in cyberspace but not max who actively challenges them. 
 
-At one point Max and Jax finds a struggling Minia in cyberspace saving from a cyber.beast. Jax tells her is hybrids has to stick together after he carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke
+At one point Max and Jax finds a struggling Minia in cyberspace saving from a cyber.beast. Jax tells her is hybrids has to stick together after he carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. (maybe use this scene as a flashback)
 
 Minia Makes the team with Max and Jax
 
@@ -44,14 +44,19 @@ Jax tells Makkusu that it is to dangerous for him to become a Cybervator and tha
 Jax tries to stop Max by fighting him in Cyberspace to destory his Cyber.Beast
 
 Jax tries stops Max from becoming a Cybervator by realeasing him
-Jax says that he refuses to contribute to him getting his self killed. Jax tells Leona to release Max. She does this may using her fathers credentials
+
+The commentaors say they did the right thing 
+
+Jax says that he refuses to contribute to him getting his self killed. Jax tells Leona to release Max. She does this maybe by using her fathers credentials
 
 ### 4. Meeting The Mentor
 Episodes: 
 
 Max joins Airiona and Xenos' team
 
-##	Act 2
+Xenos' team is called irrsponsible for doing it as he could get killed out there and hope to never see him out there again
+
+## Act 2
 ### 5. Crossing The Threshold
 Episodes:
 
