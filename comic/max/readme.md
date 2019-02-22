@@ -54,7 +54,7 @@ Jax says that he refuses to contribute to him getting his self killed. Jax tells
 ### 4. Meeting The Mentor
 Episodes: 
 
-Max joins Airiona and Xenos' team
+Max is givin, finds or makes a new cyber.beast and joins Airiona and Xenos' team
 
 Xenos' team is called irrsponsible for doing it as he could get killed out there and hope to never see him out there again
 
@@ -62,29 +62,40 @@ Xenos' team is called irrsponsible for doing it as he could get killed out there
 ### 5. Crossing The Threshold
 Episodes:
 
-Jax again tries to stop Max from becoming a Cybervator by taking away his one and only cyber.beast Max tells him that if he loses he will just get another one Jax says And I will take as many times as I  needs to
+Max fights Airiona outside of cyberspace Xeno/Airiona tells Max if he can beat her he can join/fight in the next match
 		
 ### 6. Tests, Allies, Enemies
 Episodes:
 
+Minia is traded to Max's team
 		
 ### 7. Approach To The Inmost Cave
 Episodes: 
+Max prepare for the championship both training stratigizing and developing more tech.
 	
 ### 8. Ordeal
 Episodes: 16
 
+Jax again tries to stop Max from becoming a Cybervator by taking away his one and only cyber.beast Max tells him that if he loses he will just get another one Jax says And I will take as many times as I  needs to
 	
 ### 9. Reward (Seizing The Sword)
-Episodes: 
-
-### 10. The Road Back
 Episodes: 
 Max makes it to the final round of the championship
 
 ## Act 3
+
+### 10. The Road Back
+Episodes: 
+Max fights Jax in the championships
+
+Max wipes his face with tha back of his hand and tells Jax "You're holding back on me arent you"
+
 ### 11. Resurrection
 Episodes: 
 
+Max wins the championships
+
 ### 12. Return With The Elixir
 Episodes:
+
+After Makkusu wins more citizens have become insprired that they too can have equal power to that of cybervators
