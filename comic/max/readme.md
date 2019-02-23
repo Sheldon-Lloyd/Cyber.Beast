@@ -4,7 +4,7 @@
 *subtheme: competition vs cooperation*
 
 ## Plot
-This is a united world in which there is no longer any wars. Peace is maintain by throgh the CNS league -- a sport in which Cybervator fight eachother harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
+This is a united world in which there is no longer any wars. Peace is maintain by throgh the CNS league -- a sport in which Cybervator fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
 
 Max participates in the CNS as well but as a crewman. His resposibilities is to aid the Cyebrvators that compete in this league. However this is not enough for him. Max wants to be a fighter as well the only problem is that Max he doesn't have a tail.
 
