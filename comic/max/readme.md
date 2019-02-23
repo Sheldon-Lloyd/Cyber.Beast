@@ -3,6 +3,13 @@
 **The role sports play in society**
 *subtheme: competition vs cooperation*
 
+## Plot
+This is a united world in which there is no longer any wars. Peace is maintain by throgh the CNS league -- a sport in which Cybervator fight eachother harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
+
+Max participates in the CNS as well but as a crewman. His resposibilities is to aid the Cyebrvators that compete in this league. However this is not enough for him. Max wants to be a fighter as well the only problem is that Max he doesn't have a tail.
+
+Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is impossible to be a Cybervator. However that all changes when he stumbles across an acient technology hidden away along with all of its secrets.
+
 ## Brainstorm
 - Episodes: 22-27
 - Roles
@@ -54,7 +61,9 @@ After Max is released spike uses this opportunity to persuaded him to join the R
 ### 4. Meeting The Mentor
 Episodes: 
 
-Max is givin, finds or makes a new cyber.beast and joins Airiona and Xenos' team
+Airiona gives Max a new Cyber.Beast supplied by Spike. Max recognizes it as the Greater honeyguide--one of the two Cyber.Beast he and spike found. 
+
+Max joins Airiona and Xenos' team.
 
 ## Act 2
 ### 5. Crossing The Threshold
