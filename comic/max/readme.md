@@ -30,6 +30,8 @@ All citizens are allowed to compete in cyberspace and are allowed to be cornerme
 ### 2. Call To Adventure
 Episodes: 
 
+Spike calls Max to show him ancient tech that he found and goes on about the right full place of citzens. Max does not want spike to tell others about the secrets.
+
 Makkusu makes the team as a cybervator but is not allowed to fight they are only allows refuel and some give advice to fellow cybervator between rounds
 
 Because of what commentators call neptunism Max is on Leona/Tomasina's team as a center. this however means they don't have a backup mainly because they rarely get injured.
@@ -47,11 +49,12 @@ The commentaors say they did the right thing
 
 Jax says that he refuses to contribute to him getting his self killed. Jax tells Leona to release Max. She does this maybe by using her fathers credentials
 
+After Max is released spike uses this opportunity to persuaded him to join the Revolution he is starting Max tells hat it is not a good idea and that he will go about it the right way.
+
 ### 4. Meeting The Mentor
 Episodes: 
 
 Max is givin, finds or makes a new cyber.beast and joins Airiona and Xenos' team
-
 
 ## Act 2
 ### 5. Crossing The Threshold
@@ -74,16 +77,20 @@ Airiona wonders why he is calls Minia My Nia
 (scene as a flashback){
 At one point Max and Jax finds a struggling Minia in cyberspace saving from a cyber.beast. Jax tells her is hybrids has to stick together after he carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. 
 }
+
+The cyvolters have revealed their selves and has been causing trouble with the new tech that Max created
 		
 ### 7. Approach To The Inmost Cave
 Episodes: 
 
 Max prepares for the championship training, stratigizing, and developing more tech.
+
+Max thinks about spike he starts to contemplate the potential ramifications of create this technology
 	
 ### 8. Ordeal, Death, Rebirth
 Episodes: 
 
-Jax again tries to stop Max from becoming a Cybervator by taking away his one and only cyber.beast.
+Just before Max has a chance to test his tech Jax again tries to stop Max from becoming a Cybervator by taking away his one and only cyber.beast.
 
 Max wins taking his old cyber.beast back may jax gives it to him because he wants Max at his best or because his mother makes him
 
@@ -114,3 +121,5 @@ Max wins the championships by using yet another technology he created allowing h
 Episodes:
 
 After Makkusu wins more citizens have become insprired that they too can have equal power to that of cybervators
+
+Spike is shown doing something ominous.
