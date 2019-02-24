@@ -7,7 +7,6 @@
 - Episodes: 22-27
 - Roles
   - Broadcaster/Commentator: Spike, Makkusu?
-  - Handlers/Cornerman/crew: Makkusu?
   - Fan: Makkusu
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
