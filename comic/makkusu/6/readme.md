@@ -2,9 +2,11 @@
 ## Act 1
 The Cyvolter has established a new network within the CNS called CyTek/CyNet although they don't have a hub they still distribute cyber.beast to it's members any one that is apart of the company is given a Cyber.Beast. They declare their self a citizens league The public may or might know at this point that is a Cyvolter organization.
 
-Eclipse and Makkusu are the first members.
+Speeding Bullet and Makkusu are the first members.
 
-Airiona is now going by the name Eclipse to mask her identity
+Airiona is now going by the name Speeding Bullet to mask her identity
+
+Airiona: call me Speeding Bullet
 
 Time has passed after mining cyber.beast Airiona and unranked Makkusu is ready for their first match against Jax and Minia
 
