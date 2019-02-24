@@ -11,6 +11,12 @@
   - Fan: Makkusu
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
+
+  - Speeding Bullet is discovered to be Airiona during the tournament a fight ensues between Airiona and Kyshumu. Airiona is defeated Kyshumu.
+
+	Harmony is enraged by this and charges in to attack Kyshumu. Kyshumu thinks she is trying to help him and tells her to stand down that he has everything in control Avis realizes that she is not going after Airiona but rather Kyshumu he tells her to stop and jumps in front with his arms open. She barely moves her hand out of the way but it is not enough as the energy from the hand is enough to obliterate the left side of his head. She apologizes saying that she tried to stop or avoid him but could not. 
+	
+	This makes things worst as she goes berserk and Kyshumu and Xenos must work together Harmony to stop her.
  
 - This is Xenos' last season before he announces his retirement
 	
