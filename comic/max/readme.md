@@ -11,7 +11,7 @@ Max participates in the CNS as well but as a crewman. His resposibilities is to 
 Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is impossible to be a Cybervator. However that all changes when he stumbles across an acient technology hidden away along with all of its secrets.
 
 ## Brainstorm
-- Episodes: 22-27
+- Episodes: 52
 - Roles
   - Broadcaster/Commentator: Akia?, Spike
   - Handlers/Cornerman/crew: Akia?, Makkusu
@@ -22,7 +22,7 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 
 ## Act 1
 ### 1. Ordinary World
-Episodes: 
+Episodes: 1, 2
 
 Max wants to be a cybervator like everyone else
 
@@ -35,7 +35,7 @@ All citizens are allowed to compete in cyberspace and are allowed to be cornerme
 
 
 ### 2. Call To Adventure
-Episodes: 
+Episodes: 3, 4
 
 Spike calls Max to show him ancient tech that he found and goes on about the right full place of citzens. Max does not want spike to tell others about the secrets.
 
@@ -44,7 +44,7 @@ Makkusu makes the team as a cybervator but is not allowed to fight they are only
 Because of what commentators call neptunism Max is on Leona/Tomasina's team as a center. this however means they don't have a backup mainly because they rarely get injured.
 
 ### 3. Refusal Of The Call
-Episodes:
+Episodes: 5, 6
 
 Jax tells Makkusu that it is to dangerous for him to become a Cybervator and that he will not allow it
 
@@ -59,45 +59,75 @@ Jax says that he refuses to contribute to him getting his self killed. Jax tells
 After Max is released spike uses this opportunity to persuaded him to join the Revolution he is starting Max tells hat it is not a good idea and that he will go about it the right way.
 
 ### 4. Meeting The Mentor
-Episodes: 
+Episodes: 7, 8
 
 Airiona gives Max a new Cyber.Beast supplied by Spike. Max recognizes it as the Greater honeyguide--one of the two Cyber.Beast he and spike found. 
 
 Max joins Airiona and Xenos' team.
 
-## Act 2
 ### 5. Crossing The Threshold
-Episodes:
+Episodes: 9, 10, 11, 12
 
 Xenos' team is called irrsponsible for doing it as he could get killed out there and hope to never see him out there again
 
 Dispite being signed by Xenos' team he is still sidelined
 
 Max fights Airiona outside of cyberspace Xeno/Airiona tells Max if he can beat her he can join/fight in the next match
+
+## Act 2
 		
 ### 6. Tests, Allies, Enemies
-Episodes:
+Episodes: 10, 11, 12, 13, 14, 15, 16, 17
 
 Minia is traded to Max's team
 
-Minia protects a bullied Max maybe as a flashback as she reflects back on far he has come along
-
 Airiona wonders why he is calls Minia My Nia
+
 (scene as a flashback){
 At one point Max and Jax finds a struggling Minia in cyberspace saving from a cyber.beast. Jax tells her is hybrids has to stick together after he carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. 
 }
 
 The cyvolters have revealed their selves and has been causing trouble with the new tech that Max created
+
+A crime is being commited Minia telports to arrest the crimmal to her surprise they arer using the weapons Max has be using
+
+She is ganged up on by these Cyvolters Thunora and Akia some are even Cybervators which include Airiona and Carla
+
+Minia has no energy left just before Airiona goes to kill her Max joins in to help
+
+Airiona stops her attack short
+
+Airiona: Max!
+
+Max is at first confused but makes a quip
+
+Max(smiles): I guess I'm famous/admired even by other Cybervators
+
+Minia thinks about has the tables has turned
+
+(flashback scene){
+Minia protects a bullied Max who was once fat and bald as a  as she reflects back on far he has come along
+}
+
+Soon after Jax apears to help as well
+
+Max and Jax fight together but sepratly as neither wants help from the other
+
+Max is surprised to find that Airiona is a Cyvolter and stops Jax from finishing her or cuting her tail off leting her escape. Jax is enraged by this Max exclaims that she is not a bad. Jax Responds that she tried to kill Minia how is she not a bad guy
 		
 ### 7. Approach To The Inmost Cave
-Episodes: 
+Episodes: 19, 20, 21, 22
+
+Max asks Spike if he was behind the recent attacks he tells him "No of course not, I told you the Citizens will eventually rise up to take their right full place as the masters of Cybervators".
 
 Max prepares for the championship training, stratigizing, and developing more tech.
 
 Max thinks about spike he starts to contemplate the potential ramifications of create this technology
+
+Xenos tells him that the citizens ned him now more than ever as he must lead them so he can no longer turn back
 	
 ### 8. Ordeal, Death, Rebirth
-Episodes: 
+Episodes: 23, 24, 25, 26, 27, 28, 29, 30
 
 Just before Max has a chance to test his tech Jax again tries to stop Max from becoming a Cybervator by taking away his one and only cyber.beast.
 
@@ -114,7 +144,7 @@ Max fights Jax in the championships
 Max wipes his face with tha back of his hand and tells Jax "You're holding back on me arent you"
 
 ### 9. Reward (Seizing The Sword)
-Episodes: 
+Episodes: 31, 32, 33, 34
 Max wins the championships by using yet another technology he created allowing him to fight in a burstDrive like state
 
 After Makkusu wins more citizens have become insprired that they too can have equal power to that of cybervators
@@ -124,17 +154,29 @@ Spike is shown doing something ominous.
 ## Act 3
 
 ### 10. The Road Back
-Episodes: 
+Episodes: 35, 36, 37, 39, 39, 40, 41, 42
 
-The Spike lead cyvolvter reveal their self as spike starts a war to take back control of cybervators
+The Spike reveals his self as the leader of the cyvolvters and starts a war to take back control of cybervators
 
-Bursun show everyone that Max to is a Cybervator by msking him go berserk after semingly killing Minia/Xenos
+Max and Jax team back up to fight Spike by fusing together
+
+It turns out the Cyber.Beast that Max had been using was fueling Bursun so the he can be awakened
+
+------------------ or ---------------
+
+Spike uses his body as host to Bursun or tries to use Bursuns Cyber.Beast after fail many times before only to have Bursu take full contol.
+
+Just as looks like Max/Jax will defeat Spike Bursun takes full control and maybe even kill the body of his host state how he wouldn't shut up.
+
+Bursun makes a commentary on the state of the world even pointing out Max parading around as a citizen tricking everyone and kills Xenos to suck the energy from his tail.
+
+Bursun/Spike shows everyone that Max to is a Cybervator by making him go berserk after semingly killing Minia/Xenos
 
 ### 11. Resurrection
-Episodes: 
-Max and Jax team back up to defeat Bursun
+Episodes: 43, 44, 45, 46, 47, 48, 49, 50
+Max fights and Defeats Bursun by using his white hole abilty or by using the Cyber.Beast of every one else but unlike Bursun he does not forcefully take their power
 
 ### 12. Return With The Elixir
-Episodes:
-
+Episodes: 51, 52
+The world has returned to normal but citizens can now compete in the CNS on equal footing with Cybervators
 
