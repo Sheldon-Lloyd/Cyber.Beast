@@ -19,6 +19,7 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
 
+- Max learns about limiters and realizes that neck/head band
 
 ## Act 1
 ### 1. Ordinary World
@@ -81,19 +82,23 @@ Max is now the teams Sniper/Marksmen Ace the Front Guard Knilla is the Rear Guar
 ### 6. Tests, Allies, Enemies
 Episodes: 10, 11, 12, 13, 14, 15, 16, 17
 
+Spike calls MAx to the cave again to show him more items or information that he discovered
+
+After words Spike can nologer restrain his self and releases the information to the public
+
 Minia is traded to Max's team
 
 Airiona wonders why he is calls Minia My Nia
 
 (scene as a flashback){
-At one point Max and Jax finds a struggling Minia in cyberspace saving from a cyber.beast. Jax tells her is hybrids has to stick together after he carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. 
+At one point Max and Jax finds a struggling Minia in cyberspace saving from a Cyber.Beast. Jax tells her is hybrids has to stick together after he carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. 
 }
 
 The cyvolters have revealed their selves and has been causing trouble with the new tech that Max created
 
 A crime is being commited Minia telports to arrest the crimmal to her surprise they arer using the weapons Max has be using
 
-She is ganged up on by these Cyvolters Thunora and Akia some are even Cybervators which include Airiona and Carla
+She is ganged up on by these Cyvolters Speeding Bullet, Thunora, and Akia using tech Max created some are even Cybervators which include Airiona, Aarock, and Carla
 
 Minia has no energy left just before Airiona goes to kill her Max joins in to help
 
@@ -113,14 +118,16 @@ Minia protects a bullied Max who was once fat and bald as a  as she reflects bac
 
 Soon after Jax apears to help as well
 
-Max and Jax fight together but sepratly as neither wants help from the other
+Max and Jax fight together but separatly as neither wants help from the other
 
 Max is surprised to find that Airiona is a Cyvolter and stops Jax from finishing her or cuting her tail off leting her escape. Jax is enraged by this Max exclaims that she is not a bad. Jax Responds that she tried to kill Minia how is she not a bad guy
 		
 ### 7. Approach To The Inmost Cave
 Episodes: 19, 20, 21, 22
 
-Max asks Spike if he was behind the recent attacks he tells him "No of course not, I told you the Citizens will eventually rise up to take their right full place as the masters of Cybervators".
+Max again vist the cave in which he found the CyTek but this time without Spike and discovers missing/tampered items.
+
+Max asks Spike if he was behind the recent attacks he tells him "No of course not, all I did was provide the truth. I told you the Citizens will eventually rise up to take their right full place as the masters of Cybervators."
 
 Max prepares for the championship training, stratigizing, and developing more tech.
 
@@ -160,6 +167,8 @@ Spike is shown doing something ominous.
 ### 10. The Road Back
 Episodes: 35, 36, 37, 39, 39, 40, 41, 42
 
+Max has been unknowingly aiding the Cyvolters as he the Cyber.Beast he was using was connected to Spike so all of the satellites and/or Hub he won during the tournement belongs to Spike and the Cyvolters now.
+
 The Spike reveals his self as the leader of the cyvolvters and starts a war to take back control of cybervators
 
 Max and Jax team back up to fight Spike by fusing together
@@ -178,6 +187,9 @@ Bursun/Spike shows everyone that Max to is a Cybervator by making him go berserk
 
 ### 11. Resurrection
 Episodes: 43, 44, 45, 46, 47, 48, 49, 50
+
+Upon coming out of his Berserk state Torey/Mack(he vibrates into their universe and invades their dream) teaches Max about some or all the history of the Xybrids.
+
 Max fights and Defeats Bursun by using his white hole abilty or by using the Cyber.Beast of every one else but unlike Bursun he does not forcefully take their power
 
 ### 12. Return With The Elixir
