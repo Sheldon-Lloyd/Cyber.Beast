@@ -48,7 +48,7 @@ Episodes:
 
 Jax tells Makkusu that it is to dangerous for him to become a Cybervator and that he will not allow it
 
-Jax tries to stop Max by fighting him in Cyberspace to destory his Cyber.Beast Max tells him that if he loses he will just get another one Jax says And I will take as many times as I  needs to.
+Jax tries to stop Max by fighting him in Cyberspace to destory his Cyber.Beast Max tells him that if he loses he will just get another one Jax says And I will take as many times as I needs to.
 
 Jax tries stops Max from becoming a Cybervator by realeasing him
 
@@ -106,29 +106,35 @@ Max wins taking his old cyber.beast back may jax gives it to him because he want
 Max realizes that he can't keep up and will not beat Jax in his current state and is on the verge of losing everything he worked for. Max decide to use his untested neuro mesh device allowing to hyperlink like a cybervator.
 
 Max defeats Jax
-	
-### 9. Reward (Seizing The Sword)
-Episodes: 
 
 Max makes it to the final round of the championship equiped with his new tech. Max is aproached by Spike to use his tech that he created Max kindly aggrees to distribute it. He promises to start a new company called Cytek upon winng the championships
+
+Max fights Jax in the championships
+
+Max wipes his face with tha back of his hand and tells Jax "You're holding back on me arent you"
+
+### 9. Reward (Seizing The Sword)
+Episodes: 
+Max wins the championships by using yet another technology he created allowing him to fight in a burstDrive like state
+
+After Makkusu wins more citizens have become insprired that they too can have equal power to that of cybervators
+
+Spike is shown doing something ominous.
 
 ## Act 3
 
 ### 10. The Road Back
 Episodes: 
 
-Max fights Jax in the championships
+The Spike lead cyvolvter reveal their self as spike starts a war to take back control of cybervators
 
-Max wipes his face with tha back of his hand and tells Jax "You're holding back on me arent you"
+Bursun show everyone that Max to is a Cybervator by msking him go berserk after semingly killing Minia/Xenos
 
 ### 11. Resurrection
 Episodes: 
-
-Max wins the championships by using yet another technology he created allowing him to fight in a burstDrive like state
+Max and Jax team back up to defeat Bursun
 
 ### 12. Return With The Elixir
 Episodes:
 
-After Makkusu wins more citizens have become insprired that they too can have equal power to that of cybervators
 
-Spike is shown doing something ominous.
