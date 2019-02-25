@@ -74,6 +74,8 @@ Dispite being signed by Xenos' team he is still sidelined
 
 Max fights Airiona outside of cyberspace Xeno/Airiona tells Max if he can beat her he can join/fight in the next match
 
+Max is now the teams Sniper/Marksmen Ace the Front Guard Knilla is the Rear Guard
+
 ## Act 2
 		
 ### 6. Tests, Allies, Enemies
@@ -121,6 +123,8 @@ Episodes: 19, 20, 21, 22
 Max asks Spike if he was behind the recent attacks he tells him "No of course not, I told you the Citizens will eventually rise up to take their right full place as the masters of Cybervators".
 
 Max prepares for the championship training, stratigizing, and developing more tech.
+
+With Airiona no longer apart of the team she must be replaced By Minia which means she must be replaced by Xenos
 
 Max thinks about spike he starts to contemplate the potential ramifications of create this technology
 
