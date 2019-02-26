@@ -1,7 +1,6 @@
 ﻿# Cyber.Beast(Max) outline
 ## Theme
 **The role sports play in society**
-*subtheme: competition vs cooperation*
 
 ## Plot
 This is a united world in which there is no longer any wars. Peace is maintain by throgh the CNS league -- a sport in which Cybervator fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
@@ -15,7 +14,6 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Roles
   - Broadcaster/Commentator: Akia?, Spike
   - Handlers/Cornerman/crew: Akia?, Makkusu
-  - Fan: Makkusu
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
 
@@ -91,7 +89,9 @@ Minia is traded to Max's team
 Airiona wonders why he is calls Minia My Nia
 
 (scene as a flashback){
+
 At one point Max and Jax finds a struggling Minia in cyberspace saving from a Cyber.Beast. Jax tells her is hybrids has to stick together after he carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. 
+
 }
 
 The cyvolters have revealed their selves and has been causing trouble with the new tech that Max created
@@ -113,7 +113,9 @@ Max(smiles): I guess I'm famous/admired even by other Cybervators
 Minia thinks about has the tables has turned
 
 (flashback scene){
+
 Minia protects a bullied Max who was once fat and bald as a  as she reflects back on far he has come along
+
 }
 
 Soon after Jax apears to help as well
@@ -135,7 +137,7 @@ With Airiona no longer apart of the team she must be replaced By Minia which mea
 
 Max thinks about spike he starts to contemplate the potential ramifications of create this technology
 
-Xenos tells him that the citizens ned him now more than ever as he must lead them so he can no longer turn back
+Xenos tells him that the citizens need him now more than ever as he must lead them so he can no longer turn back
 	
 ### 8. Ordeal, Death, Rebirth
 Episodes: 23, 24, 25, 26, 27, 28, 29, 30
@@ -156,6 +158,7 @@ Max wipes his face with tha back of his hand and tells Jax "You're holding back 
 
 ### 9. Reward (Seizing The Sword)
 Episodes: 31, 32, 33, 34
+
 Max wins the championships by using yet another technology he created allowing him to fight in a burstDrive like state
 
 After Makkusu wins more citizens have become insprired that they too can have equal power to that of cybervators
@@ -183,7 +186,7 @@ Just as looks like Max/Jax will defeat Spike Bursun takes full control and maybe
 
 Bursun makes a commentary on the state of the world even pointing out Max parading around as a citizen tricking everyone and kills Xenos to suck the energy from his tail.
 
-Bursun/Spike shows everyone that Max to is a Cybervator by making him go berserk after semingly killing Minia/Xenos
+Bursun/Spike realizes that Max has the advantage do to the collective support of his fans he shows everyone that Max too is a Cybervator by making him go berserk after semingly killing Minia/Xenos
 
 ### 11. Resurrection
 Episodes: 43, 44, 45, 46, 47, 48, 49, 50
@@ -194,5 +197,6 @@ Max fights and Defeats Bursun by using his white hole abilty or by using the Cyb
 
 ### 12. Return With The Elixir
 Episodes: 51, 52
+
 The world has returned to normal but citizens can now compete in the CNS on equal footing with Cybervators
 
