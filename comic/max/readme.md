@@ -31,8 +31,6 @@ Everyone tail him it is virtually imposible for him to become a cybervator he sa
 
 All citizens are allowed to compete in cyberspace and are allowed to be cornermen if they are good enough. They tend to avoid other cybervator in cyberspace but not max who actively challenges them. This is because Max uses a special complex contoller giving him complete control of his cyber.beast.
 
-
-
 ### 2. Call To Adventure
 Episodes: 3, 4
 
@@ -80,7 +78,9 @@ Max is now the teams Sniper/Marksmen Ace the Front Guard Knilla is the Rear Guar
 ### 6. Tests, Allies, Enemies
 Episodes: 10, 11, 12, 13, 14, 15, 16, 17
 
-Spike calls MAx to the cave again to show him more items or information that he discovered
+Spike calls Max to the cave again to show him more items or information that he discovered
+
+During the tournament Max and Spike learn that the tournament is influenced by quatum mechanics rather than gems
 
 After words Spike can nologer restrain his self and releases the information to the public
 
@@ -166,7 +166,6 @@ After Makkusu wins more citizens have become insprired that they too can have eq
 Spike is shown doing something ominous.
 
 ## Act 3
-
 ### 10. The Road Back
 Episodes: 35, 36, 37, 39, 39, 40, 41, 42
 
@@ -174,13 +173,23 @@ Max has been unknowingly aiding the Cyvolters as he the Cyber.Beast he was using
 
 The Spike reveals his self as the leader of the cyvolvters and starts a war to take back control of cybervators
 
+Spike tries to tell everyone cyber.beast are former cybervators but is enterupted by Kyshumu.
+
+Kyshumu and Xenos teams up like old times to fight Spike but lose easly Spike comments while fighting them
+
+After defeating both Xenos and Kyshumu he turns them into cyber.beast he tells everyone as I was saying cyber.beast are former cybervators. He precedes to desengage everyone's delimiter turning them into cyber.beast
+
+Spike learns and maybe informs everyone else that cyber.beast was once cybervators tools meant for citizens that Citizens were meant to be more than mere spectators this is what spike intially wanted to hide .
+
+It turns out the Cyber.Beast that Max had been using allowed Spike to place a virus in everyones CSD enabling him to disable their delimiter.
+
 Max and Jax team back up to fight Spike by fusing together
 
-It turns out the Cyber.Beast that Max had been using was fueling Bursun so the he can be awakened
+Max creates a new virus based on the one Spike used that will free all the Cybervators
 
------------------- or ---------------
+Everyone buys time so that Max can complete the algorithim
 
-Spike uses his body as host to Bursun or tries to use Bursuns Cyber.Beast after fail many times before only to have Bursu take full contol.
+Spike uses his body as host to Bursun or tries to use Bursuns Cyber.Beast after fail many times before only to have Bursun take full contol.
 
 Just as looks like Max/Jax will defeat Spike Bursun takes full control and maybe even kill the body of his host state how he wouldn't shut up.
 
@@ -188,10 +197,40 @@ Bursun makes a commentary on the state of the world even pointing out Max paradi
 
 Bursun/Spike realizes that Max has the advantage do to the collective support of his fans he shows everyone that Max too is a Cybervator by making him go berserk after semingly killing Minia/Xenos
 
+It is spike that learns who Max really is. Max is on the verge of winning while fighting along with tomasima and/or kyshumu who tries to stop Spike from telling the tail to inform Max by telling him the story of the xybrids. 
+
+Max responds with what does that story have to do with. 
+
+Spike tells Max it is because you have been lied to this entire time. Well remember the limiters we learned about. That head/neck band you are wearing it is not a keepsake it's a restraint.
+
+Spike: Just like they are afraid of us citizens they fear your power as well Max
+
+Max take his head off his head/neck band. Tomasina tells Max not to take it off
+
+Spike wispers You see you are not only a cybervator and not just a xybrid either but rather a berserker. The most dangerous kind of cybervator. You see it wasn't just any cyber.beast that killed your parents it was you.
+
+Tomasina don't listen to him he's lying
+
+Max goes berserk upon being told he killed his parents
+
+Spike tells everyone behold your so called hero this causes him to lose the support of everyone
+
 ### 11. Resurrection
 Episodes: 43, 44, 45, 46, 47, 48, 49, 50
 
-Upon coming out of his Berserk state Torey/Mack(he vibrates into their universe and invades their dream) teaches Max about some or all the history of the Xybrids.
+Jax Tomasina and Minia goes on to fight Max who is being controlled by Spike
+
+It seems like Spike is about to succumb to his own weapon but it is Bursun taking over his body
+
+Minia serving as the breacher succesully plants the virus in Spike this frees Bursun or Airiona turns on Spike and she does it or helps Minia
+
+Bursun stops the wrath of Max with ease
+
+Bursun is angry at what Spike did it seems like he will save everyone but he instead decide to place everyone in the collective consciousness stating that humans cannot be trusted to be left to their own vices
+
+Bursun absorbs the power from all of the Cyber.Beast that Spike was controlling
+
+Upon coming out of his Berserk state Torey teaches Max truth about some the history of the Xybrids.
 
 Max fights and Defeats Bursun by using his white hole abilty or by using the Cyber.Beast of every one else but unlike Bursun he does not forcefully take their power
 
@@ -200,3 +239,4 @@ Episodes: 51, 52
 
 The world has returned to normal but citizens can now compete in the CNS on equal footing with Cybervators
 
+After learning of everything the new world allows citizens to compete past and present cybervators are freed this starts with bursun and the last being torey who is sent back to Helios.Suniverse in her proper place or a future she does not recognize
