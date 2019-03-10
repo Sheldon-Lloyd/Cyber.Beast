@@ -16,7 +16,6 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
   - Handlers/Cornerman/crew: Akia?, Makkusu
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
-
 - Max learns about limiters and realizes that neck/head band
 
 ## Act 1
@@ -34,7 +33,11 @@ All citizens are allowed to compete in cyberspace and are allowed to be cornerme
 ### 2. Call To Adventure
 Episodes: 3, 4
 
-Spike calls Max to show him ancient tech that he found and goes on about the right full place of citzens. Max does not want spike to tell others about the secrets.
+Spike calls Max to show him ancient tech that he found and goes on about the right full place of citzens. 
+
+Spike thinks that this is the case because Makkusu invented a type of cyber.beast that allowed Citizens to wield cyber.beast by repurposing the device originally used to control cybervators.
+
+Max does not want spike to tell others about the secrets.
 
 Makkusu makes the team as a cybervator but is not allowed to fight they are only allows refuel and some give advice to fellow cybervator between rounds
 
@@ -65,7 +68,7 @@ Max joins Airiona and Xenos' team.
 ### 5. Crossing The Threshold
 Episodes: 9, 10, 11, 12
 
-Xenos' team is called irrsponsible for doing it as he could get killed out there and hope to never see him out there again
+Xenos' team is called irresponsible for doing it as he could get killed out there and hope to never see him out there again
 
 Dispite being signed by Xenos' team he is still sidelined
 
@@ -73,8 +76,7 @@ Max fights Airiona outside of cyberspace Xeno/Airiona tells Max if he can beat h
 
 Max is now the teams Sniper/Marksmen Ace the Front Guard Knilla is the Rear Guard
 
-## Act 2
-		
+## Act 2		
 ### 6. Tests, Allies, Enemies
 Episodes: 10, 11, 12, 13, 14, 15, 16, 17
 
@@ -237,6 +239,10 @@ Max fights and Defeats Bursun by using his white hole abilty or by using the Cyb
 ### 12. Return With The Elixir
 Episodes: 51, 52
 
+Max frees Torrey it is learned that she is from a different universe.
+
 The world has returned to normal but citizens can now compete in the CNS on equal footing with Cybervators
 
-After learning of everything the new world allows citizens to compete past and present cybervators are freed this starts with bursun and the last being torey who is sent back to Helios.Suniverse in her proper place or a future she does not recognize
+After learning of everything the new world allows citizens to compete past and present cybervators are freed this starts with bursun and the last being torey who is sent back to Helios.Suniverse in her proper time period or a future she does not recognize
+
+With Cybervators freed every must use Max's version of Cyber.Beast which uses plants instead of cybervators as a medium
