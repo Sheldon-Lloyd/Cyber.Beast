@@ -37,9 +37,13 @@ Spike calls Max to show him ancient tech that he found and goes on about the rig
 
 Spike thinks that this is the case because Makkusu invented a type of cyber.beast that allowed Citizens to wield cyber.beast by repurposing the device originally used to control cybervators.
 
-Max does not want spike to tell others about the secrets.
+Aarock/Airiona wants to to tell the world about what they found
 
-Makkusu makes the team as a cybervator but is not allowed to fight they are only allows refuel and some give advice to fellow cybervator between rounds
+Spike states that it is not a good idea to tell others about the secrets as it will be to disruptive to the status quo and that there is a reason this information has been hiden here for centuries.
+
+Max is surprised by this as he is a reporter and one would think he would be the first to want to tell everyone. Spike tells him it is also a reporter job to use good judgement for what can potentaily be detraminal if the world knew about it.
+
+Makkusu makes the team as a cybervator but is not allowed to fight they are only allowed refuel and some give advice to fellow cybervator between rounds
 
 Because of what commentators call neptunism Max is on Leona/Tomasina's team as a center. this however means they don't have a backup mainly because they rarely get injured.
 
@@ -239,10 +243,12 @@ Max fights and Defeats Bursun by using his white hole abilty or by using the Cyb
 ### 12. Return With The Elixir
 Episodes: 51, 52
 
-Max frees Torrey it is learned that she is from a different universe.
+Max frees Torrey it is learned that she and the Cyber.Beast is from a different universe.
 
 The world has returned to normal but citizens can now compete in the CNS on equal footing with Cybervators
 
 After learning of everything the new world allows citizens to compete past and present cybervators are freed this starts with bursun and the last being torey who is sent back to Helios.Suniverse in her proper time period or a future she does not recognize
 
 With Cybervators freed every must use Max's version of Cyber.Beast which uses plants instead of cybervators as a medium
+
+Knowing that this will cause the Cyber.Beast to run free again they create Becons to capture them
