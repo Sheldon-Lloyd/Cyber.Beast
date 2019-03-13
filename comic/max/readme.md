@@ -37,6 +37,10 @@ Spike calls Max to show him ancient tech that he found and goes on about the rig
 
 Spike thinks that this is the case because Makkusu invented a type of cyber.beast that allowed Citizens to wield cyber.beast by repurposing the device originally used to control cybervators.
 
+Spike wants Max to help decrypt the data he found but Max tells that it is not possible as only a Cybervator can read it he goe to get Jax but spike tells him that Jax is to much of a big mouth
+
+Spike calls Airiona/Arrock to help them decrypt it.
+
 Aarock/Airiona wants to to tell the world about what they found
 
 Spike states that it is not a good idea to tell others about the secrets as it will be to disruptive to the status quo and that there is a reason this information has been hiden here for centuries.
