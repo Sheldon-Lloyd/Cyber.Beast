@@ -1,5 +1,4 @@
-﻿# Cyber.Beast(Max) outline
- 
+﻿# Cyber.Beast(Max) outline 
 ## Theme
 **The role sports play in society:**
 Sports building character teaching people to not look at their self as victims when confronted with someone ahead they will look at it as an opportunity for improvement a new target to set as a goal that can be surpassed instead of oppressing/stepping on other or cheating to get ahead as this removes the meaning of life. Citizen who have not had the chance to be cybervator inherit this problem.
@@ -245,6 +244,8 @@ Bursun stops the wrath of Max with ease
 Bursun is angry at what Spike did it seems like he will save everyone but he instead decide to place everyone in the collective consciousness stating that humans cannot be trusted to be left to their own vices
 
 Bursun finds it funny that Cybervators are still slaves essentially slaves to a pedestal
+
+Bursun: I know you're used to fighting people superior to you in strength but I don't think you fully understand the extent of my power/But you shouldn't underestimate my power
 
 Bursun absorbs the power from all of the Cyber.Beast that Spike was controlling
 
