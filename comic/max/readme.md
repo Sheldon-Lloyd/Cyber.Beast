@@ -1,6 +1,8 @@
 ﻿# Cyber.Beast(Max) outline
+ 
 ## Theme
-**The role sports play in society**
+**The role sports play in society:**
+Sports building character teaching people to not look at their self as victims when confronted with someone ahead they will look at it as an opportunity for improvement a new target to set as a goal that can be surpassed instead of oppressing/stepping on other or cheating to get ahead as this removes the meaning of life. Citizen who have not had the chance to be cybervator inherit this problem.
 
 ## Plot
 This is a united world in which there is no longer any wars. Peace is maintain by throgh the CNS league -- a sport in which Cybervator fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
@@ -217,9 +219,13 @@ Spike: Just like they are afraid of us citizens they fear your power as well Max
 
 Max take his head off his head/neck band. Tomasina tells Max not to take it off
 
-Spike wispers You see you are not only a cybervator and not just a xybrid either but rather a berserker. The most dangerous kind of cybervator. You see it wasn't just any cyber.beast that killed your parents it was you.
+Spike: You see you are not only a cybervator and not just a xybrid either but rather a berserker. The most dangerous kind of cybervator. 
 
-Tomasina don't listen to him he's lying
+Spike wispers: You see it wasn't just any cyber.beast that killed your parents it was you.
+
+Spike: Whats wrong Max? Ha ha ha, You're not the paragon you thought you were are you
+
+Tomasina: don't listen to him he's lying
 
 Max goes berserk upon being told he killed his parents
 
@@ -237,6 +243,8 @@ Minia serving as the breacher succesully plants the virus in Spike this frees Bu
 Bursun stops the wrath of Max with ease
 
 Bursun is angry at what Spike did it seems like he will save everyone but he instead decide to place everyone in the collective consciousness stating that humans cannot be trusted to be left to their own vices
+
+Bursun finds it funny that Cybervators are still slaves essentially slaves to a pedestal
 
 Bursun absorbs the power from all of the Cyber.Beast that Spike was controlling
 
