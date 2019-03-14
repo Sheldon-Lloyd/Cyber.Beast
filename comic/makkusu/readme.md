@@ -385,8 +385,9 @@ Episodes: 20, 21
 - Makkusu fights Jax
 	- Max suggests a line up change.
 		
-	When Minia subs for Xenos max is at to read her mind. He learns that the reason she doesn't do well as a blue style fighter is not lack of skill and imagination but rather a matter of mind set.
-		 
+	When Minia subs for Xenos max is able to read her mind. He learns that the reason she doesn't do well as a blue style fighter is not lack of skill and imagination but rather a matter of mind set.
+	
+	To keep up with traditions started by the war blue Cybervators fight along with white cybervator on offense and Red along with black as this was the best way at the time to get these 4 nations to work together on the same team. This eventually becomes an unwritten rule that is mistaken as a rule. Makkusu, however, knows this and employs Knilla to be his support fighter rather than Ace this way they can do the move ace and knilla is known for. When max tells them his plan the reject it at first citing the unwritten rule. Max convince them otherwise. Ace tries to convince knilla to do it while max takes his clothes off to fight. She reiterated that she will only let ma... Ace ride her. Ace says forget it I will be your support we will just have come up with another plan. Max tells him that it is too late he has already submitted the lineup for the round. Max particularly needs her to be his shield since he does not have one
 		 
 	Minia thinks to much particularly the well being of her opponent and is too passive when fighting
 		Mina is changed from the blue to the green position
