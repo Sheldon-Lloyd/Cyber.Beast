@@ -12,11 +12,12 @@ Time has passed after mining cyber.beast Airiona and unranked Max is ready for t
 
 Airiona tells Max that Minia and Jax is probably the worst matchup they can get
 
-Max: It's been a week/month since joining the Cyvolters. Well actually a lot has changed since. The Cyvolter created what everyone is calling a citizens league. So officially I'm a member of CyNet/CyTek(named after the tech I created).
-
 ## Act 2
 Spike Talks about the New "Citizens league"
-Max notices that Minia and Jax seems to be fused with 2 complete different Cyber.Beast at the same time and tells Airiona I thought that wasn't possible.
+
+Spike: It's been a week/month since The Cyvolter officially created CyNet/CyTek(named after the tech Max created) everyone is calling it the citizens league.
+
+Max notices that Minia and Jax seems to be fused with 2 completely different Cyber.Beast at the same time and tells Airiona I thought that wasn't possible.
 
 Airiona tells Max that they are Xybrids that they have two tails so they can use two cyber.beast at a time. She explain in further detail how it works.
 
