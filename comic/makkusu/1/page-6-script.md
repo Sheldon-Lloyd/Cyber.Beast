@@ -8,7 +8,7 @@ Kyshumu turns around with the same crowd surrounding them. Mack is seen squeezin
 
 **Kyshumu:** Hey there little guy
 
-**Makkusu:** I don't like you anymore
+**Max:** I don't like you anymore
 
 Kyshumu has a look of surprised disappointment
 

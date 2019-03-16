@@ -1,10 +1,10 @@
 # Page 1
 ## Panel 1  (full page width 2/3rd height)
-Makkusu:Airiona? Whoa what happened, why aren't you healing!?
+Max:Airiona? Whoa what happened, why aren't you healing!?
 		
 Airiona(holding her arm stub): My argh My CSD is broken/damaged
 
 ## Panel 2
-Makkusu turns to run for help or call for help with his CSD
+Max turns to run for help or call for help with his CSD
 
-Makkusu: I'll call for help
+Max: I'll call for help

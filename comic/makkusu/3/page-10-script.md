@@ -1,8 +1,8 @@
 # Page 10
-Makkusu: I just got a letter.
+Max: I just got a letter.
 
-Makkusu is seen sweating and has a look of anticipation
+Max is seen sweating and has a look of anticipation
 
-Makkusu reads the Message out loud.
+Max reads the Message out loud.
 
-Makkusu: Dear Makkusu Light, we are would like to inform you that...
+Max: Dear Max Light, we are would like to inform you that...

@@ -1,7 +1,7 @@
 # Page 3
-Makkusu says that it can wait or he finished just in time
+Max says that it can wait or he finished just in time
 
-Makkusu precedes to watch Xenos'  match
+Max precedes to watch Xenos'  match
 
 Spike: Welcome Spike.TV I'm you're host Spike along with my color commentator Akia
 

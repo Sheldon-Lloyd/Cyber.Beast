@@ -6,11 +6,11 @@
 
 ## Panel 2 (1/3rd height and width)
 
-*The focus is on Makkusu as he cups his hands to his mouth cheering for Xenos as he sits on his fathers shoulders*
+*The focus is on Max as he cups his hands to his mouth cheering for Xenos as he sits on his fathers shoulders*
 
-Mack: Come on Makkusu lets cheer him on
+Mack: Come on Max lets cheer him on
 
-[Makkusu(yelling)](#makkusu): Come on Xenos!
+[Max(yelling)](#Max): Come on Xenos!
 
 Mack: Come on Xenos!
 

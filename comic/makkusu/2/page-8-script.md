@@ -13,12 +13,12 @@ Airiona's arm is regeneration is complete and she test and moves her new hand
 
     Airiona: You deserve to be a cybervator all citizens do actually
 
-    Makkusu: you're starting to sound like one of those...
+    Max: you're starting to sound like one of those...
 
     Airiona: Cyvolter o No I would never.
         
-    Makkusu tells her that it is some thing he made a long time ago when had dreams of becoming a cybervator
+    Max tells her that it is some thing he made a long time ago when had dreams of becoming a cybervator
         
-    Makkusu: Not really I just most are combined ideas from real scientist to put ideas together to come up with a new one
+    Max: Not really I just most are combined ideas from real scientist to put ideas together to come up with a new one
     
     Airiona: No unlike most scientist who have become singular focused and don't combined ideas from others you put ideas together to come up with a new one

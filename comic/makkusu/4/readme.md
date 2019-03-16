@@ -5,9 +5,9 @@ Xenos learns Airiona sent the invite to which Xenos scolds her because he wanted
 
 Airiona(Scowling): so you wanted to trick him?! (right after she says this to their surprise they get a message accepting the invite.)
 
-After the match Airiona and Xenos is shown discussing the possibility of Makkusu joining the Cyvolters
+After the match Airiona and Xenos is shown discussing the possibility of Max joining the Cyvolters
 
-Xenos Discovers that Airiona already sent Makkusu an invite along with a Cyber.Beast
+Xenos Discovers that Airiona already sent Max an invite along with a Cyber.Beast
 
 Airiona: I already sent the invite
 
@@ -23,24 +23,24 @@ Airiona gets a message informing her that the invitation has ben accepted
 
 Xenos: I guess it worked out in our favor after all
 
-Makkusu is on the phone with Spike
+Max is on the phone with Spike
 
 The words of the message can be seen on the screen
 
-Dear Makkusu Light, we are would like to inform you that you have been selected to become a Cyvolter. Once you accept this offer you will be granted the right to use the Cyber.Beast sent along with this letter.
+Dear Max Light, we are would like to inform you that you have been selected to become a Cyvolter. Once you accept this offer you will be granted the right to use the Cyber.Beast sent along with this letter.
 
 
-Makkusu: can you believe it I'm actually going to become a Cybervator
+Max: can you believe it I'm actually going to become a Cybervator
 
-After hanging up Makkusu pumps his fist in celebratory fashion
+After hanging up Max pumps his fist in celebratory fashion
 
-Makkusu: Yeesss!/Oh yeah!
+Max: Yeesss!/Oh yeah!
 
 ## Act 2
-At first Makkusu tries to fight another cybervator but is quickly turned down by the Cybervator he tries to fight
+At first Max tries to fight another cybervator but is quickly turned down by the Cybervator he tries to fight
 
-Makkusu goes into cyberspace on his own to mine Cyber.Beast he gets into trouble and Airiona saves him
+Max goes into cyberspace on his own to mine Cyber.Beast he gets into trouble and Airiona saves him
     
 ## Act 3
-Makkusu takes down his first Cyber.Beast with the help of Airiona
+Max takes down his first Cyber.Beast with the help of Airiona
 

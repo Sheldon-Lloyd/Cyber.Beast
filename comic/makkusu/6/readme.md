@@ -2,27 +2,27 @@
 ## Act 1
 The Cyvolter has established a new network within the CNS called CyTek/CyNet although they don't have a hub they still distribute cyber.beast to it's members any one that is apart of the company is given a Cyber.Beast. They declare their self a citizens league The public may or might know at this point that is a Cyvolter organization.
 
-Speeding Bullet and Makkusu are the first members.
+Speeding Bullet and Max are the first members.
 
 Airiona is now going by the name Speeding Bullet to mask her identity
 
 Airiona: call me Speeding Bullet
 
-Time has passed after mining cyber.beast Airiona and unranked Makkusu is ready for their first match against Jax and Minia
+Time has passed after mining cyber.beast Airiona and unranked Max is ready for their first match against Jax and Minia
 
-Airiona tells Makkusu that Minia and Jax is probably the worst matchup they can get
+Airiona tells Max that Minia and Jax is probably the worst matchup they can get
 
-Makkusu: It's been a week/month since joining the Cyvolters. Well actually a lot has changed since. The Cyvolter created what everyone is calling a citizens league. So officially I'm a member of CyNet/CyTek(named after the tech I created).
+Max: It's been a week/month since joining the Cyvolters. Well actually a lot has changed since. The Cyvolter created what everyone is calling a citizens league. So officially I'm a member of CyNet/CyTek(named after the tech I created).
 
 ## Act 2
 Spike Talks about the New "Citizens league"
-Makkusu notices that Minia and Jax seems to be fused with 2 complete different Cyber.Beast at the same time and tells Airiona I thought that wasn't possible.
+Max notices that Minia and Jax seems to be fused with 2 complete different Cyber.Beast at the same time and tells Airiona I thought that wasn't possible.
 
-Airiona tells Makkusu that they are Xybrids that they have two tails so they can use two cyber.beast at a time. She explain in further detail how it works.
+Airiona tells Max that they are Xybrids that they have two tails so they can use two cyber.beast at a time. She explain in further detail how it works.
 
-Makkusu and Jax continues their fight
+Max and Jax continues their fight
 
 ## Act 3
 The commentators point Jax is relentless in his fight with Jax as he is known as the type that never backs down from a fight and does not hold back no mater his opponent.
 
-Makkusu is on the verge of losing his cyber.beast which is pointed out by the commentator
+Max is on the verge of losing his cyber.beast which is pointed out by the commentator
