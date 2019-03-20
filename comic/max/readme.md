@@ -101,7 +101,33 @@ Airiona wonders why he is calls Minia My Nia
 
 (scene as a flashback){
 
-At one point Max and Jax finds a struggling Minia in cyberspace saving from a Cyber.Beast. Jax tells her is hybrids has to stick together after he carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. 
+Max and Jax is about to go into space to mine Cyber.Beast
+
+Max/Jax sees minia from afar recgonizing her as a new Cybervator 
+
+Max/Jax: she is a Xybrid like you/me
+
+He asks her what her name is
+
+Leona tells her come on Minia lets go or i'm leaving without you
+
+Minia runs away with out saying her name
+
+Jax/Max: oh well at least you got her name
+
+Max/Jax: Yea but I wanted to hear her voice
+
+They finish their prepartion and head into space
+
+At one point Max and Jax finds a struggling Minia in space and saves her from a Cyber.Beast. While fight the Cyber.Beast Jax looks back and tells her us hybrids has to stick together Max then carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. 
+
+Max: I remember you from earlier you're My nia
+
+Minia: Minia
+
+Max: My nia
+
+Jax(smirks): Hey not fair I found her first
 
 }
 
