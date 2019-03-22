@@ -1,5 +1,7 @@
 # Cyber.Beast Bursun Outline
 
+Yaharia, Bursun and Makkusu all want to end the war however Bursun wants to maintain the status quo while Makkusu and Yaharia wants to free the Cybervator however unbeknownst to Makkusu Yahria's Idea of freedom is killing the Majorty of Citizens whlie enslaving the rest as she feels they have no place in the new world order
+
 The comic opens with Makkusu and Bursun fighting or preparing to fight each other
 
 | Makkusu                                                                 | Bursun                                                         |
