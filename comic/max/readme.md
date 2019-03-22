@@ -210,6 +210,8 @@ Max has been unknowingly aiding the Cyvolters as he the Cyber.Beast he was using
 
 The Spike reveals his self as the leader of the cyvolvters and starts a war to take back control of cybervators
 
+Spike tells Max that he has been using his cyber.beast wrong the whole time but thanks him for the neruolace enabling him to perfect the CSDs. He is no longer forced to command each cybervator one by one but instead use commander's intent to control every single one of them. Unlike Max Spike is able to control human/full scale Humanoid Cyber.Beast, one of which is Torrey
+
 Spike tries to tell everyone cyber.beast are former cybervators but is enterupted by Kyshumu.
 
 Kyshumu and Xenos teams up like old times to fight Spike but lose easly Spike comments while fighting them
@@ -269,6 +271,8 @@ Bursun stops the wrath of Max with ease
 
 Bursun is angry at what Spike did it seems like he will save everyone but he instead decide to place everyone in the collective consciousness stating that humans cannot be trusted to be left to their own vices
 
+Burun realizes that his sister was right that Citizens and Cybervators can never coexist
+
 Bursun finds it funny that Cybervators are still slaves essentially slaves to a pedestal
 
 Bursun: I know you're used to fighting people superior to you in strength but I don't think you fully understand the extent of my power/But you shouldn't underestimate my power
@@ -276,6 +280,8 @@ Bursun: I know you're used to fighting people superior to you in strength but I 
 Bursun absorbs the power from all of the Cyber.Beast that Spike was controlling
 
 Upon coming out of his Berserk state Torey teaches Max truth about some the history of the Xybrids.
+
+Torrey reveals that Max did not kill/eat her she traded places with him so the he could be free from the Cyber.Beast
 
 Max fights and Defeats Bursun by using his white hole abilty or by using the Cyber.Beast of every one else but unlike Bursun he does not forcefully take their power
 
