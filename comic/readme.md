@@ -1,10 +1,14 @@
+# Minia's perspective
+
 1. Ordinary world
 
-   Makkusu wants to be a cybervator
+   Minia wants to end the war
 
 1. Call
 
-   Makkusu finds and befriends an injured Minia and learns that the world is not what it first seemed
+   Minia learns that her father is a Cyvolter
+   
+   Makkusu finds and befriends an injured Minia and learns that Citizens do not know about the war
 
 1. Refusal
 
