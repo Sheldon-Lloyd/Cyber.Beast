@@ -18,6 +18,7 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
 - Max learns about limiters and realizes that neck/head band
+- Spike/Max discovers that the database of hidden history he found included data from the CSDs of Cybervators Yaharia and Bursun. This info hidden was passesd through generation waiting to be used when Citizens was ready for it. Maybe the original invintor of the CSD or spikes ancestor media owner who first created the CNS to make spetical of Cybervator killing Cyber.Beast to cover up the war. This was approiated by Yaharia to create the CNS of today. Once she died Spike became the sol owner
 
 ## Act 1
 ### 1. Ordinary World
@@ -27,7 +28,7 @@ Max wants to be a cybervator like everyone else
 
 It is assumed that he did not have the tail gene because his parent was a citizen despite the 99% chance that he should have a tail
 
-Everyone tail him it is virtually imposible for him to become a cybervator he says that he beat the odds to become a tailless despite the 1% chance of it happening 
+Everyone tell him it is virtually imposible for him to become a cybervator he says that he beat the odds to become a tailless despite the 1% chance of it happening 
 
 All citizens are allowed to compete in cyberspace and are allowed to be cornermen if they are good enough. They tend to avoid other cybervator in cyberspace but not max who actively challenges them. This is because Max uses a special complex contoller giving him complete control of his cyber.beast.
 
@@ -216,6 +217,10 @@ Spike tries to tell everyone cyber.beast are former cybervators but is enterupte
 
 Kyshumu and Xenos teams up like old times to fight Spike but lose easly Spike comments while fighting them
 
+Xenos(looks at Kyshumu grining): Just like old times
+
+Kyshumu: old times doesnt mean good times
+
 After defeating both Xenos and Kyshumu he turns them into cyber.beast he tells everyone as I was saying cyber.beast are former cybervators. He precedes to desengage everyone's delimiter turning them into cyber.beast
 
 Spike learns and maybe informs everyone else that cyber.beast was once cybervators tools meant for citizens that Citizens were meant to be more than mere spectators this is what spike intially wanted to hide .
@@ -248,11 +253,15 @@ Max take his head off his head/neck band. Tomasina tells Max not to take it off
 
 Spike: You see you are not only a cybervator and not just a xybrid either but rather a berserker. The most dangerous kind of cybervator. 
 
+Spike: Berserkers are rare but The chance that a Berserker is born increase 20 fold when a Cybervator has a child with a citizen which is why marriages between the two is prohibited.
+
 Spike wispers: You see it wasn't just any cyber.beast that killed your parents it was you.
 
 Spike: Whats wrong Max? Ha ha ha, You're not the paragon you thought you were are you
 
 Tomasina: don't listen to him he's lying
+
+Spike: and poor Yaharia had to sacrifice her self to save everyone else
 
 Max goes berserk upon being told he killed his parents
 
@@ -282,6 +291,8 @@ Bursun absorbs the power from all of the Cyber.Beast that Spike was controlling
 Upon coming out of his Berserk state Torey teaches Max truth about some the history of the Xybrids.
 
 Torrey reveals that Max did not kill/eat her she traded places with him so the he could be free from the Cyber.Beast
+
+However Spike did not lie Yaharia CSD stoped recording after she died so she does know role therefore spike wouldn't know either
 
 Max fights and Defeats Bursun by using his white hole abilty or by using the Cyber.Beast of every one else but unlike Bursun he does not forcefully take their power
 
