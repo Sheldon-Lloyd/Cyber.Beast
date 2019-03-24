@@ -27,3 +27,21 @@ He learns of the war through Yaharia who does not know that Citizens don't know 
 Later Yaharia and Makkusu learn that the tech he created was not only used for the war but also used to forcefully control cybervator in order so that they wil fight in the war. They learn of this when they discover Bursun is fight against  his own will
 
 The technolgy he regret
+
+Makkusu finds and saves an injured Yaharia
+
+Makkusu: What's your name
+
+Yaharia: Yaharia Minia
+
+Makkusu: do mind if I call you by your last name My Nina
+
+Yaharia: you mean Minia
+
+Makkusu: Nope I found you so your My Nia know
+
+Yaharia: ha ha ha ok
+
+Yaharia is angry that Makkusu has told about their metting despite the fact that the news mentioned neither of their names and that it was far from intentional as his friend spikes ancester got the info from him.
+
+Later Yahria rescues Makkusu who is charged with tresson puting her own self in jeopardy he ask why she would do something like that and that should not have. She tells him ~~You forgot?~~ It's because I'm your Nia silly/remember
