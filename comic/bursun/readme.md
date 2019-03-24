@@ -44,4 +44,11 @@ Yaharia: ha ha ha ok
 
 Yaharia is angry that Makkusu has told about their metting despite the fact that the news mentioned neither of their names and that it was far from intentional as his friend spikes ancester got the info from him.
 
+Makkusu joins the military Cybervator division if he hasnt already and starts training them to cut the tail of other Cybervators rather than to kill them. At one point he has to sub for another unit and is told by their handler not to teach them that pacifist crap. Maybe this is a unit in which Bursun is in. 
+
+Makkusu starts going on missions during eclipses in an atempt to fixed the world and end the war. He does not kill but rather cuts the tails of cybervators. The media coins him with the name eclipse. A cybervator he spares at want point in the future will aid him defeacting from their unit.
+
 Later Yahria rescues Makkusu who is charged with tresson puting her own self in jeopardy he ask why she would do something like that and that should not have. She tells him ~~You forgot?~~ It's because I'm your Nia silly/remember
+
+  - Spike is intargated about how he got the informatioand is eventualy threaten of scene/script
+  - Spike you've been found out they made me I had no choice sorry makkusu
