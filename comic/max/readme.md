@@ -19,6 +19,8 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
   - Chief: Kyshumu, Alex  
 - Max learns about limiters and realizes that neck/head band
 - Spike/Max discovers that the database of hidden history he found included data from the CSDs of Cybervators Yaharia and Bursun. This info hidden was passesd through generation waiting to be used when Citizens was ready for it. Maybe the original invintor of the CSD or spikes ancestor media owner who first created the CNS to make spetical of Cybervator killing Cyber.Beast to cover up the war. This was approiated by Yaharia to create the CNS of today. Once she died Spike became the sol owner
+- Painting Makkusu(eclipse) as the bad guy is what makes the citizens accept the cybervators governing them as long as they provide protection from the cyvolters
+- People think that wars are won after one side as imposed their will upon the other. Leaving only those that stand with them or indifferent. They think they are bullied into submission afraid of the power they pose. feeling that if they stepped out of line break law of the new enforcers they would incur their wrath. but unbeknownst to them, they are not the losers for they have taken the back seat to prime future generations to revolt against their current oppressors when they least expect long after those of the original conflict is gone.
 
 ## Act 1
 ### 1. Ordinary World
@@ -238,6 +240,8 @@ Spike: You see you are not only a cybervator and not just a xybrid either but ra
 
 Spike: Berserkers are rare but The chance that a Berserker is born increase 20 fold when a Cybervator has a child with a citizen which is why marriages between the two is prohibited.
 
+Berserkers are cybervators that do not need to meditate in order to hyperlink with a cyber.beast. which makes them dangrous so they are killed. this is a secret known only by the highest ranked cybervators
+
 Spike wispers: You see it wasn't just any cyber.beast that killed your parents it was you.
 
 Spike: Whats wrong Max? Ha ha ha, You're not the paragon you thought you were are you
@@ -266,6 +270,8 @@ Bursun is angry at what Spike did it seems like he will save everyone but he ins
 Burun realizes that his sister was right that Citizens and Cybervators can never coexist
 
 Bursun finds it funny that Cybervators are still slaves essentially slaves to a pedestal
+
+Bursun: ha ha ha Yaharia never freed them they are all still slaves serving the citizens
 
 Bursun: I know you're used to fighting people superior to you in strength but I don't think you fully understand the extent of my power/But you shouldn't underestimate my power
 
