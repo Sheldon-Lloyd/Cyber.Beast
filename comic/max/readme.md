@@ -15,7 +15,7 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Roles
   - Broadcaster/Commentator: Akia?, Spike
   - Handlers/Cornerman/crew: Akia?, Makkusu
-  - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
+  - Cybervator: Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
 - Max learns about limiters and realizes that neck/head band
 - Spike/Max discovers that the database of hidden history he found included data from the CSDs of Cybervators Yaharia and Bursun. This info hidden was passesd through generation waiting to be used when Citizens was ready for it. Maybe the original invintor of the CSD or spikes ancestor media owner who first created the CNS to make spetical of Cybervator killing Cyber.Beast to cover up the war. This was approiated by Yaharia to create the CNS of today. Once she died Spike became the sol owner
@@ -31,6 +31,30 @@ It is assumed that he did not have the tail gene because his parent was a citize
 Everyone tell him it is virtually imposible for him to become a cybervator he says that he beat the odds to become a tailless despite the 1% chance of it happening 
 
 All citizens are allowed to compete in cyberspace and are allowed to be cornermen if they are good enough. They tend to avoid other cybervator in cyberspace but not max who actively challenges them. This is because Max uses a special complex contoller giving him complete control of his cyber.beast.
+
+Max and Jax is about to go into (Cyber) space to mine Cyber.Beast
+
+Max/Jax sees Airiona from afar recgonizing her as a new Cybervator 
+
+Max/Jax: she is a Xybrid like you/me
+
+He asks her what her name is
+
+Hey I'm Max and this is...
+
+Leona(yells): come on Airiona lets go or i'm leaving without you
+
+Airiona runs away with out saying her name
+
+Jax/Max: oh well at least you got her name
+
+Max/Jax: Yea but I wanted to hear her voice
+
+They finish their prepartion and head into space
+
+At one point Max and Jax finds a struggling Airiona in space and saves her from a Cyber.Beast. While fight the Cyber.Beast Jax looks back and tells her us hybrids has to stick together Max then carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. 
+
+Airiona: I remember you from earlier you're Max?
 
 ### 2. Call To Adventure
 Episodes: 3, 4
@@ -96,49 +120,16 @@ During the tournament Max and Spike learn that the tournament is influenced by q
 
 After words Spike can nologer restrain his self and releases the information to the public
 
-Minia is traded to Max's team
+Airiona is traded to Max's team
 
-Airiona wonders why he is calls Minia My Nia
-
-(scene as a flashback){
-
-Max and Jax is about to go into space to mine Cyber.Beast
-
-Max/Jax sees minia from afar recgonizing her as a new Cybervator 
-
-Max/Jax: she is a Xybrid like you/me
-
-He asks her what her name is
-
-Leona tells her come on Minia lets go or i'm leaving without you
-
-Minia runs away with out saying her name
-
-Jax/Max: oh well at least you got her name
-
-Max/Jax: Yea but I wanted to hear her voice
-
-They finish their prepartion and head into space
-
-At one point Max and Jax finds a struggling Minia in space and saves her from a Cyber.Beast. While fight the Cyber.Beast Jax looks back and tells her us hybrids has to stick together Max then carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. 
-
-Max: I remember you from earlier you're My nia
-
-Minia: Minia
-
-Max: My nia
-
-Jax(smirks): Hey not fair I found her first
-
-}
 
 The cyvolters have revealed their selves and has been causing trouble with the new tech that Max created
 
-A crime is being commited Minia telports to arrest the crimmal to her surprise they arer using the weapons Max has be using
+A crime is being commited a Cybervator telports to arrest the crimmal to her surprise they arer using the weapons Max has be using
 
 She is ganged up on by these Cyvolters Speeding Bullet, Thunora, and Akia using tech Max created some are even Cybervators which include Airiona, Aarock, and Carla
 
-Minia has no energy left just before Airiona goes to kill her Max joins in to help
+The Cybervator has no energy left just before Airiona goes to kill her Max joins in to help
 
 Airiona stops her attack short
 
@@ -148,19 +139,11 @@ Max is at first confused but makes a quip
 
 Max(smiles): I guess I'm famous/admired even by other Cybervators
 
-Minia thinks about has the tables has turned
-
-(flashback scene){
-
-Minia protects a bullied Max who was once fat and bald as a  as she reflects back on far he has come along
-
-}
-
 Soon after Jax apears to help as well
 
 Max and Jax fight together but separatly as neither wants help from the other
 
-Max is surprised to find that Airiona is a Cyvolter and stops Jax from finishing her or cuting her tail off leting her escape. Jax is enraged by this Max exclaims that she is not a bad. Jax Responds that she tried to kill Minia how is she not a bad guy
+Max is surprised to find that Airiona is a Cyvolter and stops Jax from finishing her or cuting her tail off leting her escape. Jax is enraged by this Max exclaims that she is not a bad. Jax Responds that she tried to kill Te Cybervator how is she not a bad guy
 		
 ### 7. Approach To The Inmost Cave
 Episodes: 19, 20, 21, 22
@@ -171,9 +154,9 @@ Max asks Spike if he was behind the recent attacks he tells him "No of course no
 
 Max prepares for the championship training, stratigizing, and developing more tech.
 
-With Airiona no longer apart of the team she must be replaced By Minia which means she must be replaced by Xenos
+With Airiona no longer apart of the team she must be replaced By Airiona which means she must be replaced by Xenos
 
-Max thinks about spike he starts to contemplate the potential ramifications of create this technology
+Max thinks about spike he starts to contemplate the potential ramifications of creating this technology
 
 Xenos tells him that the citizens need him now more than ever as he must lead them so he can no longer turn back
 	
@@ -217,7 +200,7 @@ Spike tries to tell everyone cyber.beast are former cybervators but is enterupte
 
 Kyshumu and Xenos teams up like old times to fight Spike but lose easly Spike comments while fighting them
 
-Xenos(looks at Kyshumu grining): Just like old times
+Xenos(looks at Kyshumu grinning): Just like old times
 
 Kyshumu: old times doesnt mean good times
 
@@ -239,7 +222,7 @@ Just as looks like Max/Jax will defeat Spike Bursun takes full control and maybe
 
 Bursun makes a commentary on the state of the world even pointing out Max parading around as a citizen tricking everyone and kills Xenos to suck the energy from his tail.
 
-Bursun/Spike realizes that Max has the advantage do to the collective support of his fans he shows everyone that Max too is a Cybervator by making him go berserk after semingly killing Minia/Xenos
+Spike realizes that Max has the advantage do to the collective support of his fans he shows everyone that Max too is a Cybervator by making him go berserk after semingly killing Xenos
 
 It is spike that learns who Max really is. Max is on the verge of winning while fighting along with tomasima and/or kyshumu who tries to stop Spike from telling the tail to inform Max by telling him the story of the xybrids. 
 
@@ -270,11 +253,11 @@ Spike tells everyone behold your so called hero this causes him to lose the supp
 ### 11. Resurrection
 Episodes: 43, 44, 45, 46, 47, 48, 49, 50
 
-Jax Tomasina and Minia goes on to fight Max who is being controlled by Spike
+Jax Tomasina goes on to fight Max who is being controlled by Spike
 
 It seems like Spike is about to succumb to his own weapon but it is Bursun taking over his body
 
-Minia serving as the breacher succesully plants the virus in Spike this frees Bursun or Airiona turns on Spike and she does it or helps Minia
+Airiona turns on Spike and she succesully plants the virus in Spike this frees Bursun
 
 Bursun stops the wrath of Max with ease
 
@@ -290,9 +273,9 @@ Bursun absorbs the power from all of the Cyber.Beast that Spike was controlling
 
 Upon coming out of his Berserk state Torey teaches Max truth about some the history of the Xybrids.
 
-Torrey reveals that Max did not kill/eat her she traded places with him so the he could be free from the Cyber.Beast
+Torrey reveals that Max did not kill/eat her she traded places with him so the he could be free from the Cyber.Beast. Yaharia took half of the Cyber.Beast by turning off her limiter so that she could absorb it.
 
-However Spike did not lie Yaharia CSD stoped recording after she died so she does know role therefore spike wouldn't know either
+However Spike did not lie Yaharia CSD stoped recording after she sacrificed her self to tame the Cyber.Beast so she does know role therefore spike wouldn't know either
 
 Max fights and Defeats Bursun by using his white hole abilty or by using the Cyber.Beast of every one else but unlike Bursun he does not forcefully take their power
 
