@@ -52,3 +52,6 @@ Later Yahria rescues Makkusu who is charged with tresson puting her own self in 
 
   - Spike is intargated about how he got the informatioand is eventualy threaten of scene/script
   - Spike you've been found out they made me I had no choice sorry makkusu
+  
+  
+You shouldn't treat Citizens race poorly or oppress them not for the sake of altruism but for the sake of the children's children as they never know when a grandchild may become apart of the citizens you hate so much. And if people in power create a world that hates citizens then your future grandchild may be the one that is hated is that what you really want - Bursun/Makkusu»Yaharia
