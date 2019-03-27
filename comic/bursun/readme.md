@@ -15,6 +15,15 @@ Makkusu created screen/goggles that gb&w cybervators use this was used so that Y
 
   - It also is able tell exact qbits of of cybervators used in the future to establish Cybervator rankings
 
+Yaharia: Makkusu!!! You think you can just trust in the children to make the better place. That’s why the world is where it is know, instead of placing that responsibility on future generation our generation take that responsibility only then will this circle of waiting for a better place end. You can’t raise children to live in a world that does not exist, it Is us that must lead that change. 
+
+{
+
+Yaharia: Isn't he your friend
+
+Makkusu: Yeah but people that are materialistic will become money driven -- People that put money first will never put people first
+
+}
 ## Plot
 
 The comic opens with Makkusu and Bursun fighting or preparing to fight each other
