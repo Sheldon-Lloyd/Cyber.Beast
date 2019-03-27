@@ -1,7 +1,10 @@
 # Cyber.Beast Bursun Outline
 
+## Themes
+Ever turns beacuse each has their own ideals
+
 ## Brain Storm
-Yaharia, Bursun and Makkusu all want to end the war however Bursun wants to maintain the status quo while Makkusu and Yaharia wants to free the Cybervator however unbeknownst to Makkusu Yahria's Idea of freedom is killing the Majorty of Citizens whlie enslaving the rest as she feels they have no place in the new world order.
+Yaharia, Bursun and Makkusu all want to end the war however Bursun wants to maintain the status quo while Makkusu and Yaharia wants to free the Cybervators however unbeknownst to Makkusu Yahria's Idea of freedom is killing the Majorty of Citizens whlie enslaving the rest as she feels they have no place in the new world order. Spike wants to keep the world fragmented as it will allow him to maximze profits even if it means war. Makkusu wants to unify the world one generation at a time even if it means turning the world against him
 
 Makkusu learns and reveals that Bursun and Yaharia are siblings
 
@@ -75,6 +78,7 @@ Makkusu starts going on missions during eclipses in an atempt to fixed the world
 Later Yahria rescues Makkusu who is charged with tresson puting her own self in jeopardy he ask why she would do something like that and that should not have. She tells him ~~You forgot?~~ It's because I'm your Nia silly/remember
 
   - Spike is intargated about how he got the informatioand is eventualy threaten of scene/script
+      - he actually had no problems helping them infact he wanted to strike a deal with them so that he could maximize his profits
   - Spike you've been found out they made me I had no choice sorry makkusu
 
 Makkusu askss Spike and Bursun to help save his sister Spike Understanding the meaning of familly force Bursun to do it.
