@@ -21,6 +21,7 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Spike/Max discovers that the database of hidden history he found included data from the CSDs of Cybervators Yaharia and Bursun. This info hidden was passesd through generation waiting to be used when Citizens was ready for it. Maybe the original invintor of the CSD or spikes ancestor media owner who first created the CNS to make spetical of Cybervator killing Cyber.Beast to cover up the war. This was approiated by Yaharia to create the CNS of today. Once she died Spike became the sol owner
 - Painting Makkusu(eclipse) as the bad guy is what makes the citizens accept the cybervators governing them as long as they provide protection from the cyvolters
 - People think that wars are won after one side as imposed their will upon the other. Leaving only those that stand with them or indifferent. They think they are bullied into submission afraid of the power they pose. feeling that if they stepped out of line break law of the new enforcers they would incur their wrath. but unbeknownst to them, they are not the losers for they have taken the back seat to prime future generations to revolt against their current oppressors when they least expect long after those of the original conflict is gone.
+- Other Cybervators try to use Cyber.Beast on their limbs like Max even going as far as to cut off their limbs to attempt it maybe Spike is the one that attempts this experiment
 
 ## Act 1
 ### 1. Ordinary World
