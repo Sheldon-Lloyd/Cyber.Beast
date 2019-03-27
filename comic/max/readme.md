@@ -22,6 +22,7 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Painting Makkusu(eclipse) as the bad guy is what makes the citizens accept the cybervators governing them as long as they provide protection from the cyvolters
 - People think that wars are won after one side as imposed their will upon the other. Leaving only those that stand with them or indifferent. They think they are bullied into submission afraid of the power they pose. feeling that if they stepped out of line break law of the new enforcers they would incur their wrath. but unbeknownst to them, they are not the losers for they have taken the back seat to prime future generations to revolt against their current oppressors when they least expect long after those of the original conflict is gone.
 - Other Cybervators try to use Cyber.Beast on their limbs like Max even going as far as to cut off their limbs to attempt it maybe Spike is the one that attempts this experiment
+- Xenos: If your not striving for progress it wont be guaranteed you will not regress
 
 ## Act 1
 ### 1. Ordinary World
