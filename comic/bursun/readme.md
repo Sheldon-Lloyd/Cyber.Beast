@@ -31,7 +31,7 @@ The comic opens with Makkusu and Bursun fighting or preparing to fight each othe
 | Makkusu                                                                 | Bursun                                                         |
 |-------------------------------------------------------------------------|----------------------------------------------------------------|
 | My name is Makkusu.                                                     | They call me Bursun/The honey badger/00.                       |
-| I mentor/train the next Generation of Cybervators to fight in this war. | I'm a Cybervator who fights for the citizens of the Red Nation |
+| I have been mentoring/training the next Generation of Cybervators to fight in this war. | I'm a Cybervator who fights for the citizens of the Red Nation |
 
 | Makkusu and Bursun                                                 |
 |--------------------------------------------------------------------|
@@ -91,10 +91,12 @@ You don't understand I have no other choice do you really want your... no our ch
 Makkusu but I thought that was impossible 
   
 upon learning that she is pregnant Makkusu tries to make them both stop fighting instead they fight with increasing intensity removing one limiter after another until they both Berserk with the help of spike manages to stop them but not before sacrifices himself in the process
+  
+  - Makkusu tells Spike if I don't make it just make sure the world know that Bursun and My Nia was the hero even if it means I have to be the villian. The world would never accept Cybervators otherwise. Spike ask him but what transparncy. Makkusu replies I've learned that you can't have everything that their is a balance and a time and place for everthing.
 
 Before Makkusu dies he tells Yaharia You shouldn't treat Citizens race poorly or oppress them not for the sake of altruism but for the sake of the children's children as they never know when a grandchild may become apart of the citizens you hate so much. And if people in power create a world that hates citizens then your future grandchild may be the one that is hated is that what you really want
 
-Spike tells Yaharia that word of this can never get out not if she wants to create the world she has always wanted. Yaharia agrees but tells him that if he ever crosses her. He says that he won't but this is when he sets everything in place for future generation will have the tools to retake their power.
+Spike tells Yaharia that word of this can never get out not if she wants to create the world she has always wanted. Yaharia agrees but tells him that if he ever crosses her. He says that he won't after he seen that power she has he realized that no one in this world could stop her and that he wants to be on the winning side. But this is when he sets everything in place for future generation will have the tools to retake their power.
 
 They brand The Citizen Eclipse and the Cyvolters as the villians and Bursun and spike as the Hero that rescued Yaharia and exposed the truth to the world.
 
