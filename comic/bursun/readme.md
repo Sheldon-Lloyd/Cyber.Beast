@@ -1,8 +1,5 @@
 # Cyber.Beast Bursun Outline
 
-## Themes
-Ever turns beacuse each has their own ideals
-
 ## Brain Storm
 Yaharia, Bursun and Makkusu all want to end the war however Bursun wants to maintain the status quo while Makkusu and Yaharia wants to free the Cybervators however unbeknownst to Makkusu Yahria's Idea of freedom is killing the Majorty of Citizens whlie enslaving the rest as she feels they have no place in the new world order. Spike wants to keep the world fragmented as it will allow him to maximze profits even if it means war. Makkusu wants to unify the world one generation at a time even if it means turning the world against him
 
