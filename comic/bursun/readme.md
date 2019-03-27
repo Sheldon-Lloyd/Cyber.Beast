@@ -1,6 +1,21 @@
 # Cyber.Beast Bursun Outline
 
-Yaharia, Bursun and Makkusu all want to end the war however Bursun wants to maintain the status quo while Makkusu and Yaharia wants to free the Cybervator however unbeknownst to Makkusu Yahria's Idea of freedom is killing the Majorty of Citizens whlie enslaving the rest as she feels they have no place in the new world order
+## Brain Storm
+Yaharia, Bursun and Makkusu all want to end the war however Bursun wants to maintain the status quo while Makkusu and Yaharia wants to free the Cybervator however unbeknownst to Makkusu Yahria's Idea of freedom is killing the Majorty of Citizens whlie enslaving the rest as she feels they have no place in the new world order.
+
+Makkusu learns and reveals that Bursun and Yaharia are siblings
+
+Bursun and Yaharia did not know that they were siblings at first despite the ability to read each other's minds
+
+Makkusu created screen/goggles that gb&w cybervators use this was used so that Yaharia and Bursun would not be trick and so that he can see things through her eyes/perspective(theme?)
+
+  - Yaharia: wow I can see through your eyes. Yaharia/Makkusu: it's like you and I are one
+
+  - Max upgraded it to read thoughts as well and eliminated the need for blood but only needs to resonate with the right frequency
+
+  - It also is able tell exact qbits of of cybervators used in the future to establish Cybervator rankings
+
+## Plot
 
 The comic opens with Makkusu and Bursun fighting or preparing to fight each other
 
@@ -28,7 +43,7 @@ Later Yaharia and Makkusu learn that the tech he created was not only used for t
 
 The technolgy he regret
 
-Makkusu finds and saves an injured Yaharia
+Makkusu finds and saves an injured Yaharia. Makkusu uses the tech he created to regrow yaharia's limbs
 
 Makkusu: What's your name
 
@@ -42,7 +57,7 @@ Makkusu: Nope I found you so your My Nia know
 
 Yaharia: ha ha ha ok
 
-Yaharia is angry that Makkusu has told about their metting despite the fact that the news mentioned neither of their names and that it was far from intentional as his friend spikes ancester got the info from him.
+Yaharia is angry that Makkusu has told about their meeting despite the fact that the news mentioned neither of their names and that it was far from intentional as his friend spikes ancester got the info from him.
 
 Makkusu joins the military Cybervator division if he hasnt already and starts training them to cut the tail of other Cybervators rather than to kill them. At one point he has to sub for another unit and is told by their handler not to teach them that pacifist crap. Maybe this is a unit in which Bursun is in. 
 
@@ -52,6 +67,25 @@ Later Yahria rescues Makkusu who is charged with tresson puting her own self in 
 
   - Spike is intargated about how he got the informatioand is eventualy threaten of scene/script
   - Spike you've been found out they made me I had no choice sorry makkusu
+
+Makkusu askss Spike and Bursun to help save his sister Spike Understanding the meaning of familly force Bursun to do it.
+
+In the final mission is to rescue Yaharia who who is trying to expose the war when the cyvolters turn off the masking system allowing Cybervators to see the truth and threatening to show the world
+
+Spike Bursun Yaharia and Makkusu all work together with spike serving as the handler in order end the war. This changes when Bursun and spike turn against Makkusu and Yaharia. 
+
+After their last mission taking the last hub Bursun attack Yaharia and Makkusu and is being controlled by Spike. They sever the controls but Bursun still keeps fighting this is when it is learn that Bursun who was linked with Yaharia has learned that she plans to kill all the Citizens she didn't tell you Makkusu?! she plans to kill every Citizen on this planet leaving only the Cybervators
+
+You don't understand I have no other choice do you really want your... no our child to live in a world like this a world in which they no free limited to be nothing but a slave. 
+
+Makkusu but I thought that was impossible 
   
-  
-You shouldn't treat Citizens race poorly or oppress them not for the sake of altruism but for the sake of the children's children as they never know when a grandchild may become apart of the citizens you hate so much. And if people in power create a world that hates citizens then your future grandchild may be the one that is hated is that what you really want - Bursun/Makkusu»Yaharia
+upon learning that she is pregnant Makkusu tries to make them both stop fighting instead they fight with increasing intensity removing one limiter after another until they both Berserk with the help of spike manages to stop them but not before sacrifices himself in the process
+
+Before Makkusu dies he tells Yaharia You shouldn't treat Citizens race poorly or oppress them not for the sake of altruism but for the sake of the children's children as they never know when a grandchild may become apart of the citizens you hate so much. And if people in power create a world that hates citizens then your future grandchild may be the one that is hated is that what you really want
+
+Spike tells Yaharia that word of this can never get out not if she wants to create the world she has always wanted. Yaharia agrees but tells him that if he ever crosses her. He says that he won't but this is when he sets everything in place for future generation will have the tools to retake their power.
+
+They brand The Citizen Eclipse and the Cyvolters as the villians and Bursun and spike as the Hero that rescued Yaharia and exposed the truth to the world.
+
+Bursun is Yaharia is Bursun's brother their marriage was fabricated to prevent citizens from knowing that she had child with a citizen to maintain her pure image and to keep Makkusu role in the war hidden from history
