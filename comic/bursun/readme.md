@@ -78,9 +78,9 @@ Later Yahria rescues Makkusu who is charged with tresson puting her own self in 
       - he actually had no problems helping them infact he wanted to strike a deal with them so that he could maximize his profits
   - Spike you've been found out they made me I had no choice sorry makkusu
 
-Makkusu askss Spike and Bursun to help save his sister Spike Understanding the meaning of familly force Bursun to do it.
+Makkusu asks Spike and Bursun to help save his sister Spike Understanding the meaning of familly force Bursun to do it.
 
-In the final mission is to rescue Yaharia who who is trying to expose the war when the cyvolters turn off the masking system allowing Cybervators to see the truth and threatening to show the world
+The final mission is to rescue Yaharia who is trying to expose the war by turning off the masking system allowing Cybervators to see the truth and threatening to show the world
 
 Spike Bursun Yaharia and Makkusu all work together with spike serving as the handler in order end the war. This changes when Bursun and spike turn against Makkusu and Yaharia. 
 
