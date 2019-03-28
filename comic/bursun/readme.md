@@ -7,7 +7,7 @@ Makkusu learns and reveals that Bursun and Yaharia are siblings
 
   - Bursun and Yaharia did not know that they were siblings at first despite the ability to read each other's minds
 
-Makkusu created screen/goggles that gb&w cybervators use this was used so that Yaharia and Bursun would not be trick and so that he can see things through her eyes/perspective(theme?)
+Makkusu created screen/goggles that gb&w cybervators use this was used so that Yaharia and Bursun would not be trick and so that he can see things through her eyes/perspective
 
   - Yaharia: wow I can see through your eyes. Yaharia/Makkusu: it's like you and I are one
 
