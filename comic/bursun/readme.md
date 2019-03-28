@@ -50,8 +50,6 @@ He learns of the war through Yaharia who does not know that Citizens don't know 
 
 Later Yaharia and Makkusu learn that the tech he created was not only used for the war but also used to forcefully control cybervator in order so that they wil fight in the war. They learn of this when they discover Bursun is fight against  his own will
 
-The technolgy he regret
-
 Makkusu finds and saves an injured Yaharia. Makkusu uses the tech he created to regrow yaharia's limbs
 
 Makkusu: What's your name
