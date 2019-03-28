@@ -1,4 +1,4 @@
-# Cyber.Beast Bursun Outline
+﻿# Cyber.Beast Bursun Outline
 
 ## Brain Storm
 Yaharia, Bursun and Makkusu all want to end the war however Bursun wants to maintain the status quo while Makkusu and Yaharia wants to free the Cybervators however unbeknownst to Makkusu Yahria's Idea of freedom is killing the Majorty of Citizens whlie enslaving the rest as she feels they have no place in the new world order. Spike wants to keep the world fragmented as it will allow him to maximze profits even if it means war. Makkusu wants to unify the world one generation at a time even if it means turning the world against him
@@ -7,7 +7,7 @@ Makkusu learns and reveals that Bursun and Yaharia are siblings
 
   - Bursun and Yaharia did not know that they were siblings at first despite the ability to read each other's minds
 
-Makkusu created screen/goggles that gb&w cybervators use this was used so that Yaharia and Bursun would not be trick and so that he can see things through her eyes/perspective(theme?)
+Makkusu created screen/goggles that gb&w cybervators use this was used so that Yaharia and Bursun would not be trick and so that he can see things through her eyes/perspective
 
   - Yaharia: wow I can see through your eyes. Yaharia/Makkusu: it's like you and I are one
 
@@ -49,8 +49,6 @@ Makkusu Initally did not know that war was even being fought. Although he help t
 He learns of the war through Yaharia who does not know that Citizens don't know about the war. It is easy to keep it a secret since Cybervators and Citizens are segregated
 
 Later Yaharia and Makkusu learn that the tech he created was not only used for the war but also used to forcefully control cybervator in order so that they wil fight in the war. They learn of this when they discover Bursun is fight against  his own will
-
-The technolgy he regret
 
 Makkusu finds and saves an injured Yaharia. Makkusu uses the tech he created to regrow yaharia's limbs
 
