@@ -77,14 +77,23 @@ Later Yahria rescues Makkusu who is charged with tresson puting her own self in 
   - Spike is intargated about how he got the informatioand is eventualy threaten of scene/script
       - he actually had no problems helping them infact he wanted to strike a deal with them so that he could maximize his profits
   - Spike you've been found out they made me I had no choice sorry makkusu
+  - Yaharia holds of the Cybervators while Makkusu escapes only to be captured
+
 
 Makkusu asks Spike and Bursun to help save his sister Spike Understanding the meaning of familly force Bursun to do it.
 
-The final mission is to rescue Yaharia who is trying to expose the war by turning off the masking system allowing Cybervators to see the truth and threatening to show the world
+The final mission is to rescue Yaharia/Makkusu
+
+While on the rescue mission they discover a way to expose the war by turning off the masking system allowing Cybervators to see the truth and threatening to show the world
 
 Spike Bursun Yaharia and Makkusu all work together with spike serving as the handler in order end the war. This changes when Bursun and spike turn against Makkusu and Yaharia. 
 
-After their last mission taking the last hub Bursun attack Yaharia and Makkusu and is being controlled by Spike. They sever the controls but Bursun still keeps fighting this is when it is learn that Bursun who was linked with Yaharia has learned that she plans to kill all the Citizens she didn't tell you Makkusu?! she plans to kill every Citizen on this planet leaving only the Cybervators
+After their last mission taking the last hub Bursun attack Yaharia and Makkusu and is being controlled by Spike. They sever the controls but Bursun still keeps fighting this is when it is learn that Bursun who was linked with Yaharia has learned that she plans to kill all the Citizens 
+  - Spike takes control of the device and will use it to continue prfiting of of the Cybervators
+  - Yaharia wants to use the device to make the cybervators destroy all the citizen
+  - You're on the wrong side Makkusu
+  - No we're not the ones trying to keep the Cybervators enslaved
+  - haha thats rich coming from someone that... Wait she didn't tell you Makkusu?! Yaharia plans to kill every Citizen on this planet leaving only the Cybervators
 
 You don't understand I have no other choice do you really want your... no our child to live in a world like this a world in which they no free limited to be nothing but a slave. 
 
@@ -100,4 +109,8 @@ Spike tells Yaharia that word of this can never get out not if she wants to crea
 
 They brand The Citizen Eclipse and the Cyvolters as the villians and Bursun and spike as the Hero that rescued Yaharia and exposed the truth to the world.
 
-Bursun is Yaharia is Bursun's brother their marriage was fabricated to prevent citizens from knowing that she had child with a citizen to maintain her pure image and to keep Makkusu role in the war hidden from history
+Although Bursun is Yaharia's brother their marriage was fabricated to prevent citizens from knowing that she had child with a citizen to maintain her pure image and to keep Makkusu role in the war hidden from history
+
+Yaharia compromises with spike who proposes a competetion in which Cybervator fight eachother without killing eachother this will allow Spike to monitize on them and will turn Cybervators into idols for the citizens and they be loved rather than hated. Cybervator will control the world wealth this will prevent the minority from being oppressed since they are the ones in power.
+
+Since Cybervators were essentially weapons for Citizens which means they lost their power therefore no longer a threat
