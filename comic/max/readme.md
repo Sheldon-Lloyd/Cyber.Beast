@@ -14,7 +14,7 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Episodes: 52
 - Roles
   - Broadcaster/Commentator: Akia?, Spike
-  - Handlers/Cornerman/crew: Akia?, Makkusu
+  - Handlers/Cornerman/crew: Akia?, Max
   - Cybervator: Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
 - Max learns about limiters and realizes that neck/head band
@@ -77,14 +77,16 @@ Spike states that it is not a good idea to tell others about the secrets as it w
 
 Max is surprised by this as he is a reporter and one would think he would be the first to want to tell everyone. Spike tells him it is also a reporter job to use good judgement for what can potentaily be detraminal if the world knew about it.
 
-Makkusu makes the team as a cybervator but is not allowed to fight they are only allowed refuel and some give advice to fellow cybervator between rounds
+Max makes the team as a cybervator but is not allowed to fight they are only allowed refuel and some give advice to fellow cybervator between rounds
+
+Max's faces off against brutally violent injuring many of their Cybervators that they maybe forced to forfeit Max volunteers to be the Center/Marksmen Jax relunactly allows him to do it. To everyones surprise he is able to wield a Cyber.Beast
 
 Because of what commentators call neptunism Max is on Leona/Tomasina's team as a center. this however means they don't have a backup mainly because they rarely get injured.
 
 ### 3. Refusal Of The Call
 Episodes: 5, 6
 
-Jax tells Makkusu that it is to dangerous for him to become a Cybervator and that he will not allow it
+Jax tells Max that it is to dangerous for him to become a Cybervator and that he will not allow it
 
 Jax tries to stop Max by fighting him in Cyberspace to destory his Cyber.Beast Max tells him that if he loses he will just get another one Jax says And I will take as many times as I needs to.
 
@@ -186,7 +188,7 @@ Episodes: 31, 32, 33, 34
 
 Max wins the championships by using yet another technology he created allowing him to fight in a burstDrive like state
 
-After Makkusu wins more citizens have become insprired that they too can have equal power to that of cybervators
+After Max wins more citizens have become insprired that they too can have equal power to that of cybervators
 
 Spike is shown doing something ominous.
 
