@@ -21,6 +21,10 @@
 
 - Kyshumu's daugther killed he blames Xenos and the Cyvolters and declares war against CyTek after Airiona is arrested to make and example of her for the rest of the Cyvolters who has been chaotic to this point
  
+- Kyshumu is unable to cut off the tails of Cyvolters he asks the NRA for permission to kill members of as the fact that the Cyvolters are able and willing to kill has givin them an advantage
+
+- Kyshumu revokes ReNet protection from Citizens that is assumed to be aiding or supporting the Cyvolters in anyway. This backfires instead further angering the citizens.
+ 
 - This is Xenos' last season before he announces his retirement
 	
 	- Xenos gives a retirement speech before declaring himself the leader of the Cyvolters (maybe save this for next season)
@@ -45,6 +49,8 @@
 		
 		}
 		if(they win) Xenos: even though we lost today I wont give up on helping the Cyvolters mission of creating a world with equal opportunity for all. We have technology but sometime society needs that final push
+		
+		Xenos: Cyvolters have become large in number but needs to become unified in voice
 		
 		Xenos: From this moment forward I will the lead the Cyvolters. Change can happen, has happened and, will happen.
 	 
