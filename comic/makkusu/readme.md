@@ -18,6 +18,8 @@
 	Harmony is enraged by this and charges in to attack Kyshumu. Kyshumu thinks she is trying to help him and tells her to stand down that he has everything in control Avis realizes that she is not going after Airiona but rather Kyshumu he tells her to stop and jumps in front with his arms open. She barely moves her hand out of the way but it is not enough as the energy from the hand is enough to obliterate the left side of his head. She apologizes saying that she tried to stop or avoid him but could not. 
 	
 	This makes things worst as she goes berserk and Kyshumu and Xenos must work together Harmony to stop her.
+
+- Kyshumu's daugther killed he blames Xenos and the Cyvolters and declares war against CyTek after Airiona is arrested to make and example of her for the rest of the Cyvolters who has been chaotic to this point
  
 - This is Xenos' last season before he announces his retirement
 	
