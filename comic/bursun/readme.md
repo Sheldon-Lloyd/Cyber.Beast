@@ -64,11 +64,24 @@ Makkusu: A war I didn’t even know existed until a few years ago
 
 Flash back to were it all started
 
+### Call to adventure
 Yahaira discover how to remove her limiter allowing her to go into BurstDrive. After she desynergize she finds that military police is at her door to arrest her for doing so.
 
-  - But no one was injured
+  - Yahaira: But no one was injured
 
   - They realize her talent in being able to tame a Cyber.Beast tell her that she can either serve her time in prison or  serve her time fighting for them
+  
+  - Yahaira: < you mean fighting you mean I get to use my BurstDrive to and all I have to do is fight Cyber.Beast >
+  
+    Yahaira: Sign me up
+  
+### Refusal of Call  
+Yahaira is briefed for her first mission with Makkusu and learns that she is not just fighting Cybervators instead of Cyber.Beast realizing that she is fighting in a war no longer wants any part of it. She says that it is not what she signed up for.
+  
+  - Yaharia is told that she has no other option. 
+
+### Meeting the Mentor  
+Makkusu informs her that she doesn't have to kill other Cybervators that she only needs to cut off their tails. He tells her why he is fighting in this war but is interupted by a squad mate and tells her not listen and warns Makkusu not to ram his preachy ideology down her throat
 
 Makkusu Initially did not know that war was even being fought. Although he help to create and the tech to aid Cybervator in the war he thought it was being used to fight Cyber.Beast not in a War against other Cybervator
 
