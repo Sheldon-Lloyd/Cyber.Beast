@@ -88,9 +88,11 @@ Yahaira is briefed for her first mission with Makkusu and learns that she is not
 ### Meeting the Mentor  
 Makkusu informs her that she doesn't have to kill other Cybervators that she only needs to cut off their tails. He tells her why he is fighting in this war but is interupted by a squad mate and tells her not listen and warns Makkusu not to ram his preachy ideology down her throat
 
-Makkusu Initially did not know that war was even being fought. Although he help to create and the tech to aid Cybervator in the war he thought it was being used to fight Cyber.Beast not in a War against other Cybervator
+Makkusu tells her Initially did not know that war was even being fought. Although he help to create and the tech to aid Cybervator in the war he thought it was being used to fight Cyber.Beast not in a War against other Cybervator
 
-He learns of the war through Yahaira who does not know that Citizens don't know about the war. It is easy to keep it a secret since Cybervators and Citizens are segregated
+It is easy to keep it a secret since Cybervators and Citizens are segregated
+
+### Crossing the Threshold
 
 Later Yahaira and Makkusu learn that the tech he created was not only used for the war but also used to forcefully control cybervator in order so that they will fight in the war. They learn of this when they discover Bursun is fight against  his own will
 
