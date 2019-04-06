@@ -78,6 +78,8 @@ Yahaira discover how to remove her limiter allowing her to go into BurstDrive. A
 ### Refusal of Call  
 Yahaira is briefed for her first mission with Makkusu and learns that she is not just fighting Cybervators instead of Cyber.Beast realizing that she is fighting in a war no longer wants any part of it. She says that it is not what she signed up for.
   
+  - Yaharia is told the gladiator like event is only a cover for the war. They explain some of the backstory for the reason behind the war
+  
   - Yaharia is told that she has no other option. 
 
 ### Meeting the Mentor  
