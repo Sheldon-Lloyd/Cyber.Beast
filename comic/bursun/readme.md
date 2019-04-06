@@ -64,6 +64,9 @@ Makkusu: A war I didn’t even know existed until a few years ago
 
 Flash back to were it all started
 
+### Ordinary World
+Yahaira is watching Cybervators on TV fighting and die while going against Cyber.Beast in Gladiator fashion
+
 ### Call to adventure
 Yahaira discover how to remove her limiter allowing her to go into BurstDrive. After she desynergize she finds that military police is at her door to arrest her for doing so.
 
@@ -101,7 +104,7 @@ Makkusu: do mind if I call you by your last name My Nina
 
 Yahaira: you mean Minia
 
-Makkusu: Nope I found you so your My Nia know
+Makkusu: Nope I found you so your My Nia now
 
 Yahaira: ha ha ha ok
 
