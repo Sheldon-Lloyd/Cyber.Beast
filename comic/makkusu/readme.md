@@ -11,6 +11,13 @@
   - Cybervator: Minia, Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
 
+
+- Max's altruism becomes contagious and eventually becomes the basis for the Cyvolters identity at this point Max either accepts or realize that he is a Cyvolter or she is shown helping another cyvolter
+
+	- Max or someone that max helps someone or max saying its is solely for the purpose making him a stronger opponent strong enough to be a challenge for him in the future
+
+	- Someone joins forces with Max because they want the chance to fight someone even stronger than that protagonist in hopes of climbing up in ranking
+	
   - Minia learns that her mother is Torrey around the same time Max tells her his mother is torrey or learns that his mother is torrey or vice versa
   
   - Speeding Bullet is discovered to be Airiona during the tournament a fight ensues between Airiona and Kyshumu. Airiona is defeated Kyshumu.
@@ -18,6 +25,10 @@
 	Harmony is enraged by this and charges in to attack Kyshumu. Kyshumu thinks she is trying to help him and tells her to stand down that he has everything in control Avis realizes that she is not going after Airiona but rather Kyshumu he tells her to stop and jumps in front with his arms open. She barely moves her hand out of the way but it is not enough as the energy from the hand is enough to obliterate the left side of his head. She apologizes saying that she tried to stop or avoid him but could not. 
 	
 	This makes things worst as she goes berserk and Kyshumu and Xenos must work together Harmony to stop her.
+
+### Part 2
+Based on The Battle of Homestead: https://battleofhomestead.org/bhf/the-battle-of-homestead/
+- Despite the fact that the NRA and CNS has now made it legal for citizens to compete in the between ReNet has denied them this furthurs tensions between ReNet and its members
 
 - Kyshumu's daugther killed he blames Xenos and the Cyvolters and declares war against CyTek after Airiona is arrested to make and example of her for the rest of the Cyvolters who has been chaotic to this point
  
@@ -55,19 +66,19 @@
 		Xenos: From this moment forward I will the lead the Cyvolters. Change can happen, has happened and, will happen.
 	 
 - In the second season years later the Cyvolters is now considered the Citizens league begin to do a type of initiation or point system in which Cybervators(not citizens) must attack "bad" cybervators in order to become a Cyvolter -- it is a rule created by Citizens.
-	- The Cyvolters increase in sizes has become a detriment to their initial values
+	- Every accept Kyshumu(think it was Xenos) thinks it was Airiona a Cybervator that killed Leona who they think did it in order to join
+	- The Cyvolters increase in size has become a detriment to their initial values
 	- Since anyone can be a Cyvolter they are doing whatever they want and claim to be apart of the Cyvolters, because of this the Cyvolters realize they need a leader to lay a framework and places that duty upon Xenos.
 	- Airiona is upset by the way the other cyvolter are acting she realizes that citizens can be just as bad as cybervator
 	- This changes Airiona strengthens belief that the majority of of Cybervators are stupid instead all humans are. Xenos tells her that it actually mob mentality and selfish preservation that cause people to act this way. people don't want to be alone so they follow what they may think is the masses no matter how wrong it maybe to protect their self
-
-- Max's altruism becomes contagious and eventually becomes the basis for the Cyvolters identity at this point Max either accepts or realize that he is a Cyvolter or she is shown helping another cyvolter
-
-	- Max or someone that max helps someone or max saying its is solely for the purpose making him a stronger opponent strong enough to be a challenge for him in the future
-
-	- Someone joins forces with Max because they want the chance to fight someone even stronger than that protagonist in hopes of climbing up in ranking	
+	- After this incident the Cyvolter are seen as a massive threat and suspends the CNS in order to turn focus on bringing down the Cyvolters. This leaves many citizens with out a source if income which causes more citizens to join
+	- This prompts Xenos to delare himself the leader of the Cyvolters in order to set it ground rules(not killing). Cybervator who mentored under Xenos begens to join the Cyvolters bring their friends along with them
 	
+- Citizens think Airiona hides her identity in order to disguise her self as a citizen and that by killing a cybervator she was allowed to join
 
+- Maybe after Xenos dies Citizens and cyvolters decides that any Subnets that are not with them are against them which leads most of BluNet to side with the Cyvolters
 
+- Kyshumu is "assainated" allowing Tomasina to become Interim Chief who is also a Cyvolters who works to end the conflict with the Cyvolters pining the blame Eclipse alone. She also promises to allow citizens to join the CNS under ReNet
 
 
 ##	Act 1
