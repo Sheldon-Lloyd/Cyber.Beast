@@ -162,7 +162,7 @@ Makkusu tries to make them both stop fighting instead they fight with increasing
   
   - Makkusu tells Spike if I don't make it just make sure the world know that Bursun and My Nia was the hero even if it means I have to be the villain. The world would never accept Cybervators otherwise. Spike ask him but what transparency. Makkusu replies I've learned that you can't have everything that their is a balance and a time and place for everything.
 
-Before Makkusu dies he tells Yahaira You shouldn't treat Citizens race poorly or oppress them not for the sake of altruism but for the sake of the children's children as they never know when a grandchild may become apart of the citizens you hate so much. And if people in power create a world that hates citizens then your future grandchild may be the one that is hated is that what you really want
+Before Bursun dies he Bursun/Makkusu tells Yahaira You shouldn't treat Citizens race poorly or oppress them not for the sake of altruism but for the sake of the children's children as they never know when a grandchild may become apart of the citizens you hate so much. And if people in power create a world that hates citizens then your future grandchild may be the one that is hated is that what you really want
 
 Spike tells Yahaira that word of this can never get out not if she wants to create the world she has always wanted. Yahaira agrees but tells him that if he ever crosses her. He says that he won't after he seen that power she has he realized that no one in this world could stop her and that he wants to be on the winning side. But this is when he sets everything in place for future generation will have the tools to retake their power.
 
@@ -172,4 +172,16 @@ Although Bursun is Yahaira's brother their marriage was fabricated to prevent ci
 
 Yahaira compromises with spike who proposes a competition in which Cybervator fight each other without killing each other this will allow Spike to monetize on them and will turn Cybervators into idols for the citizens and they be loved rather than hated. Cybervator will control the world wealth this will prevent the minority from being oppressed since they are the ones in power.
 
-Since Cybervators were essentially weapons for Citizens which means they lost their power therefore no longer a threat
+Citizens became completly dependent on Cybervators who were essentially weapons for Citizens which means they lost their power therefore no longer a threat.
+
+NRA promised to provide protection for the citizens pariculary from Eclipse.
+
+With the fall of the old world order. with the collapse, people need someone to lead them that leadership came in the form of hundreds of corporations. Because of the war BitGems had already become currency of the world which these companies all compete to capitalize on. Each company had their own method some even tried to hire Cybervator to illegaly steal Satellites containing BitGems. This was however thwarted by the CyOps of the NRA who made an example of these companies with severe punishment.
+
+Companies took it upon their selves to provide aid for the citizens. However since the NRA no longer allowed regional based goverment companies would instead recruit people to be a member. This cause companies to threat and people to act as if each person essentially were individual colonies. If company no longer likes a member they can excommunicate them and a member can just as easily leave a company they no longer agreee with.
+
+Only 2 companies survived this scramble to grab hold of the new world order ReNet and BluNet. This was thanks a non profit organization called the CNS which was supposed to be comprised of more than just BluNet an ReNet. Unfortunately only these two companies joined and prefered to be refered to as networks rather than companies. BluNet was the first to join as they had seen it as an opportunity to place Cybervators on a pedestal. The owner of ReNet on the other as usual for poeple of the Red Nation joined merely to compete against BluNet.
+
+The CNS provided a UBI for citizens who had trouble obtaining GemBits. Cybervators had the opporunity to be admired. The CNS and Networks within it became the go to place for Citizens and Cybervator alike. Thee intense competion between ReNet and BluNet fueled it growth. Ultimately BluNet and ReNet survived through a combination of competing with each other in the CNS and buying the companies that did do to not joiing the CNS in it's infancy.
+
+Initialy each citizen and Cybervator joined the network they were originally affliated with. This was until mixed teams those that consisted of Cybervators from all 5 races became the most successful. Once Cybervators relinquished their bias the Citizens did as well as they followed besst teams or their favorite Cybervator rather than blindly stick to one network.
