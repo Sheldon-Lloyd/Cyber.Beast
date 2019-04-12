@@ -27,7 +27,7 @@
 	This makes things worst as she goes berserk and Kyshumu and Xenos must work together Harmony to stop her.
 
 ### Part 2
-Based on The Battle of Homestead: https://battleofhomestead.org/bhf/the-battle-of-homestead/, https://en.wikipedia.org/wiki/Homestead_strike
+Based on The Battle of Homestead [[1](https://battleofhomestead.org/bhf/the-battle-of-homestead/)], [[2](https://en.wikipedia.org/wiki/Homestead_strike)] and the the Football war by which the war is triggered by a sporting match[[1](https://en.wikipedia.org/wiki/Football_War)]
 - Despite the fact that the NRA and CNS has now made it legal for citizens to compete in the between ReNet has denied them this furthurs tensions between ReNet and its members
 
 - Kyshumu's daugther killed he blames Xenos and the Cyvolters and declares war against CyTek after Airiona is arrested to make and example of her for the rest of the Cyvolters who has been chaotic to this point
