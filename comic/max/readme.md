@@ -14,7 +14,7 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Episodes: 52
 - Roles
   - Broadcaster/Commentator: Akia?, Spike
-  - Handlers/Cornerman/crew: Akia?, Max
+  - Cornerman/crew: Akia?, Max
   - Cybervator: Jax, Airiona, Xenos, Ace, Harmony
   - Chief: Kyshumu, Alex  
 - Max learns about limiters and realizes that neck/head band
@@ -25,6 +25,9 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Xenos: If your not striving for progress it wont be guaranteed you will not regress
 - Cybervators start going Berserk for the first time in since Makkusu's parents was killed by Cyber.Beast which Tomasina talks about cuting it short
 	- Tomasina: This the first Berserk Cyber.Beast since Torrey... (she looks at Max)I mean your parents was killed by one
+	
+- Max is going to change the preception of who can be a cybervator in the future will no citizen be designated Cornerman and told they can't be a Cybervator beacuse they will be able to point to Max and say I can
+
 ## Act 1
 ### 1. Ordinary World
 Episodes: 1, 2
