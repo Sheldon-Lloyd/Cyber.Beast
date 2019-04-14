@@ -135,13 +135,25 @@ While on the rescue mission they discover a way to expose the war by turning off
 Yahaira→Makkusu {
   Makkusu is about to go into the center of the moon of bottom of a hub
 
-  You can't you'll kill yourself. As soon as you have children you no longer have the right to your own life it belongs to your children.
+  You can't you'll kill yourself. 
+  
+  Is this your way for trying to make up for your past
+  
+  I'm doing this for the next generation of cybervators a generation that will be better off withou people like me
+  
+  Is that what this is about!
+  
+  My mother/father always told my mother/father(maybe from earlier flasback in which she remembers her parents on in which who tried to kill their self ass they could no longer tolertate the living conditions of of cybervator) As soon as you have children you no longer have the right to your own life it belongs to your children.
 
   Makkusu: What are you talking about, you're not making any since
 
   Yahaira: I'm pregnant 
 
   Makkusu: but I thought that was impossible 
+  
+  Bursun: I'll do it
+  
+  When bursun goes into the black hole by placing only his conisness in it instead. he see's a flash of the future in which aliens destroy their world
 
 }
 
@@ -154,7 +166,7 @@ After their last mission taking the last hub Bursun attack Yahaira and Makkusu a
   - No we're not the ones trying to keep the Cybervators enslaved
   - haha that's rich coming from someone that... Wait she didn't tell you Makkusu?! Yahaira plans to kill every Citizen on this planet leaving only the Cybervators
 
-You don't understand I have no other choice do you really want your... no our child to live in a world like this a world in which they no free limited to be nothing but a slave. 
+You don't understand I have no other choice do you really want your... no our child to live in a world like this a world in which they no free limited to be nothing but a slave. You said it your self you wanted to make the world better for future generations.
 
 
   
