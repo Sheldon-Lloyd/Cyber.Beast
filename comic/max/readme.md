@@ -248,15 +248,21 @@ Spike: You see you are not only a cybervator and not just a xybrid either but ra
 
 Spike: Berserkers are rare but The chance that a Berserker is born increase 20 fold when a Cybervator has a child with a citizen which is why marriages between the two is prohibited.
 
+Max: Noo no no I don't believe you no I refuse to believe you
+
 Berserkers are cybervators that do not need to meditate in order to hyperlink with a cyber.beast. which makes them dangrous so they are killed. this is a secret known only by the highest ranked cybervators
 
 Spike wispers: You see it wasn't just any cyber.beast that killed your parents it was you.
+
+Max: Noooooo! Noooooooo!
 
 Spike: Whats wrong Max? Ha ha ha, You're not the paragon you thought you were are you
 
 Tomasina: don't listen to him he's lying
 
 Spike: and poor Yaharia had to sacrifice her self to save everyone else
+
+Max: Argh! Aah!
 
 Max goes berserk upon being told he killed his parents
 
