@@ -35,10 +35,14 @@ when Yahaira was younger she was taken from her family and was experimented on a
 
 Yahaira was rescued by the White and/or Blue Nation and allowed to live as long as she wore her limiter.
 
+Makkusu uses a solar sail to get to the moon
 
+Makkusu created the virus that eventualy becomes a feature of CSDs that allowed him to record and broadcast all Cybervators that comes in contact with the Virus. This becomes the beginings of the 2 way panopticon created within the future CNS as Makkusu virus not only effects Cybervators but his self as well. This is how he slowly exposes the war to world and at the same time gains more followers.
+
+At first only cybervators of the Red Nation and those affiliated with them are exposed but this changes thanks to maybe spike who does not want to be left with a world controled by one nation as competion between the Blue and Red Nation is how he made his money. He then takes it upon his self to be the one that exposes the Blue Nation for manipulating and sometimes black mailing Cybervators.
 
 ## Plot
-Most Cybervators don’t know they are fighting a war for citizens as far as they know they are merely defending citizens from Cyber.Beast. Which is true considering the fact that it is another cybervators welding the Cyber.Beast they are fighting.
+Most Cybervators don’t know they are fighting a war for citizens as far as they know they are merely defending citizens from Cyber.Beast. Which is true considering the fact that it is another cybervators weilding the Cyber.Beast they are fighting.
 
 Citizens also don’t know about this war that is until a Scientist named Makkusu wants to more than just build tech to aid the Cybervators but wants to fight with them as well.
 
@@ -46,17 +50,15 @@ Many people speculated that a war may have being fought between the Red and Blue
 
 
 ## Outline
-The comic opens with Makkusu and Bursun fighting or preparing to fight each other
+The comic opens with Makkusu and Bursun fighting or preparing to fight each other it is a recording of events he left for future generations
 
-| Makkusu                                                                 | Bursun                                                         |
-|-------------------------------------------------------------------------|----------------------------------------------------------------|
-| My name is Makkusu.                                                     | They call me Bursun/The honey badger/00.                       |
-| I have been mentoring/training the next Generation of Cybervators to fight in this war. | I'm a Cybervator who fights for the citizens of the Red Nation |
+Makkusu
+My name is Makkusu.
+I have been mentoring/training the next Generation of Cybervators to fight in this war. 
 
-| Makkusu and Bursun                                                 |
-|--------------------------------------------------------------------|
-| I don’t do it because I believe in war.                            |
-| I do it because I believe it is the best way to stop/end this war. |                                                                  
+Makkusu
+I don’t do it because I believe in war.
+I do it because I believe it is the best way to stop/end this war.                                                               
 
 Bursun and Makkusu/Yahaira charges at each other with Makkusu pointing
 
@@ -197,3 +199,5 @@ Only 2 companies survived this scramble to grab hold of the new world order ReNe
 The CNS provided a UBI for citizens who had trouble obtaining GemBits. Cybervators had the opporunity to be admired. The CNS and Networks within it became the go to place for Citizens and Cybervator alike. Thee intense competion between ReNet and BluNet fueled it growth. Ultimately BluNet and ReNet survived through a combination of competing with each other in the CNS and buying the companies that did do to not joiing the CNS in it's infancy.
 
 Initialy each citizen and Cybervator joined the network they were originally affliated with. This was until mixed teams those that consisted of Cybervators from all 5 races became the most successful. Once Cybervators relinquished their bias the Citizens did as well as they followed besst teams or their favorite Cybervator rather than blindly stick to one network.
+
+The story ends with Max/Spike watching the history which was recorded by Makkusu
