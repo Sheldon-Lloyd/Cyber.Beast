@@ -17,7 +17,7 @@
     
     level 4: killing cybervators/citizens that may disrupt order (only 12 cybervators are at this level at one time)
     
-    Xenos however does the opposite and chooses cybervators that will hesitate to complete these missions whivh is why Minia and not Jax is selected to join the CyberOps.
+    Xenos however does the opposite and chooses cybervators that will hesitate to complete these missions which is why Minia and not Jax is selected to join the CyberOps.
   - Cyvolters
   
 
@@ -30,9 +30,22 @@
 
 - Minia learns that the Cyber.Beast she is assigned to kill are former Cybervators and learning so is a test of her loyalty/trustworthyness
 
-- Makkusu goes from being a fan to cyberops handler for minia/Makkusu becomes the first citzen to a handler for a cybervator in the CNS
+- Jax and Leona come home walking close side by side looking at each other laughing and playing with eachother indicating a growing relationship. This happens after Jax tells Minia about his refusal of the arrangement--minia is maybe seen getting some what jealous after first approaching jax about something prompting her to leave and spend time with max instead. This later leads up to event in which max kills Leona.
+  - Minia: Hey Jax I was thinking...(she wants him to join Max's team with her)
+  
+    Jax: whats up
+    
+    Minia: Oh! um. I was just thinking about visiting Max
+    
+    Minia then hurries away
 
-- Minia discovers who eclipse is or reveals that she already knows
+- Max kills Leona but Xenos takes credit for it Max tries to tell her that he did it but she refuses to believe him insisting that he is to good of a person to have done it
+  - When she learns/accepts the truth she is enraged
+  
+- When Max saves Minia Jax comes looking for him
+  - Jax: Max! Maax! dude I know you are home where are you
+  - Minia reveals that she already knows he is Eclipse 
+  - Minia spends the rest of the arc trying to convince Max leave the Cyvolters as Xenos has corrupted it.
 
 ## Act 1
 
