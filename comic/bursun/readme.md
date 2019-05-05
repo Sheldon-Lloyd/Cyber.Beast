@@ -31,8 +31,6 @@ Makkusu: Yeah but people that are materialistic will become money driven -- Peop
 
 Makkusu finds Yahaira's CSD while on a mission capturing a hub she calls to be teleported back down from her satellite as she got injured on her mission. Instead of destroying it or teleporting her back and arresting her he takes her CSD home then teleports her back to earth in his home. Her is where he heals her and names her My Nia reading her name off of his/her CSD
 
-when Yahaira was younger she was taken from her family and was experimented on and forced to become a Cyber.Beast at one point she escaped and runs into a young Makkusu back when her name was Yahaira. Makkusu's parents tells him to stay away from her because she is a Cybervator despite him claim her as his own. His parent then calls the military police who sends her back to where she belongs.
-
 Yahaira was rescued by the White and/or Blue Nation and allowed to live as long as she wore her limiter.
 
 Makkusu uses a solar sail to get to the moon
@@ -79,7 +77,7 @@ Makkusu is briefed for his first mission with Yahaira and learns that he is not 
   -  Makkusu is told the gladiator like event is only a cover for the war. They explain some of the backstory for the reason behind the war
   
   
-once he crosses the thresehold(telling yaharia that he is not supposed to be there) he learn that it is secret war that was being fought all along. He then sets out to create tech to end the war still beleving that it will fix everything(The world is broken and technolgy will be the catylst that will change it). This is until he learns even well intioned tech can be misused such as the tech he created that he learns was used by the red nation control cybervators. Makkusu goes on a mission in which he fights Bursun Yaharia recgonizes him and Makkusu is confused as to why he is attackinh her despite this fact. He then realize that Cybervtors are not kept enslaved due to the lack of technolgy but instead due to fact that they want to keep the war hidden(do you still think the war can be changed with technology alone)
+once he crosses the thresehold(telling yaharia that he is not supposed to be there) he learn that it is secret war that was being fought all along. He then sets out to create tech to end the war still beleving that it will fix everything(The world is broken and technolgy will be the catylst that will change it). Makkusu is told that Technology is what caused the war but he believes it is because the tech was made with the purpose of war and he will do the opposite(Makuusu technolgy started and technolgy will end it).This is until he learns even well intioned tech can be misused such as the tech he created that he learns was used by the red nation control cybervators. Makkusu goes on a mission in which he fights Bursun Yaharia recgonizes him and Makkusu is confused as to why he is attackinh her despite this fact. He then realize that Cybervtors are not kept enslaved due to the lack of technolgy but instead due to fact that they want to keep the war hidden(do you still think the war can be changed with technology alone)
 
 ### Meeting the Mentor  
 tells yahaira that he is not supposed to be there and resposnds telling him that she knows he learns that it is secret war that was being fought all along. 
@@ -92,29 +90,39 @@ It is easy to keep it a secret since Cybervators and Citizens are segregated
 
 ### Crossing the Threshold
 
-He then sets out to create tech to end the war still beleving that it will fix everything(The world is broken and technolgy will be the catylst that will change it). This is until he learns even well intentioned tech can be misused such as the tech he created that he learns was used by the red nation control cybervators. Makkusu goes on a mission in which he fights Bursun Yaharia recgonizes him and Makkusu is confused as to why he is attackinh her despite this fact. He then realize that Cybervtors are not kept enslaved due to the lack of technolgy but instead due to fact that they want to keep the war hidden(do you still think the war can be changed with technology alone)
+He then sets out to create tech to end the war still beleving that it will fix everything(The world is broken and technolgy will be the catylst that will change it). This is until he learns even well intentioned tech can be misused such as the tech he created that he learns was used by the red nation control cybervators. 
+
+### Test, Allies, Enemies
+
+Makkusu goes on a mission in which he fights Bursun Yaharia recgonizes him and Makkusu is confused as to why he is attackinh her despite this fact. He then realize that Cybervtors are not kept enslaved due to the lack of technolgy but instead due to fact that they want to keep the war hidden(do you still think the war can be changed with technology alone)
 
 Later Yahaira and Makkusu learn that the tech he created was not only used for the war but also used to forcefully control cybervator in order so that they will fight in the war. They learn of this when they discover Bursun is fight against  his own will
 
-Makkusu finds and saves an injured Yahaira. Makkusu uses the tech he created to regrow Yahaira's limbs
+when Yahaira was younger she was taken from her family and was experimented on and forced to become a Cyber.Beast at one point she escaped and runs into a young Makkusu back when her name was Yahaira. Makkusu's parents tells him to stay away from her because she is a Cybervator despite him claim her as his own. His parent then calls the military police who sends her back to where she belongs.
 
-Makkusu: What's your name
+- A 10 year old Makkusu finds and saves an 17 year old injured Yahaira. Makkusu uses the tech he created to regrow Yahaira's limbs
 
-Yahaira: Yahaira Minia
+  Makkusu: What's your name
 
-Makkusu: do mind if I call you by your last name My Nina
+  Yahaira: Yahaira Minia
 
-Yahaira: you mean Minia
+  Makkusu: do mind if I call you by your last name My Nina
 
-Makkusu: Nope I found you so your My Nia now
+  Yahaira: you mean Minia
 
-Yahaira: ha ha ha ok
+  Makkusu: Nope I found you so your My Nia now
 
-Yahaira is angry that Makkusu has told about their meeting despite the fact that the news mentioned neither of their names and that it was far from intentional as his friend spikes ancestor got the info from him.
+  Yahaira: ha ha ha ok
+
+Yahaira is angry that Makkusu has told about their meeting despite the fact that the news mentioned neither of their names and that it was far from intentional as his spikes ancestor got the info from him.
 
 Makkusu joins the military Cybervator division if he hasn't already and starts training them to cut the tail of other Cybervators rather than to kill them. At one point he has to sub for another unit and is told by their handler not to teach them that pacifist crap. Maybe this is a unit in which Bursun is in. 
 
 Makkusu starts going on missions during eclipses in an attempt to fixed the world and end the war. He does not kill but rather cuts the tails of cybervators. The media coins him with the name eclipse. A cybervator he spares at want point in the future will aid him defecting from their unit.
+
+
+### Approach
+Learning that his tech is what aided
 
 Later Yahaira rescues Makkusu who is charged with treason putting her own self in jeopardy he ask why she would do something like that and that she should not have. She tells him ~~You forgot?~~ It's because I'm your Nia silly
 
