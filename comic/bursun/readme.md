@@ -53,11 +53,12 @@ Many people speculated that a war may have being fought between the Red and Blue
 The comic opens with Makkusu and Bursun fighting or preparing to fight each other it is a recording of events he left for future generations
 
 Makkusu
-My name is Makkusu.
+My name is Yahaira.
+
 I have been mentoring/training the next Generation of Cybervators to fight in this war. 
 
-Makkusu
 I don’t do it because I believe in war.
+
 I do it because I believe it is the best way to stop/end this war.                                                               
 
 Bursun and Makkusu/Yahaira charges at each other with Makkusu pointing
@@ -67,27 +68,22 @@ Makkusu: A war I didn’t even know existed until a few years ago
 Flash back to were it all started
 
 ### Ordinary World
-Yahaira is watching Cybervators on TV fighting and die while going against Cyber.Beast in Gladiator fashion
+Makkusu is watching Cybervators on TV fighting and dying while going against Cyber.Beast in Gladiator fashion
 
 ### Call to adventure
-Yahaira discover how to remove her limiter allowing her to go into BurstDrive. After she desynergize she finds that military police is at her door to arrest her for doing so.
-
-  - Yahaira: But no one was injured
-
-  - They realize her talent in being able to tame a Cyber.Beast tell her that she can either serve her time in prison or  serve her time fighting for them
-  
-  - Yahaira: < you mean fighting you mean I get to use my BurstDrive to and all I have to do is fight Cyber.Beast >
-  
-    Yahaira: Sign me up
+Makkusu starts of as an inovator. he thinks that he is creating tech to help the world defeat cyberbeast and belive technnolgy alone will make the world a better place. He created much of the tech allowing cybervators to fight cyber.beast he learns that the world is not what he once thought when he creates tech he feels it will let citzens to fight as well eliminating the need to enslave Cybervators inorder to have the do the dirty work. 
   
 ### Refusal of Call  
-Yahaira is briefed for her first mission with Makkusu and learns that she is not just fighting Cybervators instead of Cyber.Beast realizing that she is fighting in a war no longer wants any part of it. She says that it is not what she signed up for.
+Makkusu is briefed for his first mission with Yahaira and learns that he is not just fighting Cybervators instead of Cyber.Beast. Realizing that he is fighting in a war no longer wants any part of it. He says that it is not what she signed up for.
   
-  - Yaharia is told the gladiator like event is only a cover for the war. They explain some of the backstory for the reason behind the war
+  -  Makkusu is told the gladiator like event is only a cover for the war. They explain some of the backstory for the reason behind the war
   
-  - Yaharia is told that she has no other option. 
+  
+once he crosses the thresehold(telling yaharia that he is not supposed to be there) he learn that it is secret war that was being fought all along. He then sets out to create tech to end the war still beleving that it will fix everything(The world is broken and technolgy will be the catylst that will change it). This is until he learns even well intioned tech can be misused such as the tech he created that he learns was used by the red nation control cybervators. Makkusu goes on a mission in which he fights Bursun Yaharia recgonizes him and Makkusu is confused as to why he is attackinh her despite this fact. He then realize that Cybervtors are not kept enslaved due to the lack of technolgy but instead due to fact that they want to keep the war hidden(do you still think the war can be changed with technology alone)
 
 ### Meeting the Mentor  
+tells yahaira that he is not supposed to be there and resposnds telling him that she knows he learns that it is secret war that was being fought all along. 
+
 Makkusu informs her that she doesn't have to kill other Cybervators that she only needs to cut off their tails. He tells her why he is fighting in this war but is interupted by a squad mate and tells her not listen and warns Makkusu not to ram his preachy ideology down her throat
 
 Makkusu tells her Initially did not know that war was even being fought. Although he help to create and the tech to aid Cybervator in the war he thought it was being used to fight Cyber.Beast not in a War against other Cybervator
@@ -95,6 +91,8 @@ Makkusu tells her Initially did not know that war was even being fought. Althoug
 It is easy to keep it a secret since Cybervators and Citizens are segregated
 
 ### Crossing the Threshold
+
+He then sets out to create tech to end the war still beleving that it will fix everything(The world is broken and technolgy will be the catylst that will change it). This is until he learns even well intentioned tech can be misused such as the tech he created that he learns was used by the red nation control cybervators. Makkusu goes on a mission in which he fights Bursun Yaharia recgonizes him and Makkusu is confused as to why he is attackinh her despite this fact. He then realize that Cybervtors are not kept enslaved due to the lack of technolgy but instead due to fact that they want to keep the war hidden(do you still think the war can be changed with technology alone)
 
 Later Yahaira and Makkusu learn that the tech he created was not only used for the war but also used to forcefully control cybervator in order so that they will fight in the war. They learn of this when they discover Bursun is fight against  his own will
 
@@ -200,4 +198,4 @@ The CNS provided a UBI for citizens who had trouble obtaining GemBits. Cybervato
 
 Initialy each citizen and Cybervator joined the network they were originally affliated with. This was until mixed teams those that consisted of Cybervators from all 5 races became the most successful. Once Cybervators relinquished their bias the Citizens did as well as they followed besst teams or their favorite Cybervator rather than blindly stick to one network.
 
-The story ends with Max/Spike watching the history which was recorded by Makkusu
+The story ends with Max/Spike watching the history which was recorded by Spike using the tech Makkusu created
