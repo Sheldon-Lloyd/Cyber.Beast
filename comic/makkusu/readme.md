@@ -43,6 +43,8 @@ Based on The Battle of Homestead [[1](https://battleofhomestead.org/bhf/the-batt
 		Xenos: I want the future to be a world were there are no distinctions between citizen and cybervator one in which everyone is a cybervator in their on right.
 			
 		Xenos: Up to this point Cyvolters has not had a leader. Because of this they have done some things I am not proud. many if which goes against the vision/values of the Cyvolter. Without a leader the Cyvolters will become nothing more than an organization resembling a chicken without a head.
+		
+		A group who is not beholden to a leader will fall into chaos and a leader not beholden to their people will fall into evil
 			
 		It may be better if this show by using each person as an example rather than told {
 		
