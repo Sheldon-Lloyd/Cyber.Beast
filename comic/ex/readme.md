@@ -28,3 +28,5 @@ Burdun tells Xenos to put Makkusu in the match as he predicted that it would mak
 
 Max offers to help Bursun defeat the Matrioshka brain by going into a future in which he will not be able to return from. In exchange he will he will free everyone.
 
+Max goes to the future to fight the Matrioshka Brain when he gets their he see sphere so masive the he becomes disourage at first. He eventually is able to penetrate the ball. Unfortatnly there is more than wall he must break through. It is defended by soilders which is much like an immune system. At first he has to fight thousands The Matrioshka eventually realizes that is an ineffeint way to stop Max as he only needed to defeat a few of them before drilling down to the next level. The Matrioshka then pours all of its energy into creating a humanoid with universal level strength. This is when Max Awakens his White Hole ability in order to defeat it. Upon defeat the Matrioshka brain he learns that they too are doing to protect rather than mere greed. The Matrioshka is meant to protect the Universe from the Galatinoids
+
