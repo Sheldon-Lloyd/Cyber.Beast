@@ -42,7 +42,9 @@ At first only cybervators of the Red Nation and those affiliated with them are e
 ## Plot
 Most Cybervators don’t know they are fighting a war for citizens as far as they know they are merely defending citizens from Cyber.Beast. Which is true considering the fact that it is another cybervators weilding the Cyber.Beast they are fighting.
 
-Citizens also don’t know about this war that is until a Scientist named Makkusu wants to more than just build tech to aid the Cybervators but wants to fight with them as well.
+Citizens are lead to believe that Cybervator are fighting in a gladiator sport and must travel down hubs to "kill" Cyber.Beast before they surface
+
+Blue Nation Citizens also don’t know about this war that is until a Scientist named Makkusu wants to more than just building tech to aid the Cybervators -- he wants to fight with them as well.
 
 Many people speculated that a war may have being fought between the Red and Blue nation. Most thought it was at most limited to just Cyberspace
 
