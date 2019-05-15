@@ -27,6 +27,10 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 	- Tomasina: This the first Berserk Cyber.Beast since Torrey... (she looks at Max)I mean your parents was killed by one
 	
 - Max is going to change the preception of who can be a cybervator in the future will no citizen be designated Cornerman and told they can't be a Cybervator beacuse they will be able to point to Max and say I can
+- Spike declares war on the NRA. 
+	Max: ha you and what army
+	Spike: This army
+	Spike reveals all of the Cybervators that are now under his control
 
 ## Act 1
 ### 1. Ordinary World
