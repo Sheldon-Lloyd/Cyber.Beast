@@ -17,5 +17,3 @@ Yaharia tries to talk to him
 **Yaharia(yells):** Hey Bursun! Is that you?
 
 Bursun looks but does not say anything as he attacks more Cyber.Beast
-
-**Yaharia:** Yep that's definitely bursun/It is you!
