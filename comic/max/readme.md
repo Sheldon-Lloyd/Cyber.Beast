@@ -283,6 +283,8 @@ Airiona turns on Spike and she succesully plants the virus in Spike this frees B
 
 Bursun stops the wrath of Max with ease
 
+Jax is surprised as he goes to attack Bursun he desynergizes despite the fact that still has plenty of energy left. The CSD/Cyber.Beast which Jax took from Max earlier in the story returns to him.
+
 Bursun is angry at what Spike did it seems like he will save everyone but he instead decide to place everyone in the collective consciousness stating that humans cannot be trusted to be left to their own vices
 
 Burun realizes that his sister was right that Citizens and Cybervators can never coexist
