@@ -24,7 +24,7 @@ Bursun: Yahaira/Makkusu!!! You think you can just trust in the children to make 
 
 Yahaira: Isn't he your friend
 
-Makkusu: Yeah but people that are materialistic will become money driven -- People that put money first will never put people first
+Makkusu: Yeah but he's money driven -- People that put money first will never put people first
 
 }
 
@@ -37,6 +37,14 @@ Makkusu uses a solar sail to get to the moon
 Makkusu created the virus that eventualy becomes a feature of CSDs that allowed him to record and broadcast all Cybervators that comes in contact with the Virus. This becomes the beginings of the 2 way panopticon created within the future CNS as Makkusu virus not only effects Cybervators but his self as well. This is how he slowly exposes the war to world and at the same time gains more followers.
 
 At first only cybervators of the Red Nation and those affiliated with them are exposed but this changes thanks to maybe spike who does not want to be left with a world controled by one nation as competion between the Blue and Red Nation is how he made his money. He then takes it upon his self to be the one that exposes the Blue Nation for manipulating and sometimes black mailing Cybervators.
+
+Bursn killed many Cybervators but this is changed within history knowing how revered he was as a figure to many Cybervators and citizens alike instead the blame was pinned on eclipse which is the alter ego of both he and Makkusu although Makkusu was the first to take the mantle
+
+Bursun thinks his family was killed by cybervators but it was he himself self that did it. In the final episodes this causes him to go berserk upon learning the truth sumlar to him(no it wasn't my fault. No it was my fault. Die die die)
+
+Bursun does not agree with Makkusu a Yaharia's philosophy of cutting the tail of another cybervator causing them to lose their memory which he feels is a fate worse than death(don't use this cliched line) he has seen it happen to his sister Minia who went berserk losing her memory after he had to cut her tail off. Despite that he too wants the war to end so that people will no longer needlessly die  
+
+  - Yaharia regains her memory when she retrieves the cyberbeast she first linked with when she went berserk 
 
 ## Theme
 Balance and compromise 
@@ -63,7 +71,7 @@ I have been mentoring/training the next Generation of Cybervators to fight in th
 
 I don’t do it because I believe in war.
 
-I do it because I believe it is the best way to stop/end this war.                                                               
+I do it because I believe it is the best way to end this war.                                                               
 
 Bursun and Makkusu/Yahaira charges at each other with Makkusu pointing
 
