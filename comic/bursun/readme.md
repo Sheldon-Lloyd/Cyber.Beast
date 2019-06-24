@@ -1,7 +1,6 @@
 ﻿# Cyber.Beast Bursun
 
 ## Brain Storm
-Yahaira, Bursun and Makkusu all want to end the war however Bursun wants to maintain the status quo while Makkusu and Yahaira wants to free the Cybervators however unbeknownst to Makkusu Yahaira's Idea of freedom is killing the Majority of Citizens while enslaving the rest as she feels they have no place in the new world order. Spike wants to keep the world fragmented as it will allow him to maximize profits even if it means war. Makkusu wants to unify the world one generation at a time even if it means turning the world against him
 
 Based on Iroquois:
 https://www.youtube.com/watch?v=zTG45DSSgdE
@@ -19,7 +18,7 @@ Makkusu created screen/goggles that green black & white cybervators use this was
   - It also is able tell exact qbits of of cybervators used in the future to establish Cybervator rankings
 {
 
-Yahaira: Makkusu!!! You think you can just trust in the children to make the better place. That’s why the world is where it is know, instead of placing that responsibility on future generation our generation take that responsibility only then will this circle of waiting for a better place end. You can’t raise children to live in a world that does not exist, it Is us that must lead that change. 
+Bursun: Yahaira/Makkusu!!! You think you can just trust in the children to make the better place. That’s why the world is where it is know, instead of placing that responsibility on future generation our generation take that responsibility only then will this circle of waiting for a better place end. You can’t raise children to live in a world that does not exist, it Is us that must lead that change. 
 
 {
 
@@ -38,6 +37,11 @@ Makkusu uses a solar sail to get to the moon
 Makkusu created the virus that eventualy becomes a feature of CSDs that allowed him to record and broadcast all Cybervators that comes in contact with the Virus. This becomes the beginings of the 2 way panopticon created within the future CNS as Makkusu virus not only effects Cybervators but his self as well. This is how he slowly exposes the war to world and at the same time gains more followers.
 
 At first only cybervators of the Red Nation and those affiliated with them are exposed but this changes thanks to maybe spike who does not want to be left with a world controled by one nation as competion between the Blue and Red Nation is how he made his money. He then takes it upon his self to be the one that exposes the Blue Nation for manipulating and sometimes black mailing Cybervators.
+
+## Theme
+Balance and compromise 
+
+Yahaira, Bursun and Makkusu all want to end the war however Bursun wants to maintain the status quo even if it means turning the world against him geting rid of the root of the problem the Cybervators that kill his family. While Makkusu and Yahaira wants to free the Cybervators however unbeknownst to Makkusu Yahaira's Idea of freedom is killing the Majority of Citizens while enslaving the rest as she feels they have no place in the new world order. Spike wants to keep the world fragmented as it will allow him to maximize profits even if it means war. Makkusu wants to unify the world one generation at a time with technology as the catalyst
 
 ## Plot
 Most Cybervators don’t know they are fighting a war for citizens as far as they know they are merely defending citizens from Cyber.Beast. Which is true considering the fact that it is another cybervators weilding the Cyber.Beast they are fighting.
