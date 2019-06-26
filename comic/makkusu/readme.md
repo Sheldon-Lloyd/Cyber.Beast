@@ -26,62 +26,6 @@
 	
 	This makes things worst as she goes berserk and Kyshumu and Xenos must work together Harmony to stop her.
 
-### Part 2
-Based on The Battle of Homestead [[1](https://battleofhomestead.org/bhf/the-battle-of-homestead/)], [[2](https://en.wikipedia.org/wiki/Homestead_strike)] and the the Football war by which the war is triggered by a sporting match[[1](https://en.wikipedia.org/wiki/Football_War)]
-- Despite the fact that the NRA and CNS has now made it legal for citizens to compete in the between ReNet has denied them this furthurs tensions between ReNet and its members
-
-- Kyshumu's daugther killed he blames Xenos and the Cyvolters and declares war against CyTek after Airiona is arrested to make and example of her for the rest of the Cyvolters who has been chaotic to this point
- 
-- Kyshumu is unable to cut off the tails of Cyvolters he asks the NRA for permission to kill members of as the fact that the Cyvolters are able and willing to kill has givin them an advantage
-
-- Kyshumu revokes ReNet protection from Citizens that is assumed to be aiding or supporting the Cyvolters in anyway. This backfires instead further angering the citizens.
- 
-- This is Xenos' last season before he announces his retirement
-	
-	- Xenos gives a retirement speech before declaring himself the leader of the Cyvolters (maybe save this for next season)
-		
-		Xenos: I want the future to be a world were there are no distinctions between citizen and cybervator one in which everyone is a cybervator in their on right.
-			
-		Xenos: Up to this point Cyvolters has not had a leader. Because of this they have done some things I am not proud. many if which goes against the vision/values of the Cyvolter. Without a leader the Cyvolters will become nothing more than an organization resembling a chicken without a head.
-		
-		A group who is not beholden to a leader will fall into chaos and a leader not beholden to their people will fall into evil
-			
-		It may be better if this show by using each person as an example rather than told {
-		
-		Xenos:
-			
-		Right now There are 4 types of Cyvolters
-			
-		The malicious type that just like finding people to take down the worst of them all.
-			
-		The type that doesn't want to look like the bad guy so they attack others to prove that they are not bad
-			
-		The one that has reformed and feels it is their duty to fix/save others. This type that does not want others to attack you so they prefer to warn you of repercussions
-			
-		Then there ones that follows(majority) the crowd doing what seems to be what's cool. This type is easily embarrassed and just wants others to fit in
-		
-		}
-		if(they win) Xenos: even though we lost today I wont give up on helping the Cyvolters mission of creating a world with equal opportunity for all. We have technology but sometime society needs that final push
-		
-		Xenos: Cyvolters have become large in number but needs to become unified in voice
-		
-		Xenos: From this moment forward I will the lead the Cyvolters. Change can happen, has happened and, will happen.
-	 
-- In the second season years later the Cyvolters is now considered the Citizens league begin to do a type of initiation or point system in which Cybervators(not citizens) must attack "bad" cybervators in order to become a Cyvolter -- it is a rule created by Citizens.
-	- Every accept Kyshumu(think it was Xenos) thinks it was Airiona a Cybervator that killed Leona who they think did it in order to join
-	- The Cyvolters increase in size has become a detriment to their initial values
-	- Since anyone can be a Cyvolter they are doing whatever they want and claim to be apart of the Cyvolters, because of this the Cyvolters realize they need a leader to lay a framework and places that duty upon Xenos.
-	- Airiona is upset by the way the other cyvolter are acting she realizes that citizens can be just as bad as cybervator
-	- This changes Airiona strengthens belief that the majority of of Cybervators are stupid instead all humans are. Xenos tells her that it actually mob mentality and selfish preservation that cause people to act this way. people don't want to be alone so they follow what they may think is the masses no matter how wrong it maybe to protect their self
-	- After this incident the Cyvolter are seen as a massive threat and suspends the CNS in order to turn focus on bringing down the Cyvolters. This leaves many citizens with out a source if income which causes more citizens to join
-	- This prompts Xenos to delare himself the leader of the Cyvolters in order to set it ground rules(not killing). Cybervator who mentored under Xenos begens to join the Cyvolters bring their friends along with them
-	
-- Citizens think Airiona hides her identity in order to disguise her self as a citizen and that by killing a cybervator she was allowed to join
-
-- Maybe after Xenos dies Citizens and cyvolters decides that any Subnets that are not with them are against them which leads most of BluNet to side with the Cyvolters
-
-- Kyshumu is "assainated" allowing Tomasina to become Interim Chief who is also a Cyvolters who works to end the conflict with the Cyvolters pining the blame Eclipse alone. She also promises to allow citizens to join the CNS under ReNet
-
 
 ##	Act 1
 ### 1. Ordinary World
