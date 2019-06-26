@@ -45,6 +45,8 @@ Bursun thinks his family was killed by cybervators but it was he himself self th
 Bursun does not agree with Makkusu a Yaharia's philosophy of cutting the tail of another cybervator causing them to lose their memory which he feels is a fate worse than death(don't use this cliched line) he has seen it happen to his sister Minia who went berserk losing her memory after he had to cut her tail off. Despite that he too wants the war to end so that people will no longer needlessly die  
 
   - Yaharia regains her memory when she retrieves the cyberbeast she first linked with when she went berserk 
+  
+Bursun learns that he is the one that killed his family and that the leader of the cyvolters/eclipse lied to him. This was so that he would be manipulated into leading the cyvolters/eclipse/ReNet
 
 ## Theme
 Balance and compromise 
