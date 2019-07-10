@@ -5,6 +5,8 @@
 Based on Iroquois:
 https://www.youtube.com/watch?v=zTG45DSSgdE
 
+When Makkusu dies he leaves behind an Ai that he calls the CNS. Created insure the world stays at peace and/or remain fair. Maybe it was supposed to be a sort of collective consciousness and will take best course of action based the collective will of all based on data from everyone's CSD. This back fires as Makkusu connects his self first taking only his will
+
 Makkusu learns and reveals that Bursun and Yahaira are siblings
 
   - Bursun and Yahaira did not know that they were siblings at first despite the ability to read each other's minds
@@ -231,3 +233,4 @@ The CNS provided a UBI for citizens who had trouble obtaining GemBits. Cybervato
 Initialy each citizen and Cybervator joined the network they were originally affliated with. This was until mixed teams those that consisted of Cybervators from all 5 races became the most successful. Once Cybervators relinquished their bias the Citizens did as well as they followed besst teams or their favorite Cybervator rather than blindly stick to one network.
 
 The story ends with Max/Spike watching the history which was recorded by Spike using the tech Makkusu created
+
