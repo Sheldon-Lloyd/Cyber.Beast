@@ -51,7 +51,17 @@ Bursun learns that he is the one that killed his family and that the leader of t
 ## Theme
 Balance and compromise 
 
-Yahaira, Bursun and Makkusu all want to end the war however Bursun wants to maintain the status quo even if it means turning the world against him geting rid of the root of the problem the Cybervators that kill his family. While Makkusu and Yahaira wants to free the Cybervators however unbeknownst to Makkusu Yahaira's Idea of freedom is killing the Majority of Citizens while enslaving the rest as she feels they have no place in the new world order. Spike wants to keep the world fragmented as it will allow him to maximize profits even if it means war. Makkusu wants to unify the world one generation at a time with technology as the catalyst
+Yahaira, Bursun and Makkusu all want to end the war however Bursun wants to maintain the status quo even if it means turning the world against him geting rid of the root of the problem the Cybervators that kill his family. While Makkusu and Yahaira wants to free the Cybervators however unbeknownst to Makkusu Yahaira's Idea of freedom is killing the Majority of Citizens while enslaving the rest as she feels they have no place in the new world order. Spike wants to keep the world fragmented as it will allow him to maximize profits even if it means war. Makkusu wants to unify the world one generation at a time with technology as the catalyst.
+
+Makkus has adopt world view of dependding on and protecting future generations and warps it.
+
+After a time skip the world is united and Makkusu is chosen by the other eclipse/cyvolter members to lead it. This throws the world out of balance as there is no collective force to keep those in power in check. This allows Makkusu to attempt to kill all of the citizens to ensure a future in which his newborn child which will be a Cybervator is safe. 
+
+In reality Makkusu is doing this to ensure citizens will be more accepting of the new world order lead by Cybervators after Bursun (a Cybervator) saves them and Yaharia who is being held hostage by him. He feels that it is some thing he most do in order to redem his self for creating the tech that enabled the Cybervators sufering. Upon realizing what Makkusu is really doing she urges and tries to stop both of them from fighting but is to late.
+
+It also demostrates what happens when fondations of society are removed (the original Cybervator league).
+
+After these events Yaharia decides it is best to have two pseudo-governments at all times and to reestablish the Cybervator league.
 
 ## Plot
 Most Cybervators don’t know they are fighting a war for citizens as far as they know they are merely defending citizens from Cyber.Beast. Which is true considering the fact that it is another cybervators weilding the Cyber.Beast they are fighting.
