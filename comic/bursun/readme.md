@@ -187,8 +187,6 @@ Yahaira→Makkusu {
   
   Bursun: I'll do it
   
-  When bursun goes into the black hole by placing only his conisness in it instead. he see's a flash of the future in which aliens destroy their world
-
 }
 
 Spike Bursun Yahaira and Makkusu all work together with spike serving as the handler in order end the war. This changes when Bursun and spike turn against Makkusu and Yahaira. 
