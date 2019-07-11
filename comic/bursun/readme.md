@@ -5,22 +5,24 @@
 Based on Iroquois:
 https://www.youtube.com/watch?v=zTG45DSSgdE
 
-When Makkusu dies he leaves behind an Ai that he calls the CNS. Created insure the world stays at peace and/or remain fair. Maybe it was supposed to be a sort of collective consciousness and will take best course of action based the collective will of all based on data from everyone's CSD. This back fires as Makkusu connects his self first taking only his will
+When Makkusu dies he leaves behind an Ai that he calls the CNS. Created to insure the world stays at peace and/or remain fair. It is supposed to be a sort of collective consciousness and will take best course of action based the collective will of all based on data from everyone's CSD. This back fires in the future as Spike uses it in the future to manipulate and control everyone.
 
 Makkusu learns and reveals that Bursun and Yahaira are siblings
 
   - Bursun and Yahaira did not know that they were siblings at first despite the ability to read each other's minds
 
-Makkusu created screen/goggles that green black & white cybervators use this was used so that Yahaira and Bursun would not be trick and so that he can see things through her eyes/perspective
+Makkusu created screen/goggles that green black & white cybervators use this was used so that Yahaira and Bursun would no longer be tricked and so that he can see things through her eyes/perspective
 
-  - Yahaira: wow I can see through your eyes. Yahaira/Makkusu: it's like you and I are one
+  - Yahaira: wow I can see through your eyes. It's like...
+  
+    Makkusu: ...like you and I are one
 
   - Max upgraded it to read thoughts as well and eliminated the need for blood but only needs to resonate with the right frequency
 
   - It also is able tell exact qbits of of cybervators used in the future to establish Cybervator rankings
 {
 
-Bursun: Yahaira/Makkusu!!! You think you can just trust in the children to make the better place. That’s why the world is where it is know, instead of placing that responsibility on future generation our generation take that responsibility only then will this circle of waiting for a better place end. You can’t raise children to live in a world that does not exist, it Is us that must lead that change. 
+Bursun: Yahaira/Makkusu!!! You think you can just trust in the children to make the better place. That’s why the world is where it is know, instead of placing that responsibility on future generations our generation needs to take that responsibility only then will this circle of waiting for a better place end. You can’t raise children to live in a world that does not exist, it is us that must lead that change. 
 
 {
 
