@@ -5,6 +5,11 @@
 Based on Iroquois:
 https://www.youtube.com/watch?v=zTG45DSSgdE
 
+- proxy war takes place in the green nation
+
+- blue berserkers are threaten to not tell and to works as thier family will be kill for none compliance
+retired cybervator memories are erased before being sent back many are prisoneres. People think they lose their memory due to Fusing with Cyber.Beast
+
 When Makkusu dies he leaves behind an Ai that he calls the CNS. Created to insure the world stays at peace and/or remain fair. It is supposed to be a sort of collective consciousness and will take best course of action based the collective will of all based on data from everyone's CSD. This back fires in the future as Spike uses it in the future to manipulate and control everyone.
 
 Makkusu learns and reveals that Bursun and Yahaira are siblings
