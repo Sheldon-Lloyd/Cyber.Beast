@@ -230,11 +230,7 @@ Max creates a new virus based on the one Spike used that will free all the Cyber
 
 Everyone buys time so that Max can complete the algorithim
 
-Spike uses his body as host to Bursun or tries to use Bursuns Cyber.Beast after fail many times before only to have Bursun take full contol.
-
-Just as looks like Max/Jax will defeat Spike Bursun takes full control and maybe even kill the body of his host state how he wouldn't shut up.
-
-Bursun makes a commentary on the state of the world even pointing out Max parading around as a citizen tricking everyone and kills Xenos to suck the energy from his tail.
+Spike uses his body as host to Bursun or tries to use Bursuns Cyber.Beast after failing many times before only to have Bursun take full contol.
 
 Spike realizes that Max has the advantage do to the collective support of his fans he shows everyone that Max too is a Cybervator by making him go berserk after semingly killing Xenos
 
@@ -279,23 +275,9 @@ Jax Tomasina goes on to fight Max who is being controlled by Spike
 
 It seems like Spike is about to succumb to his own weapon but it is Bursun taking over his body
 
-Airiona turns on Spike and she succesully plants the virus in Spike this frees Bursun
+Airiona turns on Spike and she succesully plants the virus in Spike/Max this frees Max
 
-Bursun stops the wrath of Max with ease
-
-Jax is surprised as he goes to attack Bursun he desynergizes despite the fact that still has plenty of energy left. The CSD/Cyber.Beast which Jax took from Max earlier in the story returns to him.
-
-Bursun is angry at what Spike did it seems like he will save everyone but he instead decide to place everyone in the collective consciousness stating that humans cannot be trusted to be left to their own vices
-
-Burun realizes that his sister was right that Citizens and Cybervators can never coexist
-
-Bursun finds it funny that Cybervators are still slaves essentially slaves to a pedestal
-
-Bursun: ha ha ha Yaharia never freed them they are all still slaves serving the citizens
-
-Bursun: I know you're used to fighting people superior to you in strength but I don't think you fully understand the extent of my power/But you shouldn't underestimate my power
-
-Bursun absorbs the power from all of the Cyber.Beast that Spike was controlling
+Jax is surprised as he goes to attack he desynergizes despite the fact that still has plenty of energy left. The CSD/Cyber.Beast which Jax took from Max earlier in the story returns to him.
 
 Upon coming out of his Berserk state Torey teaches Max truth about some the history of the Xybrids.
 
@@ -303,7 +285,7 @@ Torrey reveals that Max did not kill/eat her she traded places with him so the h
 
 However Spike did not lie Yaharia CSD stoped recording after she sacrificed her self to tame the Cyber.Beast so she does know role therefore spike wouldn't know either
 
-Max fights and Defeats Bursun by using his white hole abilty or by using the Cyber.Beast of every one else but unlike Bursun he does not forcefully take their power
+Max fights and Defeats Spike by using his white hole abilty or by using the Cyber.Beast of every one else but unlike Spike he does not forcefully take their power
 
 ### 12. Return With The Elixir
 Episodes: 51, 52
