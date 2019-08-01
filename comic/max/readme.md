@@ -257,6 +257,8 @@ Berserkers are cybervators that do not need to meditate in order to hyperlink wi
 
 Spike wispers: You see it wasn't just any cyber.beast that killed your parents it was you.
 
+	That's right. Max you killed your father
+
 Max: Noooooo! Noooooooo!
 
 Spike: Whats wrong Max? Ha ha ha, You're not the paragon you thought you were are you
