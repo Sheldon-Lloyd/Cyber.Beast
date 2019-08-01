@@ -32,6 +32,9 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 	Spike: This army
 	Spike reveals all of the Cybervators that are now under his control
 
+-Despite gaing new power Max refuses to use it and wears his restaint. He wants to win the championships with his original promise in my and ahow everyone that you don't need to be a berserker/Xybrid to succeed as a Cybervator.
+
+
 ## Act 1
 ### 1. Ordinary World
 Episodes: 1, 2
@@ -285,7 +288,7 @@ Torrey reveals that Max did not kill/eat her she traded places with him so the h
 
 However Spike did not lie Yaharia CSD stoped recording after she sacrificed her self to tame the Cyber.Beast so she does know role therefore spike wouldn't know either
 
-Max fights and Defeats Spike by using his white hole abilty or by using the Cyber.Beast of every one else but unlike Spike he does not forcefully take their power
+Max fights and Defeats Spike by using the Cyber.Beast of every one else and maybe pair it with his newfound berserker abilities but unlike Spike he does not forcefully take their power
 
 ### 12. Return With The Elixir
 Episodes: 51, 52
