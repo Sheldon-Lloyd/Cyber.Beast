@@ -24,7 +24,7 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Other Cybervators try to use Cyber.Beast on their limbs like Max even going as far as to cut off their limbs to attempt it maybe Spike is the one that attempts this experiment
 - Xenos: If your not striving for progress it wont be guaranteed you will not regress
 - Cybervators start going Berserk for the first time in since Makkusu's parents was killed by Cyber.Beast which Tomasina talks about cuting it short
-	- Tomasina: This the first Berserk Cyber.Beast since Torrey... (she looks at Max)I mean your parents was killed by one
+	- Tomasina: This the first Berserk Cyber.Beast since Mack... (she looks at Max)I mean your parents was killed by one
 	
 - Max is going to change the preception of who can be a cybervator in the future will no citizen be designated Cornerman and told they can't be a Cybervator beacuse they will be able to point to Max and say I can
 - Spike declares war on the NRA. 
@@ -38,6 +38,8 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 ## Act 1
 ### 1. Ordinary World
 Episodes: 1, 2
+
+Max is shown dreaming about the day he decide to become a Cybervator to defeat Kyshumu
 
 Max wants to be a cybervator like everyone else
 
@@ -96,6 +98,10 @@ Because of what commentators call neptunism Max is on Leona/Tomasina's team as a
 
 ### 3. Refusal Of The Call
 Episodes: 5, 6
+
+Kyshumu announces that he will not be entering this years tournament as he wants to give the the next generation a chance(Minia Leona and Jax)
+
+Max is upset by Kyshumu steping down as he wanted to fullfill his dream of defeating him
 
 Jax tells Max that it is to dangerous for him to become a Cybervator and that he will not allow it
 
@@ -165,6 +171,8 @@ Max is surprised to find that Airiona is a Cyvolter and stops Jax from finishing
 ### 7. Approach To The Inmost Cave
 Episodes: 19, 20, 21, 22
 
+Spike is shown doing something ominous.
+
 Max again vist the cave in which he found the CyTek but this time without Spike and discovers missing/tampered items.
 
 Max asks Spike if he was behind the recent attacks he tells him "No of course not, all I did was provide the truth. I told you the Citizens will eventually rise up to take their right full place as the masters of Cybervators."
@@ -176,42 +184,24 @@ With Airiona no longer apart of the team she must be replaced By Airiona which m
 Max thinks about spike he starts to contemplate the potential ramifications of creating this technology
 
 Xenos tells him that the citizens need him now more than ever as he must lead them so he can no longer turn back
-	
-### 8. Ordeal, Death, Rebirth
-Episodes: 23, 24, 25, 26, 27, 28, 29, 30
 
 Just before Max has a chance to test his tech Jax again tries to stop Max from becoming a Cybervator by taking away his one and only cyber.beast.
 
 Max wins taking his old cyber.beast back may jax gives it to him because he wants Max at his best or because his mother makes him
 
-Max realizes that he can't keep up and will not beat Jax in his current state and is on the verge of losing everything he worked for. Max decide to use his untested neuro mesh device allowing to hyperlink like a cybervator.
+Max realizes that he can't keep up and will not beat Jax in his current state and is on the verge of losing everything he worked for. Max decide to use his untested neuro mesh device allowing to hyperlink like a cybervator.	
 
-Max defeats Jax
+Spike tells Max that there is no way they well be able to win and fufill their goal
 
-Max makes it to the final round of the championship equiped with his new tech. Max is aproached by Spike to use his tech that he created Max kindly aggrees to distribute it. He promises to start a new company called Cytek upon winng the championships
+### 8. Ordeal, Death, Rebirth
+Episodes: 23, 24, 25, 26, 27, 28, 29, 30
 
-Max fights Jax in the championships
-
-Max wipes his face with tha back of his hand and tells Jax "You're holding back on me arent you"
-
-### 9. Reward (Seizing The Sword)
-Episodes: 31, 32, 33, 34
-
-Max wins the championships by using yet another technology he created allowing him to fight in a burstDrive like state
-
-After Max wins more citizens have become insprired that they too can have equal power to that of cybervators
-
-Spike is shown doing something ominous.
-
-## Act 3
-### 10. The Road Back
-Episodes: 35, 36, 37, 39, 39, 40, 41, 42
 
 Max has been unknowingly aiding the Cyvolters as he the Cyber.Beast he was using was connected to Spike so all of the satellites and/or Hub he won during the tournement belongs to Spike and the Cyvolters now.
 
 The Spike reveals his self as the leader of the cyvolvters and starts a war to take back control of cybervators
 
-Spike tells Max that he has been using his cyber.beast wrong the whole time but thanks him for the neruolace enabling him to perfect the CSDs. He is no longer forced to command each cybervator one by one but instead use commander's intent to control every single one of them. Unlike Max Spike is able to control human/full scale Humanoid Cyber.Beast, one of which is Torrey
+Spike tells Max that he has been using his cyber.beast wrong the whole time but thanks him for the neruolace enabling him to perfect the CSDs. He is no longer forced to command each cybervator one by one but instead use commander's intent to control every single one of them. Unlike Max Spike is able to control human/full scale Humanoid Cyber.Beast, one of which is Mack
 
 Spike tries to tell everyone cyber.beast are former cybervators but is enterupted by Kyshumu.
 
@@ -273,9 +263,6 @@ Max goes berserk upon being told he killed his parents
 
 Spike tells everyone behold your so called hero this causes him to lose the support of everyone
 
-### 11. Resurrection
-Episodes: 43, 44, 45, 46, 47, 48, 49, 50
-
 Jax Tomasina goes on to fight Max who is being controlled by Spike
 
 It seems like Spike is about to succumb to his own weapon but it is Bursun taking over his body
@@ -286,16 +273,48 @@ Jax is surprised as he goes to attack he desynergizes despite the fact that stil
 
 Upon coming out of his Berserk state Torey teaches Max truth about some the history of the Xybrids.
 
-Torrey reveals that Max did not kill/eat her she traded places with him so the he could be free from the Cyber.Beast. Yaharia took half of the Cyber.Beast by turning off her limiter so that she could absorb it.
+Mack reveals that Max did not kill him he traded places with him so the he could be free from the Cyber.Beast. Yaharia took half of the Cyber.Beast by turning off her limiter so that she could absorb it.
 
 However Spike did not lie Yaharia CSD stoped recording after she sacrificed her self to tame the Cyber.Beast so she does know role therefore spike wouldn't know either
 
 Max fights and Defeats Spike by using the Cyber.Beast of every one else and maybe pair it with his newfound berserker abilities but unlike Spike he does not forcefully take their power
 
+
+### 9. Reward (Seizing The Sword)
+Episodes: 31, 32, 33, 34
+
+Max makes it to the final round of the championship equiped with his new tech. Max is aproached by Spike to use his tech that he created Max kindly aggrees to distribute it. He promises to start a new company called Cytek upon winng the championships
+
+Max fights Jax in the championships
+
+Max wipes his face with tha back of his hand and tells Jax "You're holding back on me arent you"
+
+Max defeats Jax and wins the championships by using yet another technology he created allowing him to fight in a burstDrive like state
+
+After Max wins more citizens have become insprired that they too can have equal power to that of cybervators
+
+
+## Act 3
+### 10. The Road Back
+Episodes: 35, 36, 37, 39, 39, 40, 41, 42
+
+
+
+### 11. Resurrection
+Episodes: 43, 44, 45, 46, 47, 48, 49, 50
+
+Mack cheers Max on just like they cheer on Xenos in the beging of the story but this time fighting side by side with him as his Cyber.Beast
+
+Lets go Max
+
+Come on Max
+
+At this point Max smiles maybe looking at his father
+
 ### 12. Return With The Elixir
 Episodes: 51, 52
 
-Max frees Torrey it is learned that she and the Cyber.Beast is from a different universe.
+Max frees Mack it is learned that she and the Cyber.Beast is from a different universe.
 
 The world has returned to normal but citizens can now compete in the CNS on equal footing with Cybervators
 
