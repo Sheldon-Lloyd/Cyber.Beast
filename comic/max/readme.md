@@ -39,9 +39,20 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 ### 1. Ordinary World
 Episodes: 1, 2
 
+Max wants to be a cybervator like everyone else
+
 Max is shown dreaming about the day he decide to become a Cybervator to defeat Kyshumu
 
-Max wants to be a cybervator like everyone else
+Spike wakes up Max and tells him that hiim that he is going to miss the match that is maye be a championship match
+
+After watching and playing a CNS game spike recommends that Max join. 
+
+- Spike: you should join. Max:the CNS. 
+
+- Spike: yea your pretty good you never lost a single match you even beat the cybervators and and no one beats them much less play/against them. 
+
+- Max: Haha thanks for the compliment but the live CNS is a whole another league
+
 
 It is assumed that he did not have the tail gene because his parent was a citizen despite the 99% chance that he should have a tail
 
@@ -65,7 +76,7 @@ Airiona runs away with out saying her name
 
 Jax/Max: oh well at least you got her name
 
-Max/Jax: Yea but I wanted to hear her voice
+Max/Jax: Yea but I wanted to hear it from her
 
 They finish their prepartion and head into space
 
@@ -75,6 +86,18 @@ Airiona: I remember you from earlier you're Max?
 
 ### 2. Call To Adventure
 Episodes: 3, 4
+
+Spike signs Max up his self with out asking. 
+
+Spike: I signed you up. 
+
+Spike: see(showing him the registration). Before max has chance to turn him down his is invited to join
+
+Max: huh!? You did what!? 
+
+Spike: well you said you would so someone had to it
+
+Max tells that it is impossible but spike him not he he has this acient tech he found or learned about
 
 Spike calls Max to show him ancient tech that he found and goes on about the right full place of citzens. 
 
@@ -191,6 +214,8 @@ Max wins taking his old cyber.beast back may jax gives it to him because he want
 
 Max realizes that he can't keep up and will not beat Jax in his current state and is on the verge of losing everything he worked for. Max decide to use his untested neuro mesh device allowing to hyperlink like a cybervator.	
 
+Kyshumu kicks them out of ReNet
+
 Spike tells Max that there is no way they well be able to win and fufill their goal
 
 ### 8. Ordeal, Death, Rebirth
@@ -298,7 +323,7 @@ After Max wins more citizens have become insprired that they too can have equal 
 ### 10. The Road Back
 Episodes: 35, 36, 37, 39, 39, 40, 41, 42
 
-
+Alex allows Max to join BluNet
 
 ### 11. Resurrection
 Episodes: 43, 44, 45, 46, 47, 48, 49, 50
