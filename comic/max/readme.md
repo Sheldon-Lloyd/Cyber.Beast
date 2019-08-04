@@ -25,7 +25,7 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Xenos: If your not striving for progress it wont be guaranteed you will not regress
 - Cybervators start going Berserk for the first time in since Makkusu's parents was killed by Cyber.Beast which Tomasina talks about cuting it short
 	- Tomasina: This the first Berserk Cyber.Beast since Mack... (she looks at Max)I mean your parents was killed by one
-	
+- Airiona believes that	a cybervator should serve Citizens not the other way around the way how the world currently works
 - Max is going to change the preception of who can be a cybervator in the future will no citizen be designated Cornerman and told they can't be a Cybervator beacuse they will be able to point to Max and say I can
 - Spike declares war on the NRA. 
 	Max: ha you and what army
@@ -256,21 +256,25 @@ It is spike that learns who Max really is. Max is on the verge of winning while 
 
 Max responds with what does that story have to do with. 
 
-Spike tells Max it is because you have been lied to this entire time. Well remember the limiters we learned about. That head/neck band you are wearing it is not a keepsake it's a restraint.
+Spike: you can tell him Airiona
 
-Spike: Just like they are afraid of us citizens they fear your power as well Max
+Spike tells Max it is because you have been lied to this entire time. Well remember the limiters we learned about. That head/neck band you are wearing it is not a keepsake it's a restraint. Take it off and I'll free everyone
+
+Airiona: They fear citizens but they fear your power even more Max
 
 Max take his head off his head/neck band. Tomasina tells Max not to take it off
 
-Spike: You see you are not only a cybervator and not just a xybrid either but rather a berserker. The most dangerous kind of cybervator. 
+Airiona: You see you are not only a cybervator and not just a xybrid either but rather a berserker. The most dangerous kind of cybervator. 
 
-Spike: Berserkers are rare but The chance that a Berserker is born increase 20 fold when a Cybervator has a child with a citizen which is why marriages between the two is prohibited.
+Airiona: Berserkers are rare but The chance that a Berserker is born increase 20 fold when a Cybervator has a child with a citizen which is why marriages between the two is prohibited.
 
-Max: Noo no no I don't believe you no I refuse to believe you
+Max: Are you saying? Noo no no I don't believe you no I refuse to believe you
 
-Berserkers are cybervators that do not need to meditate in order to hyperlink with a cyber.beast. which makes them dangrous so they are killed. this is a secret known only by the highest ranked cybervators
+Airiona/Spike: Berserkers are cybervators that do not need to meditate in order to hyperlink with a cyber.beast. which makes them dangrous so they're killed. this is a secret known only by the highest ranked cybervators
 
-Spike wispers: You see it wasn't just any cyber.beast that killed your parents it was you.
+Airiona: This is the world Spije and I are fighting to fix. We need your help to do. You're the only one who can. Once this is all over will free every not just the Cybervators. I promise.
+
+Spike wispers: I'll take it from here Airiona You see it wasn't just any cyber.beast that killed your parents it was you.
 
 	That's right. Max you killed your father
 
