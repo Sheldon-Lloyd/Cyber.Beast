@@ -228,7 +228,7 @@ Max wins taking his old cyber.beast back may jax gives it to him because he want
 
 Max realizes that he can't keep up and will not beat Jax in his current state and is on the verge of losing everything he worked for. Max decide to use his untested neuro mesh device allowing to hyperlink like a cybervator.	
 
-Kyshumu kicks them out of ReNet
+Kyshumu takes back the Satellite  that was stolen from ReNet
 
 Spike tells Max that there is no way they well be able to win and fufill their goal
 
@@ -341,7 +341,7 @@ After Max wins more citizens have become insprired that they too can have equal 
 ### 10. The Road Back
 Episodes: 35, 36, 37, 39, 39, 40, 41, 42
 
-Alex allows Max to join BluNet
+Alex/Ace gives Max's team a hub/satellite from BluNet as a favor to Xenos
 
 ### 11. Resurrection
 Episodes: 43, 44, 45, 46, 47, 48, 49, 50
