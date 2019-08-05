@@ -57,6 +57,8 @@ Bursun does not agree with Makkusu a Yaharia's philosophy of cutting the tail of
   
 Bursun learns that he is the one that killed his family and that the leader of the cyvolters/eclipse lied to him. This was so that he would be manipulated into leading the cyvolters/eclipse/ReNet
 
+Yaharia/Bursun/Spike intially wants Makkusu to be the first Cheif and to lead every but he declince due to his past actions. Yaharia however believes those mistakes is what will make him the perfect leader.
+
 ## Theme
 Balance and compromise 
 
