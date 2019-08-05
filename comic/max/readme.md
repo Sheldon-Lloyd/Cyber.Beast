@@ -31,9 +31,23 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 	Max: ha you and what army
 	Spike: This army
 	Spike reveals all of the Cybervators that are now under his control
+	
+- Despite gaining new power Max refuses to use it and wears his restaint. He wants to win the championships with his original promise in my and ahow everyone that you don't need to be a berserker/Xybrid to succeed as a Cybervator.
 
--Despite gaing new power Max refuses to use it and wears his restaint. He wants to win the championships with his original promise in my and ahow everyone that you don't need to be a berserker/Xybrid to succeed as a Cybervator.
+- People are angery about what is precived to be cheating to prevent Max's team from winning Spike is one of them his precieved mistreatment of Max and his team is what drives him to do increasingly worst misdead through the story.
 
+- Towards the end of Spike's arc he also joins Max's team which ultimatlly leads to his despair as his arorgance causes his team to lose or nearlly lose in which case he intervines by taking over a Cybertor on the opposing team. Max notices what has happened and in away forfiets the match maybe by interfaring or by not fighting back.
+	- If Max does not fight Back then it will be harnmony that goes berserk turning on her own team but Max is able to stop by simply standing in front of her and starts sing maybe a silly song that harmony all ways sings. And later explains why he did it and the way music works.
+
+- Cybervators start randomly going berserk staring with the retired Cybervators who many don't care about. The world does not start to take these events seriously until free agent and even empoloyed Cybervators are affected. One of the Cybervators that go berserk is Harmony. Another is a council member
+
+- Max joins a team that already has Xenos Kassiea Aarock and Airiona and now has enough members to compete but is not allowed do anything but act as support as Xenos at first tells him thet need a sniper.
+	- All of them wanted to change the status in one way or another for Cybervators and Citzens they are created and lead by Spike who has yet to have reveal his self although everyone asummes he is older due to his intelligence. Airiona is the only one that knows who he is and stands in place as the owner of the team for Spike.
+
+- Spike tells Max that if he wins and become cheif he'll be able change things for a citizens
+
+- Spike asks Max what he will do when he becomes chief 
+	- the first change that Max proposes is to get rid if the idea of cheif entirely but eventualy compromises to have a 5 chief system. The entire team that wins a championships becomes cheif geting rid of the idea that only the MVP becomes cheif which means everyone including Support Cybervators can become cheif
 
 ## Act 1
 ### 1. Ordinary World
