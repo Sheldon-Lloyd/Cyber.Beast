@@ -48,6 +48,10 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 
 - Spike asks Max what he will do when he becomes chief 
 	- the first change that Max proposes is to get rid if the idea of cheif entirely but eventualy compromises to have a 5 chief system. The entire team that wins a championships becomes cheif geting rid of the idea that only the MVP becomes cheif which means everyone including Support Cybervators can become cheif
+	
+- Spikes father tells them to cut the feed Tomasina says that they can't Kyshumu responds saying that he knows how to cut the feed and heads into combat Tomasina is fustrated and sends Xenos to Aid Kyshumu
+
+- Max is in therepy for his reocurring nightmare in which he becomes a Cyber.Beast and kills his father. He is told that it becomes he blames his self and that it is not his fault
 
 ## Act 1
 ### 1. Ordinary World
@@ -100,6 +104,8 @@ Airiona: I remember you from earlier you're Max?
 
 ### 2. Call To Adventure
 Episodes: 3, 4
+
+Alex becomes the first Green Cybervator to win MVP allowing to become cheif
 
 Spike signs Max up his self with out asking. 
 
