@@ -45,9 +45,6 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 	- All of them wanted to change the status in one way or another for Cybervators and Citzens they are created and lead by Spike who has yet to have reveal his self although everyone asummes he is older due to his intelligence. Airiona is the only one that knows who he is and stands in place as the owner of the team for Spike.
 
 - Spike tells Max that if he wins and become cheif he'll be able change things for a citizens
-
-- Spike asks Max what he will do when he becomes chief 
-	- the first change that Max proposes is to get rid if the idea of cheif entirely but eventualy compromises to have a 5 chief system. The entire team that wins a championships becomes cheif geting rid of the idea that only the MVP becomes cheif which means everyone including Support Cybervators can become cheif
 	
 - Spikes father tells them to cut the feed Tomasina says that they can't Kyshumu responds saying that he knows how to cut the feed and heads into combat Tomasina is fustrated and sends Xenos to Aid Kyshumu
 
@@ -135,9 +132,13 @@ Max is surprised by this as he is a reporter and one would think he would be the
 
 Max makes the team as a cybervator but is not allowed to fight they are only allowed refuel and some give advice to fellow cybervator between rounds
 
+#### Version 1
 Max's faces off against brutally violent injuring many of their Cybervators that they maybe forced to forfeit Max volunteers to be the Center/Marksmen Jax relunactly allows him to do it. To everyones surprise he is able to wield a Cyber.Beast
 
 Because of what commentators call neptunism Max is on Leona/Tomasina's team as a center. this however means they don't have a backup mainly because they rarely get injured.
+
+#### Version 2
+Max's team is fighting a criminal or Cybervator that has gone Berserk they are all done and out forcing Max to take arms and fight in their stead allowing Max and everyone realize that maybe anyone can be a Cybervator
 
 ### 3. Refusal Of The Call
 Episodes: 5, 6
@@ -165,14 +166,14 @@ Airiona gives Max a new Cyber.Beast supplied by Spike. Max recognizes it as the 
 
 Max joins Airiona and Xenos' team.
 
-### 5. Crossing The Threshold
-Episodes: 9, 10, 11, 12
-
 Xenos' team is called irresponsible for doing it as he could get killed out there and hope to never see him out there again
 
 Dispite being signed by Xenos' team he is still sidelined
 
 Max fights Airiona outside of cyberspace Xeno/Airiona tells Max if he can beat her he can join/fight in the next match
+
+### 5. Crossing The Threshold
+Episodes: 9, 10, 11, 12
 
 Max is now the teams Sniper/Marksmen Ace the Front Guard Knilla is the Rear Guard
 
@@ -214,6 +215,9 @@ Max is surprised to find that Airiona is a Cyvolter and stops Jax from finishing
 ### 7. Approach To The Inmost Cave
 Episodes: 19, 20, 21, 22
 
+- Spike asks Max what he will do when he becomes chief 
+	- the first change that Max proposes is to get rid if the idea of cheif entirely but eventualy compromises to have a 5 chief system. The entire team that wins a championships becomes cheif geting rid of the idea that only the MVP becomes cheif which means everyone including Support Cybervators can become cheif
+	
 Spike is shown doing something ominous.
 
 Max again vist the cave in which he found the CyTek but this time without Spike and discovers missing/tampered items.
@@ -331,6 +335,8 @@ Max fights and Defeats Spike by using the Cyber.Beast of every one else and mayb
 
 ### 9. Reward (Seizing The Sword)
 Episodes: 31, 32, 33, 34
+
+Max is no longer fighting for fame and instead after watch the suffering that Spike and Airiona went through wants to win in order to change the world one in which Cybervators and Citizens have equal opportunity. This will reverse the artifical oppresion created by pass generations
 
 Max makes it to the final round of the championship equiped with his new tech. Max is aproached by Spike to use his tech that he created Max kindly aggrees to distribute it. He promises to start a new company called Cytek upon winng the championships
 
