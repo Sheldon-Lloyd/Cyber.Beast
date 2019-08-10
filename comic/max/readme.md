@@ -48,7 +48,19 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 	
 - Spikes father tells them to cut the feed Tomasina says that they can't Kyshumu responds saying that he knows how to cut the feed and heads into combat Tomasina is fustrated and sends Xenos to Aid Kyshumu
 
-- Max is in therepy for his reocurring nightmare in which he becomes a Cyber.Beast and kills his father. He is told that it becomes he blames his self and that it is not his fault
+- Max to Minia/Airiona about his reocurring nightmare in which he becomes a Cyber.Beast and kills his father. He is told that it becomes he blames his self and that it is not his fault
+
+Max continously ignores Spike but not listens to but obeys him as CyKo. This prompts him to disguise his self as Speeding bullet
+
+Max saves spike from Airiona/Jax 
+- Jax goes to finish Spike Max says stop you'll kill him block his attack
+- Jax goes to finish Spike Max says stop you'll kill him <I'll never make it in time> Airiona jumps in to handle Spike instead and says I'll handle him
+- Airiona belives that it is her fault that Spike is in this situation and the he is beyond reasoning with at this point and decides to kill him or defuse him causing to lose his memory
+
+Spike asks Max why he saved him after all he did. Max says he realized his fault in the situation
+- Ignoring Spike instead of being his mentor and leading him
+- Not listen to spikes advice
+- focusing on his self in stead of using his new status to elevate others
 
 ## Act 1
 ### 1. Ordinary World
