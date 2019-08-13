@@ -2,6 +2,8 @@
 ## Theme
 **The role sports play in society:**
 Sports building character teaching people to not look at their self as victims when confronted with someone ahead they will look at it as an opportunity for improvement a new target to set as a goal that can be surpassed instead of oppressing/stepping on other or cheating to get ahead as this removes the meaning of life. Citizen who have not had the chance to be cybervator inherit this problem.
+### Sub-themes
+Competion vs cooperation, dont bite off more than you can chew
 
 ## Plot
 This is a united world in which there is no longer any wars. Peace is maintain by throgh the CNS league -- a sport in which Cybervator fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
@@ -61,6 +63,10 @@ Spike asks Max why he saved him after all he did. Max says he realized his fault
 - Ignoring Spike instead of being his mentor and leading him
 - Not listen to spikes advice
 - focusing on his self in stead of using his new status to elevate others
+
+Spike tries to bite offf more than he can chew as opposed to Max that works delgently to pregress slowly. This is why spike resorts to cheating with increasing servarity to progress. He gets worst as he fells victimised by an unfair world and thinks this is the only way to move forward
+
+Since Spike is not old enough to join he eventually joins as speeding bullet
 
 ## Act 1
 ### 1. Ordinary World
