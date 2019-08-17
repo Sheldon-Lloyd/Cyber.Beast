@@ -72,33 +72,34 @@ Since Spike is not old enough to join he eventually joins as speeding bullet
 ### 1. Ordinary World
 Episodes: 1, 2
 
-Max wants to be a cybervator like everyone else
-
-Max is shown dreaming about the day he decide to become a Cybervator to defeat Kyshumu
-
-Spike wakes up Max and tells him that hiim that he is going to miss the match that is maye be a championship match
-
-After watching and playing a CNS game spike recommends that Max join. 
-
-- Spike: you should join. Max:the CNS. 
-
-- Spike: yea your pretty good you never lost a single match you even beat the cybervators and and no one beats them much less play/against them. 
-
-- Max: Haha thanks for the compliment but the live CNS is a whole another league
-
-Max wakes from his dream sleeping in the middle of the finals of the championship match.
-- Max what's the stragey... are you sleeping
-- look at the score there's no way they are coming back
-- but this is the finals
-- yea the same one we fought an won last year and the year before and basicly every year since before I even became a cyber fighter
-- but isn't this your dream to beat Xenos
-- exactly my dream was to beat Xenos not to help Kyshumu beat him 
+Max wants to be a cybervator like his brother
 
 It is assumed that he did not have the tail gene because his parent was a citizen despite the 99% chance that he should have a tail
 
 Everyone tell him it is virtually imposible for him to become a cybervator he says that he beat the odds to become a tailless despite the 1% chance of it happening 
 
 All citizens are allowed to compete in cyberspace and are allowed to be cornermen if they are good enough. They tend to avoid other cybervator in cyberspace but not max who actively challenges them. This is because Max uses a special complex contoller giving him complete control of his cyber.beast.
+
+Max is shown dreaming about the day he decide to become a Cybervator to defeat Kyshumu
+
+Max wakes from his dream sleeping in the middle of the finals of the championship match.
+- Max. Max. Hey Max, what's the stragey... are you sleeping
+- Max looks up rubs his eyes and quickly assess the situation and creates a strategy
+
+Kyshumu's team wins the championship against Xenos(Blue), Alex(Green), Knilla(Black), Ace(Red) with Alex winning the The BluNet MVP award the first Green Cybervator to do so
+- did you see score there's no way they are coming back
+- Jax: but this is the finals
+- Max: yea the same one we fought an won last year and the year before and basicly every year since before I even became a cyber fighter
+- Max: but isn't this your dream to beat Xenos
+- exactly my dream was to beat Xenos not to help Kyshumu beat him 
+- Jax: you think I don't want to be out there too you don't see me complaining. Man up and do your job.
+- Leona: haha you going on about being a cyber fighter again max I mean at least jax is justfied but you you not even a cybervator
+- Max: stay out of this
+- You expect me to be scared of you you can't hurt me
+- Jax: he might not be able to but I can
+- Leona(walks away with her hands in the air): alright, alright forget I ever said anything
+
+Xenos retires during his press conference and Leona bursts out laughing
 
 Max and Jax is about to go into (Cyber) space to mine Cyber.Beast
 
