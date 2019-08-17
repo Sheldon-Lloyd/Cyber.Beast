@@ -3,7 +3,7 @@
 **The role sports play in society:**
 Sports building character teaching people to not look at their self as victims when confronted with someone ahead they will look at it as an opportunity for improvement a new target to set as a goal that can be surpassed instead of oppressing/stepping on other or cheating to get ahead as this removes the meaning of life. Citizen who have not had the chance to be cybervator inherit this problem.
 ### Sub-themes
-Competion vs cooperation, dont bite off more than you can chew
+Competion vs cooperation, dont bite off more than you can chew, leadership
 
 ## Plot
 This is a united world in which there is no longer any wars. Peace is maintain by throgh the CNS league -- a sport in which Cybervator fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
@@ -86,6 +86,13 @@ After watching and playing a CNS game spike recommends that Max join.
 
 - Max: Haha thanks for the compliment but the live CNS is a whole another league
 
+Max wakes from his dream sleeping in the middle of the finals of the championship match.
+- Max what's the stragey... are you sleeping
+- look at the score there's no way they are coming back
+- but this is the finals
+- yea the same one we fought an won last year and the year before and basicly every year since before I even became a cyber fighter
+- but isn't this your dream to beat Xenos
+- exactly my dream was to beat Xenos not to help Kyshumu beat him 
 
 It is assumed that he did not have the tail gene because his parent was a citizen despite the 99% chance that he should have a tail
 
