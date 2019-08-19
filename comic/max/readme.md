@@ -64,9 +64,27 @@ Spike asks Max why he saved him after all he did. Max says he realized his fault
 - Not listen to spikes advice
 - focusing on his self in stead of using his new status to elevate others
 
-Spike tries to bite offf more than he can chew as opposed to Max that works delgently to pregress slowly. This is why spike resorts to cheating with increasing servarity to progress. He gets worst as he fells victimised by an unfair world and thinks this is the only way to move forward
+Spike tries to bite offf more than he can chew as opposed to Max that works delgently to progress slowly. This is why spike resorts to cheating with increasing servarity to progress. He gets worst as he fells victimised by an unfair world and thinks this is the only way to move forward
 
 Since Spike is not old enough to join he eventually joins as speeding bullet
+
+- Spike is a kid with high social intelligence who looks up to Max 
+  
+  It turns out that Spike was the one leading the cyvolters which initially surprises then angers Airiona this foreshadows her turning on him despite her initial loyalty
+  
+  At the time of Max becoming a cybervator spike becomes his first and only fan. Even though spike looks up to Max, he does notice and therefore acknowledges spike III. Xenos notices this and warns max that it is responsibility lead.
+  
+- Max tells Airiona/Xenos/Spike/Tomaina about his dream after they maybe see him having his nightmare.
+  
+  It's different every time but this time I was the Cyber.Beast
+  
+  :And you think think you killed your Father
+  
+  Max(waves both his hands): No of course not. It's just that if it wasn't for me
+  
+  He choose to save you not you
+  
+  Max's CSD beeps in binary to agree
 
 ## Act 1
 ### 1. Ordinary World
@@ -197,6 +215,18 @@ Xenos' team is called irresponsible for doing it as he could get killed out ther
 Dispite being signed by Xenos' team he is still sidelined
 
 Max fights Airiona outside of cyberspace Xeno/Airiona tells Max if he can beat her he can join/fight in the next match
+
+- While testing/training Max minia/Airiona holds  back and/or aids while against Max
+  
+  minia/Airiona: I... I dont want to hurt... 
+  
+  Max(steps in front): I mean it's only practice
+  
+  Only only? You think that's what is going to be going through the heads of our opponents in our next Match. He is giving his all. Trying to improve
+  
+  Minia/airiona says something in anger in reference to Cyvolters/Eclipse/Cytek being built on cooperation
+  
+  Max: No he's right. If I can't figure out a way to bet you on my own I shouldn't be out there. You said so your self
 
 ### 5. Crossing The Threshold
 Episodes: 9, 10, 11, 12
