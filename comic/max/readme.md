@@ -54,16 +54,6 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 
 Max continously ignores Spike but not listens to but obeys him as CyKo. This prompts him to disguise his self as Speeding bullet
 
-Max saves spike from Airiona/Jax 
-- Jax goes to finish Spike Max says stop you'll kill him block his attack
-- Jax goes to finish Spike Max says stop you'll kill him <I'll never make it in time> Airiona jumps in to handle Spike instead and says I'll handle him
-- Airiona belives that it is her fault that Spike is in this situation and the he is beyond reasoning with at this point and decides to kill him or defuse him causing to lose his memory
-
-Spike asks Max why he saved him after all he did. Max says he realized his fault in the situation
-- Ignoring Spike instead of being his mentor and leading him
-- Not listen to spikes advice
-- focusing on his self in stead of using his new status to elevate others
-
 Spike tries to bite offf more than he can chew as opposed to Max that works delgently to progress slowly. This is why spike resorts to cheating with increasing servarity to progress. He gets worst as he fells victimised by an unfair world and thinks this is the only way to move forward
 
 Since Spike is not old enough to join he eventually joins as speeding bullet
@@ -388,6 +378,15 @@ However Spike did not lie Yaharia CSD stoped recording after she sacrificed her 
 
 Max fights and Defeats Spike by using the Cyber.Beast of every one else and maybe pair it with his newfound berserker abilities but unlike Spike he does not forcefully take their power
 
+Max saves spike from Airiona/Jax 
+- Jax goes to finish Spike Max says stop you'll kill him block his attack
+- Jax goes to finish Spike Max says stop you'll kill him <I'll never make it in time> Airiona jumps in to handle Spike instead and says I'll handle him
+- Airiona belives that it is her fault that Spike is in this situation and the he is beyond reasoning with at this point and decides to kill him or defuse him causing to lose his memory
+
+Spike asks Max why he saved him after all he did. Max says he realized his fault in the situation
+- Ignoring Spike instead of being his mentor and leading him
+- Not listen to spikes advice
+- focusing on his self in stead of using his new status to elevate others
 
 ### 9. Reward (Seizing The Sword)
 Episodes: 31, 32, 33, 34
@@ -398,7 +397,9 @@ Max makes it to the final round of the championship equiped with his new tech. M
 
 Max fights Jax in the championships
 
-Max wipes his face with tha back of his hand and tells Jax "You're holding back on me arent you"
+Max wipes his face with tha back of his hand and tells Jax "You're holding back arent you"
+
+Alex/Ace gives Max's team a hub/satellite from BluNet as a favor to Max defeating Spike
 
 Max defeats Jax and wins the championships by using yet another technology he created allowing him to fight in a burstDrive like state
 
@@ -409,7 +410,6 @@ After Max wins more citizens have become insprired that they too can have equal 
 ### 10. The Road Back
 Episodes: 35, 36, 37, 39, 39, 40, 41, 42
 
-Alex/Ace gives Max's team a hub/satellite from BluNet as a favor to Xenos
 
 ### 11. Resurrection
 Episodes: 43, 44, 45, 46, 47, 48, 49, 50
