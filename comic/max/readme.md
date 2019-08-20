@@ -79,6 +79,7 @@ Since Spike is not old enough to join he eventually joins as speeding bullet
 ## Act 1
 ### 1. Ordinary World
 Episodes: 1, 2
+The back story of the CNS told
 
 Max wants to be a cybervator like his brother
 
@@ -109,32 +110,28 @@ Kyshumu's team wins the championship against Xenos(Blue), Alex(Green), Knilla(Bl
 
 Xenos retires during his press conference and Leona bursts out laughing
 
-Max and Jax is about to go into (Cyber) space to mine Cyber.Beast
+- Cut away to the backstory of the CNS and it purpose(much of this info will be reveal t be false later own)
 
-Max/Jax sees Airiona from afar recgonizing her as a new Cybervator 
-
-Max/Jax: she is a Xybrid like you/me
-
-He asks her what her name is
-
-Hey I'm Max and this is...
-
-Leona(yells): come on Airiona lets go or i'm leaving without you
-
-Airiona runs away with out saying her name
-
-Jax/Max: oh well at least you got her name
-
-Max/Jax: Yea but I wanted to hear it from her
-
-They finish their prepartion and head into space
-
-At one point Max and Jax finds a struggling Airiona in space and saves her from a Cyber.Beast. While fight the Cyber.Beast Jax looks back and tells her us hybrids has to stick together Max then carries her to safety. Max then begins to call her my nia and Jax joins in on the joke despite initially correcting him upon realizing the joke. 
-
-Airiona: I remember you from earlier you're Max?
+  Spike is shown watching it
+  
+  Max (teleports behind spike maybe alongwith Jax): hey what's
+  
+  Spike(quickly turns of what he was watch): nothing! would it hurt to warn me before teleport outof no were like that
+  
+  Max:but I thought you liked when I did that. wait don't tell me you're too old/cool for this stuff now
+  
+  Spike: well I am 12 now
+  
+  Max: Haha ok well did you watch the CNS finals
+  
+  Spike: naw i already knew you'd win. right?
+  
+  Max: of course but if you had watched you would also know Xenos/Kyshumu retired
 
 ### 2. Call To Adventure
 Episodes: 3, 4
+
+While hanging out with Spike a Cybervator goes Berserk turning into a Cyber.Beast for the first time in years. Both Max and Spike CSD display a red alert. With Jax the Cybervator of both no where to be found. Max decides to handle the Cyber.Beast his self maybe using tech Spike found and showed Max before the story started which he was forbiden to use. But Spike tells him to do it any way since there is no one else. Jax later appears to finish it of statng that he wasunable to teleport or comunicate
 
 Alex becomes the first Green Cybervator to win MVP allowing to become cheif
 
@@ -217,13 +214,14 @@ Max fights Airiona outside of cyberspace Xeno/Airiona tells Max if he can beat h
   Minia/airiona says something in anger in reference to Cyvolters/Eclipse/Cytek being built on cooperation
   
   Max: No he's right. If I can't figure out a way to bet you on my own I shouldn't be out there. You said so your self
+  
+## Act 2		
 
 ### 5. Crossing The Threshold
 Episodes: 9, 10, 11, 12
 
 Max is now the teams Sniper/Marksmen Ace the Front Guard Knilla is the Rear Guard
 
-## Act 2		
 ### 6. Tests, Allies, Enemies
 Episodes: 10, 11, 12, 13, 14, 15, 16, 17
 
@@ -287,6 +285,8 @@ Max realizes that he can't keep up and will not beat Jax in his current state an
 Kyshumu takes back the Satellite  that was stolen from ReNet
 
 Spike tells Max that there is no way they well be able to win and fufill their goal
+
+Max final stops ignoring spike and learns about some of the real past
 
 ### 8. Ordeal, Death, Rebirth
 Episodes: 23, 24, 25, 26, 27, 28, 29, 30
