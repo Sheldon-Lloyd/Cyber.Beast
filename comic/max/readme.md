@@ -110,6 +110,8 @@ Kyshumu's team wins the championship against Xenos(Blue), Alex(Green), Knilla(Bl
 
 Xenos retires during his press conference and Leona bursts out laughing
 
+Xenos announces that he will not be entering this years tournament as he wants to give the the next generation a chance(Ace and Alex)
+
 - Cut away to the backstory of the CNS and it purpose(much of this info will be reveal t be false later own)
 
   Spike is shown watching it
@@ -131,7 +133,7 @@ Xenos retires during his press conference and Leona bursts out laughing
 ### 2. Call To Adventure
 Episodes: 3, 4
 
-While hanging out with Spike a Cybervator goes Berserk turning into a Cyber.Beast for the first time in years. Both Max and Spike CSD display a red alert. With Jax the Cybervator of both no where to be found. Max decides to handle the Cyber.Beast his self maybe using tech Spike found and showed Max before the story started which he was forbiden to use. But Spike tells him to do it any way since there is no one else. Jax later appears to finish it of statng that he wasunable to teleport or comunicate
+While hanging out with Spike a Cybervator goes Berserk turning into a Cyber.Beast for the first time in years. Both Max and Spike CSD display a red alert. With Jax the Cybervator of both no where to be found. Max decides to handle the Cyber.Beast his self maybe using tech Spike found and showed Max before the story started which he was forbiden to use. But Spike tells him to do it any way since there is no one else. Jax later appears to finish it of statng that he was unable to teleport or comumnicate. Because Max to takes arms and fight in thier stead it allow Max realize that maybe anyone can be a Cybervator
 
 Alex becomes the first Green Cybervator to win MVP allowing to become cheif
 
@@ -143,7 +145,7 @@ Spike: see(showing him the registration). Before max has chance to turn him down
 
 Max: huh!? You did what!? 
 
-Spike: well you said you would so someone had to it
+Spike: well you said you wouldn't so someone had to do it
 
 Max tells that it is impossible but spike him not he he has this acient tech he found or learned about
 
@@ -161,20 +163,28 @@ Spike states that it is not a good idea to tell others about the secrets as it w
 
 Max is surprised by this as he is a reporter and one would think he would be the first to want to tell everyone. Spike tells him it is also a reporter job to use good judgement for what can potentaily be detraminal if the world knew about it.
 
-Max makes the team as a cybervator but is not allowed to fight they are only allowed refuel and some give advice to fellow cybervator between rounds
+Max makes the team as a cybervator but is not allowed to fight they are only allow him to refuel and give advice to fellow cybervator between rounds
 
-#### Version 1
-Max's faces off against brutally violent injuring many of their Cybervators that they maybe forced to forfeit Max volunteers to be the Center/Marksmen Jax relunactly allows him to do it. To everyones surprise he is able to wield a Cyber.Beast
+- Max and Jax has thier first match without Kyshumu who used to do most if not all of the heavy lifting for his team. This forces them to utilize thier entire team
+ 
+  Max's team faces off against a brutally violent team. Aarock injures Leona that they maybe forced to forfeit.
+  
+  Because of what commentators call neptonism Max is on Leona/Tomasina's team as a center. this however means they don't have a backup mainly because they rarely get injured.
 
-Because of what commentators call neptunism Max is on Leona/Tomasina's team as a center. this however means they don't have a backup mainly because they rarely get injured.
+  Spike begs Max not to forfiet and tells him this is the perfect opportunity to show the world that anyone can be a Cyber.Fighter. Max tells him that he wont and that they will forfiet
+  
+  Just before Max is about to anounce their forfiet Aarock tuants(spikes request) Max telling him to give and to get a life as he is not a real Cybervator and suggest that Spike would make a better Cybervator than him. Max  accepts his challange
 
-#### Version 2
-Max's team is fighting a criminal or Cybervator that has gone Berserk they are all done and out forcing Max to take arms and fight in their stead allowing Max and everyone realize that maybe anyone can be a Cybervator
+  Jax relunactly allows him to do it. Jax tells him to let him handle everything. 
+  
+  Max takes advantage of his position for his own desires and switches with Jax seeing this as his opportunity to fight and almost gets his self killed by aarock but still manages to everyones surprise he is able to wield a Cyber.Beast
+
 
 ### 3. Refusal Of The Call
 Episodes: 5, 6
+Jax tells Max to promise him that he will never try to fight again. Max refuses so Jax tells Leona to release Max.
 
-Kyshumu announces that he will not be entering this years tournament as he wants to give the the next generation a chance(Minia Leona and Jax)
+Kyshumu is angery at Jax and Jax tells him that Max gave him no choice
 
 Max is upset by Kyshumu steping down as he wanted to fullfill his dream of defeating him
 
@@ -414,7 +424,7 @@ Episodes: 35, 36, 37, 39, 39, 40, 41, 42
 ### 11. Resurrection
 Episodes: 43, 44, 45, 46, 47, 48, 49, 50
 
-Mack cheers Max on just like they cheer on Xenos in the beging of the story but this time fighting side by side with him as his Cyber.Beast
+Mack cheers Max on just like they cheer on Xenos in the begining of the story but this time fighting side by side with him as his Cyber.Beast
 
 Lets go Max
 
