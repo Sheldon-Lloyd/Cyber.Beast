@@ -133,7 +133,46 @@ Xenos announces that he will not be entering this years tournament as he wants t
 ### 2. Call To Adventure
 Episodes: 3, 4
 
-While hanging out with Spike a Cybervator goes Berserk turning into a Cyber.Beast for the first time in years. Both Max and Spike CSD display a red alert. With Jax the Cybervator of both no where to be found. Max decides to handle the Cyber.Beast his self maybe using tech Spike found and showed Max before the story started which he was forbiden to use. But Spike tells him to do it any way since there is no one else. Jax later appears to finish it of statng that he was unable to teleport or comumnicate. Because Max to takes arms and fight in thier stead it allow Max realize that maybe anyone can be a Cybervator
+- Spike tries to digg deaper into the data that he discovered but he realizes that it is encrypted. He thinks Max might be able to help. 
+  Spike: You think you can come over when you have time
+  
+  Max: sure I'll have Jax teleport me over
+  
+  Spike does not want Jax to come
+  
+  Max takes the train to vist him
+  
+  Spike: Max remember when ask what I was doing yesterday/last week
+  
+  Max: yea and you said it was nothing. What about it
+  
+  Spike(shows Max): Well I found something that might let you acctually compete in the CNS. It's blueprints for lost technolgy but it's encrypted.
+  
+  Max: Amazing where did you get this?
+  
+  Spike: It was my father's. No one is supposed know about this though which is why i didn't want Jax to come
+  
+  Max: of course he is the last person I'd expect to keep a secret
+  
+Max tells Spike that he can decrypt the rest that only a Cybervator would be able to do it
+  
+Max tells that it is impossible but spike him not he he has this ancient tech he found or learned about
+
+Spike calls Max to show him ancient tech that he found and goes on about the right full place of citzens. 
+
+Spike thinks that this is the case because Makkusu invented a type of cyber.beast that allowed Citizens to wield cyber.beast by repurposing the device originally used to control cybervators.
+
+Spike wants Max to help decrypt the data he found but Max tells that it is not possible as only a Cybervator can read it he goe to get Jax but spike tells him that Jax is to much of a big mouth
+
+Spike/Max unknowingly press a button
+
+On the way back a Cybervator goes Berserk turning into a Cyber.Beast for the first time in years. Both Max and Spike CSD display a red alert. With Jax the Cybervator of both no where to be found. Max decides to handle the Cyber.Beast his self maybe using tech Spike found and showed Max before the story started which he was forbiden to use. But Spike tells him to do it any way since there is no one else. 
+
+Max holds his own but is eventually knocked out. While unconcious Max continues the dream from the begining of the comic with slight variations. His dream shows a Cyber.Beast attacking at the end of the tournament. Xenos fights the Cyber.Beast. Just before it kills his father he wakes up. Jax is at the scene and he is fighting or has finshed fighting the Cyber.Beast
+
+Jax later appears to finish it of statng that he was unable to teleport or communicate. 
+
+Because Max to takes arms and fight in thier stead it allow Max realize that maybe anyone can be a Cybervator
 
 Alex becomes the first Green Cybervator to win MVP allowing to become cheif
 
@@ -146,14 +185,6 @@ Spike: see(showing him the registration). Before max has chance to turn him down
 Max: huh!? You did what!? 
 
 Spike: well you said you wouldn't so someone had to do it
-
-Max tells that it is impossible but spike him not he he has this acient tech he found or learned about
-
-Spike calls Max to show him ancient tech that he found and goes on about the right full place of citzens. 
-
-Spike thinks that this is the case because Makkusu invented a type of cyber.beast that allowed Citizens to wield cyber.beast by repurposing the device originally used to control cybervators.
-
-Spike wants Max to help decrypt the data he found but Max tells that it is not possible as only a Cybervator can read it he goe to get Jax but spike tells him that Jax is to much of a big mouth
 
 Spike calls Airiona/Arrock to help them decrypt it.
 
@@ -184,19 +215,17 @@ Max makes the team as a cybervator but is not allowed to fight they are only all
 Episodes: 5, 6
 Jax tells Max to promise him that he will never try to fight again. Max refuses so Jax tells Leona to release Max.
 
+Jax tries stops Max from becoming a Cybervator by realeasing him
+
+The commentaors say they did the right thing 
+
+Jax says that he refuses to contribute to him getting his self killed. Jax tells Leona to release Max. She does this maybe by using her fathers credentials.
+
 Kyshumu is angery at Jax and Jax tells him that Max gave him no choice
 
 Max is upset by Kyshumu steping down as he wanted to fullfill his dream of defeating him
 
 Jax tells Max that it is to dangerous for him to become a Cybervator and that he will not allow it
-
-Jax tries to stop Max by fighting him in Cyberspace to destory his Cyber.Beast Max tells him that if he loses he will just get another one Jax says And I will take as many times as I needs to.
-
-Jax tries stops Max from becoming a Cybervator by realeasing him
-
-The commentaors say they did the right thing 
-
-Jax says that he refuses to contribute to him getting his self killed. Jax tells Leona to release Max. She does this maybe by using her fathers credentials
 
 After Max is released spike uses this opportunity to persuaded him to join the Revolution he is starting Max tells hat it is not a good idea and that he will go about it the right way.
 
@@ -211,20 +240,6 @@ Xenos' team is called irresponsible for doing it as he could get killed out ther
 
 Dispite being signed by Xenos' team he is still sidelined
 
-Max fights Airiona outside of cyberspace Xeno/Airiona tells Max if he can beat her he can join/fight in the next match
-
-- While testing/training Max minia/Airiona holds  back and/or aids while against Max
-  
-  minia/Airiona: I... I dont want to hurt... 
-  
-  Max(steps in front): I mean it's only practice
-  
-  Only only? You think that's what is going to be going through the heads of our opponents in our next Match. He is giving his all. Trying to improve
-  
-  Minia/airiona says something in anger in reference to Cyvolters/Eclipse/Cytek being built on cooperation
-  
-  Max: No he's right. If I can't figure out a way to bet you on my own I shouldn't be out there. You said so your self
-  
 ## Act 2		
 
 ### 5. Crossing The Threshold
@@ -235,14 +250,35 @@ Max is now the teams Sniper/Marksmen Ace the Front Guard Knilla is the Rear Guar
 ### 6. Tests, Allies, Enemies
 Episodes: 10, 11, 12, 13, 14, 15, 16, 17
 
+- Max asks Aarock why he decided to join Eclipse/Cytek
+  Aarock: I want to show that I am the Best and what I figured what better way to do that than to join the worst team in the league and win.
+
+Max fights Airiona outside of cyberspace Xenos tells Max if he can beat her he can join/fight in the next match
+
+Max tells Xenos that he aready beat a Cybervator Airiona/Aarock cuts Max off telling him that they let him win and how Spike set everything up. Max replies yelling. He what!?
+
+Airiona subtlety tells Aarock that he is giving Max to much information
+
+- While testing/training Max minia/Airiona holds  back and/or aids while against Max
+  
+  minia/Airiona: I... I dont want to hurt... 
+  
+  Max(steps in front): It's only practice
+  
+  Kyshumu(who is watching): Only only? You think that's what is going to be going through the heads of our opponents in the next Match. He is giving his all. Trying to improve
+  
+  Minia/airiona says something in anger in reference to Cyvolters/Eclipse/Cytek being built on cooperation
+  
+  Max: No he's right. If I can't figure out a way to bet you on my own I shouldn't be out there. You said so your self
+  
+
 Spike calls Max to the cave again to show him more items or information that he discovered
 
 During the tournament Max and Spike learn that the tournament is influenced by quatum mechanics rather than gems
 
-After words Spike can nologer restrain his self and releases the information to the public
+Afterwards Spike can nologer restrain his self and releases the information to the public
 
 Airiona is traded to Max's team
-
 
 The cyvolters have revealed their selves and has been causing trouble with the new tech that Max created
 
@@ -280,7 +316,7 @@ Max asks Spike if he was behind the recent attacks he tells him "No of course no
 
 Max prepares for the championship training, stratigizing, and developing more tech.
 
-With Airiona no longer apart of the team she must be replaced By Airiona which means she must be replaced by Xenos
+With Airiona no longer apart of the team she must be replaced By Minia which means she must be replaced by Xenos
 
 Max thinks about spike he starts to contemplate the potential ramifications of creating this technology
 
@@ -301,6 +337,7 @@ Max final stops ignoring spike and learns about some of the real past
 ### 8. Ordeal, Death, Rebirth
 Episodes: 23, 24, 25, 26, 27, 28, 29, 30
 
+Jax again tries to stop Max by fighting him in Cyberspace to destory his Cyber.Beast Max tells him that if he loses he will just get another one Jax says And I will take as many times as I needs to.
 
 Max has been unknowingly aiding the Cyvolters as he the Cyber.Beast he was using was connected to Spike so all of the satellites and/or Hub he won during the tournement belongs to Spike and the Cyvolters now.
 
