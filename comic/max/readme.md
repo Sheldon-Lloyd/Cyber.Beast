@@ -29,12 +29,6 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 	- Tomasina: This the first Berserk Cyber.Beast since Mack... (she looks at Max)I mean your parents was killed by one
 - Airiona believes that	a cybervator should serve Citizens not the other way around the way how the world currently works
 - Max is going to change the preception of who can be a cybervator in the future will no citizen be designated Cornerman and told they can't be a Cybervator beacuse they will be able to point to Max and say I can
-- Spike declares war on the NRA. 
-	Max: ha you and what army
-	Spike: This army
-	Spike reveals all of the Cybervators that are now under his control
-	
-- Despite gaining new power Max refuses to use it and wears his restaint. He wants to win the championships with his original promise in my and ahow everyone that you don't need to be a berserker/Xybrid to succeed as a Cybervator.
 
 - People are angery about what is precived to be cheating to prevent Max's team from winning Spike is one of them his precieved mistreatment of Max and his team is what drives him to do increasingly worst misdead through the story.
 
@@ -49,8 +43,6 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Spike tells Max that if he wins and become cheif he'll be able change things for a citizens
 	
 - Spikes father tells them to cut the feed Tomasina says that they can't Kyshumu responds saying that he knows how to cut the feed and heads into combat Tomasina is fustrated and sends Xenos to Aid Kyshumu
-
-- Max to Minia/Airiona about his reocurring nightmare in which he becomes a Cyber.Beast and kills his father. He is told that it becomes he blames his self and that it is not his fault
 
 Max continously ignores Spike but not listens to but obeys him as CyKo. This prompts him to disguise his self as Speeding bullet
 
@@ -271,6 +263,7 @@ Airiona subtlety tells Aarock that he is giving Max to much information
   
   Max: No he's right. If I can't figure out a way to bet you on my own I shouldn't be out there. You said so your self
   
+After Max wins his first match more citizens have become insprired that they too can have equal power to that of cybervators
 
 Spike calls Max to the cave again to show him more items or information that he discovered
 
@@ -341,7 +334,14 @@ Jax again tries to stop Max by fighting him in Cyberspace to destory his Cyber.B
 
 Max has been unknowingly aiding the Cyvolters as he the Cyber.Beast he was using was connected to Spike so all of the satellites and/or Hub he won during the tournement belongs to Spike and the Cyvolters now.
 
-The Spike reveals his self as the leader of the cyvolvters and starts a war to take back control of cybervators
+- The Spike reveals his self as the leader of the cyvolvters and declares war to take back control of cybervators
+
+	Max: ha you and what army
+
+	Spike: This army
+
+	Spike reveals all of the Cybervators that are now under his control
+	
 
 Spike tells Max that he has been using his cyber.beast wrong the whole time but thanks him for the neruolace enabling him to perfect the CSDs. He is no longer forced to command each cybervator one by one but instead use commander's intent to control every single one of them. Unlike Max Spike is able to control human/full scale Humanoid Cyber.Beast, one of which is Mack
 
@@ -442,6 +442,14 @@ Max is no longer fighting for fame and instead after watch the suffering that Sp
 
 Max makes it to the final round of the championship equiped with his new tech. Max is aproached by Spike to use his tech that he created Max kindly aggrees to distribute it. He promises to start a new company called Cytek upon winng the championships
 
+
+
+## Act 3
+### 10. The Road Back
+Episodes: 35, 36, 37, 39, 39, 40, 41, 42
+
+- Despite gaining new power Max refuses to use it and wears his restaint. He wants to win the championships with his original promise in my and ahow everyone that you don't need to be a berserker/Xybrid to succeed as a Cybervator.
+
 Max fights Jax in the championships
 
 Max wipes his face with tha back of his hand and tells Jax "You're holding back arent you"
@@ -450,12 +458,6 @@ Alex/Ace gives Max's team a hub/satellite from BluNet as a favor to Max defeatin
 
 Max defeats Jax and wins the championships by using yet another technology he created allowing him to fight in a burstDrive like state
 
-After Max wins more citizens have become insprired that they too can have equal power to that of cybervators
-
-
-## Act 3
-### 10. The Road Back
-Episodes: 35, 36, 37, 39, 39, 40, 41, 42
 
 
 ### 11. Resurrection
