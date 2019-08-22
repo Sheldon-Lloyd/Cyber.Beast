@@ -67,7 +67,7 @@ Since Spike is not old enough to join he eventually joins as speeding bullet
   He choose to save you not you
   
   Max's CSD beeps in binary to agree
-
+  
 ## Act 1
 ### 1. Ordinary World
 Episodes: 1
@@ -359,11 +359,13 @@ Max wins taking his old cyber.beast back may jax gives it to him because he want
 
 Max realizes that he can't keep up and will not beat Jax in his current state and is on the verge of losing everything he worked for. Max decide to use his untested neuro mesh device allowing to hyperlink like a cybervator.	
 
-Kyshumu takes back the Satellite  that was stolen from ReNet
+Kyshumu takes back the Satellite that was stolen from ReNet
 
 Spike tells Max that there is no way they well be able to win and fufill their goal
 
 Max final stops ignoring spike and learns about some of the real past
+
+To Max's surprise, Spike has cut off his arm telling max you like I'm just like you now. The robotic arm(s) he replaced it with is connected to his brain and acts like a tail allow him to fuse with Cyber.Beast as well as to control the cybervators
 
 ### 8. Ordeal, Death, Rebirth
 Episodes: 23, 24, 25, 26, 27, 28, 29, 30
@@ -403,75 +405,75 @@ Max creates a new virus based on the one Spike used that will free all the Cyber
 
 Everyone buys time so that Max can complete the algorithim
 
-Spike uses his body as host to Bursun or tries to use Bursuns Cyber.Beast after failing many times before only to have Bursun take full contol.
+Spike tries to use Bursun's Cyber.Beast after failing many times before
 
-Spike realizes that Max has the advantage do to the collective support of his fans he shows everyone that Max too is a Cybervator by making him go berserk after seemingly killing Airiona
+- It is spike that learns who Max really is. Max is on the verge of winning while fighting along with tomasima and/or kyshumu who tries to stop Spike from telling the tail to inform Max by telling him the story of the xybrids. 
 
-It is spike that learns who Max really is. Max is on the verge of winning while fighting along with tomasima and/or kyshumu who tries to stop Spike from telling the tail to inform Max by telling him the story of the xybrids. 
+  Max responds with what does that story have to do with. 
 
-Max responds with what does that story have to do with. 
+  After realizing his fault in the situation While fighting spike max tells him that it is him he should is angry at that his hate should be pointed at him rather than the world.
 
-Spike: you can tell him Airiona
+  Spike tells max that he's right and precedes to turn max into a cyber.beast.
 
-Spike tells Max it is because you have been lied to this entire time. Well remember the limiters we learned about. That head/neck band you are wearing it is not a keepsake it's a restraint. Take it off and I'll free everyone
+  Spike: you can tell him Airiona
 
-Airiona: They fear citizens but they fear your power even more Max
+  Spike tells Max it is because you have been lied to this entire time. Well remember the limiters we learned about. That head/neck band you are wearing it is not a keepsake it's a restraint. Take it off and I'll free everyone
 
-Max take his head off his head/neck band. Tomasina tells Max not to take it off
+  Airiona: They fear citizens but they fear your power even more Max
 
-Airiona: You see you are not only a cybervator and not just a xybrid either but rather a berserker. The most dangerous kind of cybervator. 
+  Max take his head off his head/neck band. Tomasina tells Max not to take it off
 
-Airiona: Berserkers are rare but The chance that a Berserker is born increase 20 fold when a Cybervator has a child with a citizen which is why marriages between the two is prohibited.
+  Airiona: You see you are not only a cybervator and not just a xybrid either but rather a berserker. The most dangerous kind of cybervator. 
 
-Max: Are you saying? Noo no no I don't believe you no I refuse to believe you
+  Airiona: Berserkers are rare but The chance that a Berserker is born increase 20 fold when a Cybervator has a child with a citizen which is why marriages between the two is prohibited.
 
-Airiona/Spike: Berserkers are cybervators that do not need to meditate in order to hyperlink with a cyber.beast. which makes them dangrous so they're killed. this is a secret known only by the highest ranked cybervators
+  Max: Are you saying? Noo no no I don't believe you no I refuse to believe you
 
-Airiona: This is the world Spije and I are fighting to fix. We need your help to do. You're the only one who can. Once this is all over will free every not just the Cybervators. I promise.
+  Airiona/Spike: Berserkers are cybervators that do not need to meditate in order to hyperlink with a cyber.beast. which makes them dangrous so they're killed. this is a secret known only by the highest ranked cybervators
 
-Spike wispers: I'll take it from here Airiona You see it wasn't just any cyber.beast that killed your parents it was you.
+  Airiona: This is the world Spije and I are fighting to fix. We need your help to do. You're the only one who can. Once this is all over will free every not just the Cybervators. I promise.
 
-	That's right. Max you killed your father
+  Spike wispers: I'll take it from here Airiona You see it wasn't just any cyber.beast that killed your parents it was you. That's right. Max you killed your father
 
-Max: Noooooo! Noooooooo!
+  Max: Noooooo! Noooooooo!
 
-Spike: Whats wrong Max? Ha ha ha, You're not the paragon you thought you were are you
+  Spike: Whats wrong Max? Ha ha ha, You're not the paragon you thought you were are you
 
-Tomasina: don't listen to him he's lying
+  Tomasina: don't listen to him he's lying
 
-Spike: and poor Yaharia had to sacrifice her self to save everyone else
+  Spike: and poor Yaharia had to sacrifice her self to save everyone else
 
-Max: Argh! Aah!
+  Max: Argh! Aah!
 
-Max goes berserk upon being told he killed his parents
+  Max goes berserk upon being told he killed his parents
 
-Spike tells everyone behold your so called hero this causes him to lose the support of everyone
+Spike who thinks he is still being brodcasted live tells everyone behold your so called hero
 
-Jax Tomasina goes on to fight Max who is being controlled by Spike
+Jax and Tomasina goes on to fight Max who is being controlled by Spike
 
-It seems like Spike is about to succumb to his own weapon but it is Bursun taking over his body
+Airiona tells Spike to stop as it was not apart of the plan to take control of Max. Airiona turns on Spike into to Jax's surprise who says what are you doing. Something I should have done a long time ago. Airiona hits as if whooping hi arm or flicks spike and she succesully plants the virus. 
 
-Airiona turns on Spike and she succesully plants the virus in Spike/Max this frees Max
+This leaves all of the Cyber.Beast including Max without a tamer. Airiona must defend Spike from the Cyber.Beast alone as Jax and company tries to prevent the rest from escaping into highly populated areas. 
 
 Jax is surprised as he goes to attack he desynergizes despite the fact that still has plenty of energy left. The CSD/Cyber.Beast which Jax took from Max earlier in the story returns to him.
 
-Upon coming out of his Berserk state Torey teaches Max truth about some the history of the Xybrids.
+Upon coming out of his Berserk state Mack teaches Max truth about some the history of the Xybrids.
 
 Mack reveals that Max did not kill him he traded places with him so the he could be free from the Cyber.Beast. Yaharia took half of the Cyber.Beast by turning off her limiter so that she could absorb it.
 
 However Spike did not lie Yaharia CSD stoped recording after she sacrificed her self to tame the Cyber.Beast so she does know role therefore spike wouldn't know either
 
-Max fights and Defeats Spike by using the Cyber.Beast of every one else and maybe pair it with his newfound berserker abilities but unlike Spike he does not forcefully take their power
+Just when it seems all hope is lost, Max appears and has fully tamed his Cyber.Beast. The first person he saves is Spike who is surprised by this.
 
-Max saves spike from Airiona/Jax 
-- Jax goes to finish Spike Max says stop you'll kill him block his attack
-- Jax goes to finish Spike Max says stop you'll kill him <I'll never make it in time> Airiona jumps in to handle Spike instead and says I'll handle him
-- Airiona belives that it is her fault that Spike is in this situation and the he is beyond reasoning with at this point and decides to kill him or defuse him causing to lose his memory
+Max fights and Defeats the Cyber.Beast by using the Cyber.Beast of everyone else and maybe pair it with his newfound berserker abilities but unlike Spike he does not forcefully take their power
 
-Spike asks Max why he saved him after all he did. Max says he realized his fault in the situation
+Spike asks Max why he saved him after all he did. Max again states he realized his fault in the situation and elaborates
+- I told you its not your fault
 - Ignoring Spike instead of being his mentor and leading him
 - Not listen to spikes advice
 - focusing on his self in stead of using his new status to elevate others
+
+Max asks Spike to stop the Cyber.Beast who says he doesnt know how or Airiona speaks for him
 
 ### 9. Reward (Seizing The Sword)
 Episodes: 31, 32, 33, 34
@@ -479,8 +481,6 @@ Episodes: 31, 32, 33, 34
 Max is no longer fighting for fame and instead after watch the suffering that Spike and Airiona went through wants to win in order to change the world one in which Cybervators and Citizens have equal opportunity. This will reverse the artifical oppresion created by pass generations
 
 Max makes it to the final round of the championship equiped with his new tech. Max is aproached by Spike to use his tech that he created Max kindly aggrees to distribute it. He promises to start a new company called Cytek upon winng the championships
-
-
 
 ## Act 3
 ### 10. The Road Back
@@ -511,6 +511,10 @@ At this point Max smiles maybe looking at his father
 
 ### 12. Return With The Elixir
 Episodes: 51, 52
+
+Max visits spike After the tournament who is in the hospital and asks the doctor about his arms who tells him you know as good as well as I do that they are not coming back. Spike tells him that it is ok as it is reminder of what he did a besides just like he said before I also looked up to you any way
+
+After visiting Spike Airiona asks what will be done with him she's told that he will be treated with his injury then placed in rehab and once he is released he be placed under an intensive surveillance system in which a cybervator will be watching at all times not just sometimes for a few years. As max explains this process spike is shown going through this process
 
 Max frees Mack it is learned that she and the Cyber.Beast is from a different universe.
 
