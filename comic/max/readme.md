@@ -28,12 +28,7 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Cybervators start going Berserk for the first time in since Makkusu's parents was killed by Cyber.Beast which Tomasina talks about cuting it short
 	- Tomasina: This the first Berserk Cyber.Beast since Mack... (she looks at Max)I mean your parents was killed by one
 - Airiona believes that	a cybervator should serve Citizens not the other way around the way how the world currently works
-- Max is going to change the preception of who can be a cybervator in the future will no citizen be designated Cornerman and told they can't be a Cybervator beacuse they will be able to point to Max and say I can
-
-- People are angery about what is precived to be cheating to prevent Max's team from winning Spike is one of them his precieved mistreatment of Max and his team is what drives him to do increasingly worst misdead through the story.
-
-- Towards the end of Spike's arc he also joins Max's team which ultimatlly leads to his despair as his arorgance causes his team to lose or nearlly lose in which case he intervines by taking over a Cybertor on the opposing team. Max notices what has happened and in away forfiets the match maybe by interfaring or by not fighting back.
-	- If Max does not fight Back then it will be harnmony that goes berserk turning on her own team and/or satellite but Max is able to stop by simply standing in front of her and starts sing maybe a silly song that harmony all ways sings. And later explains why he did it and the way music works.
+- Max is going to change the preception of who can be a cybervator in the future will no citizen be designated Cornerman and told they can't be a Cybervator beacuse they will be able to point to Max and say I can. He also changes the way the game is played
 
 - Cybervators start randomly going berserk staring with the retired Cybervators who many don't care about. The world does not start to take these events seriously until free agent and even empoloyed Cybervators are affected. One of the Cybervators that go berserk is Harmony. Another is a council member
 
@@ -332,7 +327,9 @@ Soon after Jax apears to help as well
 Max and Jax fight together but separatly as neither wants help from the other
 
 Max is surprised to find that Airiona is a Cyvolter and stops Jax from finishing her or cuting her tail off leting her escape. Jax is enraged by this Max exclaims that she is not a bad. Jax Responds that she tried to kill Te Cybervator how is she not a bad guy
-		
+
+Before or after learns/realize Spike and Speeding bulet is the same person Max is asked if he knows him upon recognizing him. Max tells them in a flashback about how he is the one that convinced him to become a Cybervator
+
 ### 7. Approach To The Inmost Cave
 Episodes: 19, 20, 21, 22
 
@@ -366,6 +363,13 @@ Spike tells Max that there is no way they well be able to win and fufill their g
 Max final stops ignoring spike and learns about some of the real past
 
 To Max's surprise, Spike has cut off his arm telling max you like I'm just like you now. The robotic arm(s) he replaced it with is connected to his brain and acts like a tail allow him to fuse with Cyber.Beast as well as to control the cybervators
+
+- People are angery about what is precived to be cheating to prevent Max's team from winning Spike is one of them his precieved mistreatment of Max and his team is what drives him to do increasingly worst misdead through the story.
+
+- Spike tries to help Max out by cheating when Max sees this he responds by estentenaly coinciding as he stops mid attack so that he does not hit a frozen harmony. this enrages spike at this point he decides take matters into his own hands. This is because he thinks Max is working with the nra and recently learned they cheat to maintain the world order
+
+- Towards the end of Spike's arc he also joins Max's team which ultimatlly leads to his despair as his arorgance causes his team to lose or nearlly lose in which case he intervines by taking over a Cybertor on the opposing team. Max notices what has happened and in away forfiets the match maybe by interfaring or by not fighting back.
+	- If Max does not fight Back then it will be harnmony that goes berserk turning on her own team and/or satellite but Max is able to stop by simply standing in front of her and starts sing maybe a silly song that harmony all ways sings. And later explains why he did it and the way music works.
 
 ### 8. Ordeal, Death, Rebirth
 Episodes: 23, 24, 25, 26, 27, 28, 29, 30
@@ -431,17 +435,21 @@ Spike tries to use Bursun's Cyber.Beast after failing many times before
 
   Airiona/Spike: Berserkers are cybervators that do not need to meditate in order to hyperlink with a cyber.beast. which makes them dangrous so they're killed. this is a secret known only by the highest ranked cybervators
 
-  Airiona: This is the world Spije and I are fighting to fix. We need your help to do. You're the only one who can. Once this is all over will free every not just the Cybervators. I promise.
-
-  Spike wispers: I'll take it from here Airiona You see it wasn't just any cyber.beast that killed your parents it was you. That's right. Max you killed your father
+  Airiona: This is the world Spike and I are fighting to fix. We need your help to do. You're the only one who can. Once this is all over will free every not just the Cybervators. I promise.
+   
+  Spike (jumps down wispers): I'll take it from here Airiona You see it wasn't just any cyber.beast that killed your parents it was you. That's right. Max you killed your father
 
   Max: Noooooo! Noooooooo!
 
   Spike: Whats wrong Max? Ha ha ha, You're not the paragon you thought you were are you
-
+  
+  spike goes to remove the restraint of the distraught Max 
+  
   Tomasina: don't listen to him he's lying
+  
+  Jax and company tries to intervene but Airiona and/or Spikes Cyber.Beast comes in to protect him
 
-  Spike: and poor Yaharia had to sacrifice her self to save everyone else
+  Spike: and poor Xenos had to sacrifice his self to save everyone else
 
   Max: Argh! Aah!
 
@@ -509,6 +517,18 @@ Come on Max
 
 At this point Max smiles maybe looking at his father
 
+- Spike is reminded of Bursun but realizes they are the same but different in their goals
+  
+  Max: Some compete for the love of the sport others for the glory/fame or money it brings. There also those that crave power or compete simply for the challenge it brings. For me, those are simply means to an end. At first, I thought I had something to prove to show the world that I could be the best which meant I needed to be the best
+  
+  Spike: he's just like
+  
+  [flashback]Bursun: Some fight for the love of the battle others for the glory/fame or money it brings. There also those that crave power or compete simply for the challenge it brings. For me, those are simply means to an end. All I want is to be able to live in peace.
+  
+  Spike: no he's different.  He wants redefine what it means to be a Cybervator to show everyone that there are no limits.
+  
+  Image of Max standing with every one on mountain smiling facing his foe while Bursun stands ahead of everyone frowning alone on a mountain facing his foe
+  
 ### 12. Return With The Elixir
 Episodes: 51, 52
 
