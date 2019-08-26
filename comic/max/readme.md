@@ -219,13 +219,15 @@ Spike states that it is not a good idea to tell others about the secrets as it w
 
 Max is surprised by this as he is a reporter and one would think he would be the first to want to tell everyone. Spike tells him it is also a reporter job to use good judgement for what can potentaily be detraminal if the world knew about it.
 
-Max makes the team as a cybervator but is not allowed to fight they are only allow him to refuel and give advice to fellow cybervator between rounds
+Max makes the team as a cybervator but is not allowed to fight they are only allow him to refuel and give advice to fellow cybervator between rounds which includes who what when where and how to substitute his team's cybervators.
 
-- Max and Jax has thier first match without Kyshumu who used to do most if not all of the heavy lifting for his team. This forces them to utilize thier entire team
+- Max and Jax has their first match without Kyshumu who used to do most if not all of the heavy lifting for his team. This forces them to utilize thier entire team
  
-  Max's team faces off against a brutally violent team. Aarock injures Leona that they maybe forced to forfeit.
+  Max's team faces off against a brutally violent team. Aarock injures Leona so that they maybe forced to forfeit.
   
   Because of what commentators call neptonism Max is on Leona/Tomasina's team as a center. this however means they don't have a backup mainly because they rarely get injured.
+  
+  Another commentator says he still has to beat all of the green cybervators within his division
 
   Spike begs Max not to forfiet and tells him this is the perfect opportunity to show the world that anyone can be a Cyber.Fighter. Max tells him that he wont and that they will forfiet
   
@@ -233,7 +235,7 @@ Max makes the team as a cybervator but is not allowed to fight they are only all
 
   Jax relunactly allows him to do it. Jax tells him to let him handle everything. 
   
-  Max takes advantage of his position for his own desires and switches with Jax seeing this as his opportunity to fight and almost gets his self killed by aarock but still manages to everyones surprise he is able to wield a Cyber.Beast
+  Max takes advantage of his position for his own desires and switches with Jax seeing this as his opportunity to fight and almost gets his self killed by aarock but still manages to everyones surprised he is able to wield a Cyber.Beast
 
 
 ### 3. Refusal Of The Call
@@ -269,6 +271,8 @@ Dispite being signed by Kyshumu's team he is still sidelined
 
 ### 5. Crossing The Threshold
 Episodes: 9, 10, 11, 12
+
+They name the network eclipse as they will Eclipse the staus quo just like the the Eclipse of times past
 
 Max is now the teams Sniper/Marksmen Ace the Front Guard Knilla is the Rear Guard
 
