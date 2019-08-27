@@ -6,9 +6,11 @@ Sports building character teaching people to not look at their self as victims w
 Competion vs cooperation, dont bite off more than you can chew, leadership
 
 ## Plot
-This is a united world in which there is no longer any wars. Peace is maintain by throgh the CNS league -- a sport in which Cybervator fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
+This is a united world in which there is no longer any wars. Peace is maintain by throgh the CNS league -- a sport in which Cybervators fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
 
-Max participates in the CNS as well but as a crewman. His resposibilities is to aid the Cyebrvators that compete in this league. However this is not enough for him. Max wants to be a fighter as well the only problem is that Max he doesn't have a tail.
+Of 3 out of 5 Cyber.Fighters are green as 2 green Cybervators are needed at minimum since a strategist is need even when a green cybervator is in the field of play.
+
+Max participates in the CNS as well but as a strategist/crewman. His resposibilities is to aid the Cyebrvators that compete in this league. However this is not enough for him. Max wants to be a fighter as well. There is only one problem, Max doesn't have a tail.
 
 Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is impossible to be a Cybervator. However that all changes when he stumbles across an acient technology hidden away along with all of its secrets.
 
@@ -76,13 +78,13 @@ Everyone tell him it is virtually imposible for him to become a cybervator he sa
 
 All citizens are allowed to compete in cyberspace and are allowed to be cornermen if they are good enough. They tend to avoid other cybervator in cyberspace but not max who actively challenges them. This is because Max uses a special complex contoller giving him complete control of his cyber.beast.
 
-Max is shown dreaming about the day he decide to become a Cybervator to defeat Kyshumu
+Max is shown dreaming about the day he decided to become a Cybervator to defeat Kyshumu
 
 Max wakes from his dream sleeping in the middle of the finals of the championship match.
 - Max. Max. Hey Max, what's the stragey... are you sleeping
 - Max looks up rubs his eyes and quickly assess the situation and creates a strategy
 
-- Kyshumu's team wins the championship against Alex(Green), Knilla(Blue), Ace(Red) with Alex winning the The BluNet MVP award the first Green Cybervator to do so
+- Kyshumu's team(Kyshumu, Leona, Airiona, Jax, Max) wins the championship against Alex(Green), Knilla(Blue), Ace(Red), Carla(Green) with Alex winning the The BluNet MVP award the first Green Cybervator to do so
  
   Did you see score there's no way they are coming back
  
@@ -104,10 +106,13 @@ Max wakes from his dream sleeping in the middle of the finals of the championshi
   Jax: he might not be able to but I can
  
   Leona(walks away with her hands in the air): alright, alright forget I ever said anything
-
-- Kyshumu retires during his press conference. Kyshumu announces that he will not be entering the next tournament as he wants to give the the next generation a chance(Jax and Leona)
   
-  Max: May be I should retire too
+  
+- Max has an interview and is fustrated
+
+  Max: May be I should retire
+  
+- After the interview Jax confonts Max
   
   Jax: Yea right. You won't quit.
   
@@ -132,22 +137,22 @@ Max wakes from his dream sleeping in the middle of the finals of the championshi
   Max: Haha ok well did you watch the CNS finals
   
   Spike: naw I already knew you'd win. right?
+     
+  Max(nervously): Yea <good then you didn't see it> 
+     
+  Jax(eating): Max said he is going to quit
   
-  Max: of course. But if you had watched you would also know Kyshumu retired
-  
-  Jax(eating): Max said he is going to quit too
-  
-  Max: that's not what I said
+  Max: that's not what I said. Besides it was heat of the momment
   
   Spike: Hey is that my food
   
-  Jax: I couldn't help my self it was just sitting thier
+  Jax: I couldn't help my self it was just sitting there
   
   Spike: But I was eating that
   
   Jax: I'll pay you back
   
-  Spike: that's not the poit
+  Spike: that's not the point
   
   Max(starts laughing): That's Jax for you
   
@@ -158,7 +163,7 @@ Max wakes from his dream sleeping in the middle of the finals of the championshi
 ### 2. Call To Adventure
 Episodes: 2, 3, 4
 
-- Spike tries to digg deaper into the data that he discovered but he realizes that it is encrypted. He thinks Max might be able to help. 
+- Spike tries to dig deaper into the data that he discovered but he realizes that it is encrypted. He thinks Max might be able to help. 
   Spike: You think you can come over when you have time
   
   Max: sure I'll have Jax teleport me over
@@ -248,9 +253,8 @@ The commentaors say they did the right thing
 
 Jax says that he refuses to contribute to him getting his self killed. Jax tells Leona to release Max. She does this maybe by using her fathers credentials.
 
-Kyshumu is angery at Jax and Jax tells him that Max gave him no choice
+Tomasina is angry at Jax and Jax tells him that Max gave him no choice
 
-Max is upset by Kyshumu steping down as he wanted to fullfill his dream of defeating him
 
 Jax tells Max that it is to dangerous for him to become a Cybervator and that he will not allow it
 
@@ -261,9 +265,11 @@ Episodes: 7, 8
 
 Airiona gives Max a new Cyber.Beast supplied by Spike. Max recognizes it as the Greater honeyguide--one of the two Cyber.Beast he and spike found. 
 
-Max joins Kyshumu's team.
+Max joins Airiona's team.
 
-Kyshumu's team is called irresponsible for doing it as he could get killed out there and hope to never see him out there again
+Tomasina comes out of retirement Commentators talk about how she originally retired after the merger of her and yshumu's tean because she wanted to give the the next generation a chance(Max and Leona)
+
+Tomasina's team is called irresponsible for doing it as he could get killed out there and hope to never see him out there again
 
 Dispite being signed by Kyshumu's team he is still sidelined
 
@@ -296,9 +302,9 @@ Airiona subtlety tells Aarock that he is giving Max to much information
   
   Kyshumu: Only only? You think that's what is going to be going through the heads of our opponents in the next Match. He is giving his all. Trying to improve
   
-  Minia/airiona says something in anger in reference to Cyvolters/Eclipse/Cytek being built on cooperation
+  Minia/airiona says something in anger in reference to Eclipse being built on cooperation
   
-  Max: No he's right. If I can't figure out a way to bet you on my own I shouldn't be out there. You said so your self
+  Max: No she's right. If I can't figure out a way to bet you on my own I shouldn't be out there. You said so your self
   
 After Max wins his first match more citizens have become insprired that they too can have equal power to that of cybervators
 
