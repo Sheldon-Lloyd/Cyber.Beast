@@ -235,7 +235,7 @@ Airiona gives Max a new Cyber.Beast supplied by Spike. Max recognizes it as the 
 
 Max joins Airiona's team.
 
-Airiona is/was a free agent for the first few games of the season as no team would sign her for base salary because her asking price was to high. She is also well known to not contribute a fair(50%) share if any mined bitgems to her teams satellite.
+Airiona is/was a free agent for the first few games of the season as no team would sign her for base salary because her asking price was to high. She is also well known to not contribute a fair(50%) share if any mined bitgems to her teams satellite. Being a as the green Cybervator of the team she was the coordinator of the team this allowed her to be "ball hog" so that she can get all of the gems at the sometimes at the cost of her team losing
 
 Tomasina comes out of retirement
 
