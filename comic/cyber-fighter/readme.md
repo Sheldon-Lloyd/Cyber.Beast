@@ -1,16 +1,16 @@
-﻿# Cyber.Beast(Max) outline 
+﻿﻿# Cyber.Beast(Cyber.Fighter) outline 
 ## Theme
 **The role sports play in society:**
 Sports building character teaching people to not look at their self as victims when confronted with someone ahead they will look at it as an opportunity for improvement a new target to set as a goal that can be surpassed instead of oppressing/stepping on other or cheating to get ahead as this removes the meaning of life. Citizen who have not had the chance to be cybervator inherit this problem.
 ### Sub-themes
-Competion vs cooperation, dont bite off more than you can chew, leadership
+Competition vs cooperation, don't bite off more than you can chew, leadership
 
 ## Plot
-This is a united world in which there is no longer any wars. Peace is maintain by throgh the CNS league -- a sport in which Cybervators fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
+This is a united world in which there is no longer any wars. Peace is maintain by through the CNS league -- a sport in which Cybervators fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
 
 Of 3 out of 5 Cyber.Fighters are green as 2 green Cybervators are needed at minimum since a strategist is need even when a green cybervator is in the field of play.
 
-Max participates in the CNS as well but as a strategist/crewman. His resposibilities is to aid the Cyebrvators that compete in this league. However this is not enough for him. Max wants to be a fighter as well. There is only one problem, Max doesn't have a tail.
+Max participates in the CNS as well but as a strategist/crewman. His responsibilities is to aid the Cyebrvators that compete in this league. However this is not enough for him. Max wants to be a fighter as well. There is only one problem, Max doesn't have a tail.
 
 Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is impossible to be a Cybervator. However that all changes when he stumbles across an ancient technology hidden away along with all of its secrets.
 
@@ -19,15 +19,16 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 - Roles
   - Broadcaster/Commentator: Akia?, Spike
   - Cornerman/crew: Akia?, Max
-  - Cybervator: Jax, Airiona, Xenos, Ace, Harmony
+  - Cybervator: Jax, Airiona, Ace, Harmony
   - Chief: Kyshumu, Alex  
+
 - Max learns about limiters and realizes that neck/head band
 - Spike/Max discovers that the database of hidden history he found included data from the CSDs of Cybervators Yaharia and Bursun. This info hidden was passesd through generation waiting to be used when Citizens was ready for it. Maybe the original invintor of the CSD or spikes ancestor media owner who first created the CNS to make spetical of Cybervator killing Cyber.Beast to cover up the war. This was approiated by Yaharia to create the CNS of today. Once she died Spike became the sol owner
-- Painting Makkusu(eclipse) as the bad guy is what makes the citizens accept the cybervators governing them as long as they provide protection from the cyvolters
+- Painting Max(eclipse) as the bad guy is what makes the citizens accept the cybervators governing them as long as they provide protection from the cyvolters
 - People think that wars are won after one side as imposed their will upon the other. Leaving only those that stand with them or indifferent. They think they are bullied into submission afraid of the power they pose. feeling that if they stepped out of line break law of the new enforcers they would incur their wrath. but unbeknownst to them, they are not the losers for they have taken the back seat to prime future generations to revolt against their current oppressors when they least expect long after those of the original conflict is gone.
 - Other Cybervators try to use Cyber.Beast on their limbs like Max even going as far as to cut off their limbs to attempt it maybe Spike is the one that attempts this experiment
 - Xenos: If your not striving for progress it wont be guaranteed you will not regress
-- Cybervators start going Berserk for the first time in since Makkusu's parents was killed by Cyber.Beast which Tomasina talks about cutting it short
+- Cybervators start going Berserk for the first time in since Max's parents was killed by Cyber.Beast which Tomasina talks about cutting it short
 	- Tomasina: This the first Berserk Cyber.Beast since Mack... (she looks at Max)I mean your parents was killed by one
 - Airiona believes that	a cybervator should serve Citizens not the other way around the way how the world currently works
 - Max is going to change the perception of who can be a cybervator in the future will no citizen be designated Cornerman and told they can't be a Cybervator because they will be able to point to Max and say I can. He also changes the way the game is played
@@ -51,7 +52,7 @@ Since Spike is not old enough to join he eventually joins as speeding bullet
   
   It turns out that Spike was the one leading the cyvolters which surprises everyone but Airiona
   
-  At the time of Max becoming a cybervator spike becomes his teams first and only fan. Even though spike looks up to Max, he does notice and therefore acknowledges spike III. Xenos notices this and warns max that it is responsibility lead.
+  At the time of Max becoming a cybervator spike becomes his teams first and only fan. Even though spike looks up to Max, he does notice and therefore acknowledges spike III. Xenos notices this and warns Max that it is responsibility lead.
   
 - Max tells Tomaina about his dream after they maybe see him having his nightmare.
   
@@ -72,6 +73,8 @@ Since Spike is not old enough to join he eventually joins as speeding bullet
     - Airiona: remember that time when interrupted Xenos and challenged him
     - Max: yea but I was just a kid <I didn't know what I was doing>
     - Airiona: Well this is your chance I may not be Xenos but he was my mentor. Imagine that I'm Xenos!
+
+- Spike flips after he is discovered and punished for cheating and thinks that Max my lose.
 ## Act 1
 ### 1. Ordinary World
 Episodes: 1
@@ -83,7 +86,7 @@ It is assumed that he did not have the tail gene because his parent was a citize
 
 Everyone tell him it is virtually imposible for him to become a cybervator he says that he beat the odds to become a tailless despite the 1% chance of it happening 
 
-All citizens are allowed to compete in cyberspace and are allowed to be cornermen if they are good enough. They tend to avoid other cybervator in cyberspace but not max who actively challenges them. This is because Max uses a special complex contoller giving him complete control of his cyber.beast.
+All citizens are allowed to compete in cyberspace and are allowed to be cornermen if they are good enough. They tend to avoid other cybervator in cyberspace but not Max who actively challenges them. This is because Max uses a special complex contoller giving him complete control of his cyber.beast.
 
 - Max is shown dreaming about the day he decided to become a Cybervator to defeat Xenos
 
@@ -117,13 +120,13 @@ Episodes: 2, 3, 4
   
   Spike does not want Jax to come
   
-  Max takes the train to vist him
+  Max takes the train to visit him
   
   Spike: Max remember when ask what I was doing yesterday/last week
   
   Max: yea and you said it was nothing. What about it
   
-  Spike(shows Max): Well I found something that might let you acctually compete in the CNS. It's blueprints for lost technolgy but it's encrypted.
+  Spike(shows Max): Well I found something that might let you actually compete in the CNS. It's blueprints for lost technology but it's encrypted.
   
   Max: Amazing where did you get this?
   
@@ -135,29 +138,29 @@ Max tells Spike that he can decrypt the rest that only a Cybervator would be abl
   
 Max tells that it is impossible but spike him not he he has this ancient tech he found or learned about
 
-Spike calls Max to show him ancient tech that he found and goes on about the right full place of citzens. 
+Spike calls Max to show him ancient tech that he found and goes on about the right full place of citizens. 
 
-Spike thinks that this is the case because Makkusu invented a type of cyber.beast that allowed Citizens to wield cyber.beast by repurposing the device originally used to control cybervators.
+Spike thinks that this is the case because Max invented a type of cyber.beast that allowed Citizens to wield cyber.beast by repurposing the device originally used to control cybervators.
 
 Spike wants Max to help decrypt the data he found but Max tells that it is not possible as only a Cybervator can read it he goe to get Jax but spike tells him that Jax is to much of a big mouth
 
 Spike/Max unknowingly press a button
 
-On the way back a Cybervator goes Berserk turning into a Cyber.Beast for the first time in years. Both Max and Spike CSD display a red alert. With Jax the Cybervator of both no where to be found. Max decides to handle the Cyber.Beast his self maybe using tech Spike found and showed Max before the story started which he was forbiden to use. But Spike tells him to do it any way since there is no one else. 
+On the way back a Cybervator goes Berserk turning into a Cyber.Beast for the first time in years. Both Max and Spike CSD display a red alert. With Jax the Cybervator of both no where to be found. Max decides to handle the Cyber.Beast his self maybe using tech Spike found and showed Max before the story started which he was forbidden to use. But Spike tells him to do it any way since there is no one else. 
 
-Max holds his own but is eventually knocked out. While unconcious Max continues the dream from the beginning of the comic with slight variations. His dream shows a Cyber.Beast attacking at the end of the tournament. Xenos fights the Cyber.Beast. Just before it kills his father he wakes up. Jax and/Tomasina is at the scene and he is fighting or has finshed fighting the Cyber.Beast
+Max holds his own but is eventually knocked out. While unconcious Max continues the dream from the beginning of the comic with slight variations. His dream shows a Cyber.Beast attacking at the end of the tournament. Xenos fights the Cyber.Beast. Just before it kills his father he wakes up. Jax and/Tomasina is at the scene and he is fighting or has finished fighting the Cyber.Beast
 
 Jax states that he was unable to teleport or communicate. 
 
 Because Max to takes arms and fight in their stead it allow Max realize that maybe anyone can be a Cybervator
 
-Alex becomes the first Green Cybervator to win MVP allowing him to become cheif
+Alex becomes the first Green Cybervator to win MVP allowing him to become chief
 
 Spike signs Max up his self with out asking. 
 
 Spike: I signed you up. 
 
-Spike: see(showing him the registration). Before max has chance to turn him down his is invited to join
+Spike: see(showing him the registration). Before Max has chance to turn him down his is invited to join
 
 Max: huh!? You did what!? 
 
@@ -169,7 +172,7 @@ Aarock/Airiona wants to to tell the world about what they found
 
 Spike states that it is not a good idea to tell others about the secrets as it will be to disruptive to the status quo and that there is a reason this information has been hiden here for centuries.
 
-Max is surprised by this as he is a reporter and one would think he would be the first to want to tell everyone. Spike tells him it is also a reporter job to use good judgement for what can potentaily be detraminal if the world knew about it.
+Max is surprised by this as he is a reporter and one would think he would be the first to want to tell everyone. Spike tells him it is also a reporter job to use good judgement for what can potentially be detrimental if the world knew about it.
 
 Max makes the team as a cybervator but is not allowed to fight they are only allow him to refuel and give advice to fellow cybervator between rounds which includes who what when where and how to substitute his team's cybervators.
 
@@ -177,9 +180,9 @@ Max makes the team as a cybervator but is not allowed to fight they are only all
 
   Airiona: Wow I thought what you made before was incredible how do you create this stuff
 
-  Makkusu: I didn't make it. Its I made from some blueprints from the net. A lot of it was unfinished so all I did was make a few modifications
+  Max: I didn't make it. Its I made from some blueprints from the net. A lot of it was unfinished so all I did was make a few modifications
 
-  Makkusu: I call it an Elimter. Normally a Cyber.Beast would be able to synergize with a cybervator thanks to thier tail. Since everbody including cybervators evovled from plants I used a plant to act as the cyber.beast1,2.
+  Max: I call it an Elimter. Normally a Cyber.Beast would be able to synergize with a cybervator thanks to thier tail. Since everbody including cybervators evovled from plants I used a plant to act as the cyber.beast1,2.
 
   Airiona :so you are basicly sending commands to a beserk cyber.beast like a green cybervator. So it basicly makes you like a Xybrid. 
   
@@ -191,7 +194,7 @@ Max makes the team as a cybervator but is not allowed to fight they are only all
 
   Max: no I did, during the fight(geting blood) / I did it using the right vibration frequency
 
-  Airiona: This must be the(tech lost to time) lost technology from thousands of years ago Xenos was telling. Haha who Cybervators realy are a cancer(find new word) to the world
+  Airiona: This must be the(tech lost to time) lost technology from thousands of years ago Xenos was telling. Haha who Cybervators really are a cancer(find new word) to the world
 
 - Max and Jax has their first match without Kyshumu who used to do most if not all of the heavy lifting for his team. This forces them to utilize thier entire team
  
@@ -205,7 +208,7 @@ Max makes the team as a cybervator but is not allowed to fight they are only all
 
   Spike begs Max not to forfiet and tells him this is the perfect opportunity to show the world that anyone can be a Cyber.Fighter. Max tells him that he wont and that they will forfiet
   
-  Just before Max is about to anounce their forfiet Aarock tuants(spikes request) Max telling him to give and to get a life as he is not a real Cybervator and suggest that Spike would make a better Cybervator than him. Max  accepts his challange
+  Just before Max is about to announce their forfeit Aarock taunts(spikes request) Max telling him to give and to get a life as he is not a real Cybervator and suggest that Spike would make a better Cybervator than him. Max  accepts his challenge
 
   Jax relunactly allows him to do it. Jax tells him to let him handle everything. 
   
@@ -215,7 +218,7 @@ Max makes the team as a cybervator but is not allowed to fight they are only all
 Episodes: 5, 6
 Jax tells Max to promise him that he will never try to fight again. Max refuses so Jax tells Leona to release Max.
 
-Jax tries stops Max from becoming a Cybervator by realeasing him
+Jax tries stops Max from becoming a Cybervator by releasing him
 
 The commentaors say they did the right thing 
 
@@ -235,7 +238,7 @@ Airiona gives Max a new Cyber.Beast supplied by Spike. Max recognizes it as the 
 
 Max joins Airiona's team.
 
-Airiona is/was a free agent for the first few games of the season as no team would sign her for base salary because her asking price was to high. She is also well known to not contribute a fair(50%) share if any mined bitgems to her teams satellite. Being a as the green Cybervator of the team she was the coordinator of the team this allowed her to be "ball hog" so that she can get all of the gems at the sometimes at the cost of her team losing
+Airiona is/was a free agent for the first few games of the season as no team would sign her for base salary because her asking price was to high. She is also well known to not contribute a fair(50%) share if any mined bitgems to her teams satellite.
 
 Tomasina comes out of retirement
 
@@ -252,21 +255,39 @@ They name the network eclipse as they will eclipse the staus quo just like the t
 
 Max is now the teams Gunner a strategy that is not normaly implemented  as it is risky since they use the time to recharge between rounds.
 
-Max just like other Cybervators the Cyber.Beast adapt to his color type after allowing it to bite him. The DNA provides the incoding turning his CSD into a wind breaker sword
+Max just like other Cybervators the Cyber.Beast adapt to his color type after allowing it to bite him. The DNA provides the encoding turning his CSD into a wind breaker sword
 
 ### 6. Tests, Allies, Enemies
 Episodes: 10, 11, 12, 13, 14, 15, 16, 17
 
 - Aarock asks to be released from his former team 
 
-- Max asks Aarock why he decided to join Eclipse/Cytek
-  Aarock: I want to show that I am the Best and what I figured what better way to do that than to join the worst team in the league and win.
+Max asks Airiona for an opportunity
+
+Airiona: just because I signed you on to this team does not mean you are entitled to fight.
+
+Airiona: I'm just asking for an opportunity nothing more.
+
+Airiona takes off most her clothing goes into burst drive and attacks Max
+
+Max is surprised but uses a Cyber.Beast as defense
 
 Max fights Airiona outside of cyberspace Kyshumu tells Max if he can beat her he can join/fight in the next match
 
-Max tells Kyshumu that he aready beat a Cybervator Aarock cuts Max off telling him that they let him win and how Spike set everything up. Max replies yelling. He what!?
+Kyshumu: Just because I put you on the team that doesnt meant I'm going to let go out there and get you self killed. You need to prove to me that you can hold your own.
 
-Airiona subtlety tells Aarock that he is giving Max to much information
+Max:I did all ready. I mean does Aarock not count
+
+Aarock walks into the room cuts Max off telling him that they let him win and how Spike set everything up. 
+
+Aarock: Ha ha ha. You really thought you beat me. I mean spike told you would but--
+
+Max(yells): He what!?
+
+Airiona subtlety nudges Aarock as a way to tell him that he is giving Max to much information
+
+- Max asks Aarock why he decided to join Eclipse
+  Aarock: I want to show that I am the Best and what I figured what better way to do that than to join the worst team in the league and win.
 
 - While testing/training Max minia/Airiona holds  back and/or aids while against Max
   
@@ -285,7 +306,7 @@ Airiona subtlety tells Aarock that he is giving Max to much information
 
 - Max starts his first match
 
-  Other teams have now mimicked Max's team adding citizens of their own to the team.  This is much to the surprise of Max and his team. This forces Max to move back into his support role or risk losing his match. Commentators talk about how Max has changed the way the Sport is fought
+  Other teams have now mimicked Max's team adding citizens of their own to the team.  This is much to the surprise of Max and his team. This forces Max to move back into his support role or risk losing his match. Commentators talk about how Max is revolutionizing league and will redefine the way the Sport is fought and the position is vied for years to come. When people they are told they can't be they will point to Max and say yes I can.
 
 After Max wins his first match more citizens have become inspired that they too can have equal power to that of cybervators. Many citizen no longer consider Cyber.Beast mining as just a game and has begun to take is seriously.
 
@@ -309,7 +330,7 @@ Afterwards Spike can no loger restrain his self and releases the information to 
 
 The cyvolters have revealed their selves and has been causing trouble with the new tech that Max created
 
-A crime is being commited a Cybervator telports to arrest the crimmal to her surprise they arer using the weapons Max has be using
+A crime is being committed a Cybervator teleports to arrest the criminal to her surprise they are using the weapons Max has be using
 
 She is ganged up on by these Cyvolters Speeding Bullet, Thunora, and Akia using tech Max created some are even Cybervators which include Airiona, Aarock, and Carla
 
@@ -363,22 +384,22 @@ Spike tells Max that there is no way they well be able to win and fufill their g
 
 Max final stops ignoring spike and learns about some of the real past
 
-To Max's surprise, Spike has cut off his arm telling max you like I'm just like you now. The robotic arm(s) he replaced it with is connected to his brain and acts like a tail allow him to fuse with Cyber.Beast as well as to control the cybervators
+To Max's surprise, Spike has cut off his arm telling Max you like I'm just like you now. The robotic arm(s) he replaced it with is connected to his brain and acts like a tail allow him to fuse with Cyber.Beast as well as to control the cybervators
 
-- People are angery about what is precived to be cheating to prevent Max's team from winning Spike is one of them his precieved mistreatment of Max and his team is what drives him to do increasingly worst misdead through the story.
+- People are angry about what is perceived to be cheating to prevent Max's team from winning Spike is one of them his perceived mistreatment of Max and his team is what drives him to do increasingly worst misdeeds throughout the story.
 
-- Spike tries to help Max out by cheating when Max sees this he responds by estentenaly coinciding as he stops mid attack so that he does not hit a frozen harmony. this enrages spike at this point he decides take matters into his own hands. This is because he thinks Max is working with the nra and recently learned they cheat to maintain the world order
+- Spike tries to help Max out by cheating when Max sees this he responds by essentially coinciding as he stops mid attack so that he does not hit a frozen harmony. this enrages spike at this point he decides take matters into his own hands. This is because he thinks Max is working with the nra and recently learned they cheat to maintain the world order
 
 - Towards the end of Spike's arc he also joins Jax/Max's team which ultimatlly leads to his despair as his arorgance causes his team to lose or nearlly lose in which case he intervines by taking over a Cybertor on the opposing team. Max notices what has happened and in away forfiets the match maybe by interfaring or by not fighting back.
 	- If Max does not fight Back then it will be harnmony that goes berserk turning on her own team and/or satellite but Max is able to stop by simply standing in front of her and starts sing maybe a silly song that harmony all ways sings. And later explains why he did it and the way music works.
 
-It turns out the Cyber.Beast that Max had been using allowed Spike to place a virus in everyones CSD enabling him to disable their delimiter and control them.
+It turns out the Cyber.Beast that Max had been using allowed Spike to place a virus in everyone's CSD enabling him to disable their delimiter and control them.
 
 
 ### 8. Ordeal, Death, Rebirth
 Episodes: 23, 24, 25, 26, 27, 28, 29, 30
 
-Jax again tries to stop Max by fighting him in Cyberspace to destory his Cyber.Beast Max tells him that if he loses he will just get another one Jax says And I will take as many times as I needs to.
+Jax again tries to stop Max by fighting him in Cyberspace to destroy his Cyber.Beast Max tells him that if he loses he will just get another one Jax says And I will take as many times as I needs to.
 
 Max has been unknowingly aiding the Cyvolters as he the Cyber.Beast he was using was connected to Spike so all of the satellites and/or Hub he won during the tournement belongs to Spike and the Cyvolters now.
 
@@ -393,17 +414,17 @@ Max has been unknowingly aiding the Cyvolters as he the Cyber.Beast he was using
 
 Spike tells Max that he has been using his cyber.beast wrong the whole time but thanks him for the neruolace enabling him to perfect the CSDs. He is no longer forced to command each cybervator one by one but instead use commander's intent to control every single one of them. Unlike Max Spike is able to control human/full scale Humanoid Cyber.Beast, one of which is Mack
 
-Spike tries to tell everyone cyber.beast are former cybervators but is enterupted by Kyshumu.
+Spike tries to tell everyone cyber.beast are former cybervators but is interrupted by Kyshumu.
 
-Kyshumu and Tomasina teams up like old times to fight Spike but lose easly Spike comments while fighting them
+Kyshumu and Tomasina teams up like old times to fight Spike but lose easily Spike comments while fighting them
 
 Kyshumu(looks at Tomasina grinning): Just like old times
 
-Tomasina: old times doesnt mean good times
+Tomasina: old times doesn't mean good times
 
-After defeating both Tomasina and Kyshumu he turns them into cyber.beast he tells everyone as I was saying cyber.beast are former cybervators. He precedes to desengage everyone's delimiter turning them into cyber.beast
+After defeating both Tomasina and Kyshumu he turns them into cyber.beast he tells everyone as I was saying cyber.beast are former cybervators. He precedes to disengage everyone's delimiter turning them into cyber.beast
 
-Spike learns and maybe informs everyone else that cyber.beast was once cybervators tools meant for citizens that Citizens were meant to be more than mere spectators this is what spike intially wanted to hide.
+Spike learns and maybe informs everyone else that cyber.beast was once cybervators tools meant for citizens that Citizens were meant to be more than mere spectators this is what spike initially wanted to hide.
 
 Max and Jax team back up to fight Spike by fusing together
 
@@ -417,9 +438,9 @@ Spike tries to use Bursun's Cyber.Beast after failing many times before
 
   Max responds with what does that story have to do with. 
 
-  After realizing his fault in the situation While fighting spike max tells him that it is him he should is angry at that his hate should be pointed at him rather than the world.
+  After realizing his fault in the situation While fighting spike Max tells him that it is him he should is angry at that his hate should be pointed at him rather than the world.
 
-  Spike tells max that he's right and precedes to turn max into a cyber.beast.
+  Spike tells Max that he's right and precedes to turn Max into a cyber.beast.
 
   Spike: you can tell him Airiona
 
@@ -458,6 +479,8 @@ Spike tries to use Bursun's Cyber.Beast after failing many times before
   Max goes berserk upon being told he killed his parents
 
 Spike who thinks he is still being brodcasted live tells everyone behold your so called hero
+
+Max: <aggh -- this-- agh pain, this is what cybervators experience every time they synergies. No this is probably considered normal for them they've gone through since they were a child and this voice in my head > <kill kill kill>
 
 Jax and Tomasina goes on to fight Max who is being controlled by Spike
 
@@ -541,7 +564,7 @@ Episodes: 51, 52
 
 Max visits spike After the tournament who is in the hospital and asks the doctor about his arms who tells him you know as good as well as I do that they are not coming back. Spike tells him that it is ok as it is reminder of what he did a besides just like he said before I also looked up to you any way
 
-After visiting Spike Airiona asks what will be done with him she's told that he will be treated with his injury then placed in rehab and once he is released he be placed under an intensive surveillance system in which a cybervator will be watching at all times not just sometimes for a few years. As max explains this process spike is shown going through this process
+After visiting Spike Airiona asks what will be done with him she's told that he will be treated with his injury then placed in rehab and once he is released he be placed under an intensive surveillance system in which a cybervator will be watching at all times not just sometimes for a few years. As Max explains this process spike is shown going through this process
 
 Max frees Mack it is learned that she and the Cyber.Beast is from a different universe.
 
