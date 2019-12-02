@@ -3,7 +3,7 @@
 **The role sports play in society:**
 Sports building character teaching people to not look at their self as victims when confronted with someone ahead they will look at it as an opportunity for improvement a new target to set as a goal that can be surpassed instead of oppressing/stepping on other or cheating to get ahead as this removes the meaning of life. Citizen who have not had the chance to be cybervator inherit this problem.
 ### Sub-themes
-Competition vs cooperation, don't bite off more than you can chew, leadership
+Competition vs cooperation, don't bite off more than you can chew, leadership, greed(wealth,power,fame)
 
 ## Plot
 This is a united world in which there is no longer any wars. Peace is maintain by through the CNS league -- a sport in which Cybervators fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.

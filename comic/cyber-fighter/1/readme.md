@@ -35,13 +35,13 @@ Max is shown dreaming about the day he decided to become a Cybervator to defeat 
 
   Max: May be I should retire too
   
-- After the interview Jax confonts Max
+- After the interview Jax confronts Max
   
   Jax: Yea right. You won't quit.
   
   Max: Why not it's just a game
   
-  Jax: The CNS is not just some game you can quit when things arent going your way
+  Jax: The CNS is not just some game you can quit when things aren't going your way
 
 - Cut away to the backstory of the CNS and its purpose(much of this info will be reveal t be false later own)
 
@@ -51,9 +51,9 @@ Max is shown dreaming about the day he decided to become a Cybervator to defeat 
   
   Max: Hey, whatcha watching?
   
-  Spike(quickly turns off what he was watching): nothing! would it hurt to warn me before teleport outof no were like that
+  Spike(quickly turns off what he was watching): nothing! would it hurt to warn me before teleport out of no were like that
   
-  Max: but I thought you liked when I did that. wait don't tell me you're too old/cool for this stuff now
+  Max: but I thought you said it was cool/awesome when I did that. Wait don't tell me you're too old/cool for this stuff now
   
   Spike: well I am 12 now
   
@@ -66,11 +66,7 @@ Max is shown dreaming about the day he decided to become a Cybervator to defeat 
   Jax(eating): Max said he is going to quit too	
 
   Max: that's not what I said     
-  
-  Jax(eating): Max said he is going to quit
-  
-  Max: that's not what I said. Besides it was heat of the momment
-  
+      
   Spike: Hey is that my food
   
   Jax: I couldn't help my self it was just sitting there
@@ -81,7 +77,7 @@ Max is shown dreaming about the day he decided to become a Cybervator to defeat 
   
   Spike: that's not the point
   
-  Max(starts laughing): That's Jax for you
+  Max(smirks): That's Jax for you
   
 - Spike continues viewing the data he found and finds something seemingly shocking
   
