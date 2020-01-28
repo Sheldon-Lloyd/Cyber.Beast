@@ -4,7 +4,7 @@ Max is shown dreaming about the day he decided to become a Cybervator to defeat 
 
 - Max wakes from his dream sleeping in the middle of the finals of the championship match.
 
-  Max. Max. Hey Max, what's the stragey... are you sleeping
+  Max. Max. Hey Max, what's the plan-- wait are you sleeping?
   Max looks up rubs his eyes and quickly assess the situation and creates a strategy
 
   Kyshumu's team(Kyshumu, Leona, Airiona, Jax, Max) wins the championship against Alex(Green), Knilla(Blue), Ace(Red), Carla(Green) with Alex winning the The BluNet MVP award the first Green Cybervator to do so
@@ -13,11 +13,11 @@ Max is shown dreaming about the day he decided to become a Cybervator to defeat 
  
   Jax: but this is the finals
  
-  Max: yea the same one we fought an won last year and the year before and basicly every year since before I even became a cyber fighter
- 
-  Jax: but hasn't this always been your dream
+  Max: yea the same one we fought an won last year and the year before and basically every year since
+
+  Max looks down in sadness
   
-  Max: exactly my dream was to beat Xenos and does that look like Xenos to you. Besides I wanted to do it not to help Kyshumu beat him.
+  Max: Listen my dream was to beat Xenos and does that look like Xenos to you. Besides I wanted to do it not to help Kyshumu beat him.
  
   Jax: you think I don't want to be out there too you don't see me complaining. Man up and do your job.
  

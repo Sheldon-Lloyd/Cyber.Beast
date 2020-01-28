@@ -21,13 +21,23 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
   - Cornerman/crew: Akia?, Max
   - Cybervator: Jax, Airiona, Ace, Harmony
   - Chief: Kyshumu, Alex  
-
+- Upon leaving Jax's team and joining Max's team Minia is accused by Airiona of sabotaging the team. Max realizes that this is not the case and changes strategy accordingly. He becomes the first to assign offensive and defensive cyber.fighters. Airiona on defense and Minia on offense. This strategy is an adaptation of cybervators copycatting Max strategy to decouple the teams primary Cyber.Beast and instead defend it. This disadvantaged passive fighters like Minia and most other Blue Types. They are better at dogging doing so while defending leaves the Cyber.Beast wide open to attack. The decoupled Cyber.Beast can then act as support and operated by the Cyber.Coordinator
 - Max learns about limiters and realizes that neck/head band
-- Spike/Max discovers that the database of hidden history he found included data from the CSDs of Cybervators Yaharia and Bursun. This info hidden was passesd through generation waiting to be used when Citizens was ready for it. Maybe the original invintor of the CSD or spikes ancestor media owner who first created the CNS to make spetical of Cybervator killing Cyber.Beast to cover up the war. This was approiated by Yaharia to create the CNS of today. Once she died Spike became the sol owner
+- Spike/Max discovers that the database of hidden history he found included data from the CSDs of Cybervators Yaharia and Bursun. This info hidden was passed through generations waiting to be used when Citizens was ready for it. Maybe the original inventor of the CSD or spikes ancestor media owner who first created the CNS to make spetical of Cybervator killing Cyber.Beast to cover up the war. This was appropriated by Yaharia to create the CNS of today. Once she died Spike became the sol owner
 - Painting Max(eclipse) as the bad guy is what makes the citizens accept the cybervators governing them as long as they provide protection from the cyvolters
 - People think that wars are won after one side as imposed their will upon the other. Leaving only those that stand with them or indifferent. They think they are bullied into submission afraid of the power they pose. feeling that if they stepped out of line break law of the new enforcers they would incur their wrath. but unbeknownst to them, they are not the losers for they have taken the back seat to prime future generations to revolt against their current oppressors when they least expect long after those of the original conflict is gone.
 - Other Cybervators try to use Cyber.Beast on their limbs like Max even going as far as to cut off their limbs to attempt it maybe Spike is the one that attempts this experiment
 - Xenos: If your not striving for progress it wont be guaranteed you will not regress
+
+    Aarock:I was like you once. I was considered one of the best Cyberators. 
+
+    Arrock(punches Akia/Leona and yells):As a Rookie!
+
+   Aarock: I kept my head up looking forward never looking at those behind never giving a second thought to those below me.
+
+   Leona: let me guess you got your butt kicked by one of those people behind you.
+
+   No I never did. Xenos, my Mentor at the time warned me if I rest/sit on my pedestal for to long that it might start to sink. As we all no he was killed by a rouge cyber.beast stronger than I could imagine. I was powerless to help him. I only got in the way. Only If I was stronger I thought If had just listened to his words. That day I learned that you can never have enough power.
 - Cybervators start going Berserk for the first time in since Max's parents was killed by Cyber.Beast which Tomasina talks about cutting it short
 	- Tomasina: This the first Berserk Cyber.Beast since Mack... (she looks at Max)I mean your parents was killed by one
 - Airiona believes that	a cybervator should serve Citizens not the other way around the way how the world currently works
@@ -355,6 +365,8 @@ Before or after learns/realize Spike and Speeding bulet is the same person Max i
 ### 7. Approach To The Inmost Cave
 Episodes: 19, 20, 21, 22
 
+- Max starts to question if Jax and/or others are right that he shouldn't be a cybervator and is holding his team back. He no longer wants to by a cyber.fighter for "his self"
+
 - Spike asks Max what he will do when he becomes chief 
 	- the first change that Max proposes is to get rid if the idea of cheif entirely but eventualy compromises to have a 5 chief system. The entire team that wins a championships becomes cheif geting rid of the idea that only the MVP becomes cheif which means everyone including Support Cybervators can become cheif
 	
@@ -496,7 +508,7 @@ Upon coming out of his Berserk state Mack teaches Max truth about some the histo
 
 Mack reveals that Max did not kill him he traded places with him so the he could be free from the Cyber.Beast. Yaharia took half of the Cyber.Beast by turning off her limiter so that she could absorb it.
 
-However Spike did not lie Yaharia CSD stoped recording after she sacrificed her self to tame the Cyber.Beast so she does know role therefore spike wouldn't know either
+However Spike did not lie Yaharia CSD stopped recording after she sacrificed her self to tame the Cyber.Beast so she does know role therefore spike wouldn't know either
 
 Just when it seems all hope is lost, Max appears and has fully tamed his Cyber.Beast. The first person he saves is Spike who is surprised by this.
 
@@ -508,11 +520,11 @@ Spike asks Max why he saved him after all he did. Max again states he realized h
 - Not listen to spikes advice
 - focusing on his self in stead of using his new status to elevate others
 
-Max asks Spike to stop the Cyber.Beast who says he doesnt know how or Airiona speaks for him
+Max asks Spike to stop the Cyber.Beast who says he doesn't know how or Airiona speaks for him
 
-Max is no longer fighting for fame and instead after watch the suffering that Spike and Airiona went through wants to win in order to change the world one in which Cybervators and Citizens have equal opportunity. This will reverse the artifical oppresion created by pass generations
+Max is no longer fighting for fame and instead after watch the suffering that Spike and Airiona went through wants to win in order to change the world one in which Cybervators and Citizens have equal opportunity. This will reverse the artificial oppression created by pass generations
 
-Max makes it to the final round of the championship equiped with his new tech. Max is aproached by Spike to use his tech that he created Max kindly aggrees to distribute it. He promises to start a new company called Cytek upon winng the championships
+Max makes it to the final round of the championship equipped with his new tech. Max is approached by Spike to use his tech that he created Max kindly agrees to distribute it. He promises to start a new company called Cytek upon wining the championships
 
 ## Act 3
 ### 10. The Road Back
@@ -520,15 +532,17 @@ Episodes: 35, 36, 37, 39, 39, 40, 41, 42
 
 - Citizens speculate if spike will get the same treatment as other Cyber.Fighter that are usually Cybervator.
 
-  Cybervator are normally punished beyond being striped of their Cyber.Beast and forced to be nothng more than a citizen as they are blacklisted by other teams.
+  Cybervator are normally punished beyond being striped of their Cyber.Beast and forced to be nothing more than a citizen as they are blacklisted by other teams.
 
-  Citizens on the other hand is placed under house arrest with strict surveillance. After of which they are given nothing but a UBI as they become unemployble
+  Citizens on the other hand is placed under house arrest with strict surveillance. After of which they are given nothing but a UBI as they become unemployable
 
-- Despite gaining new power Max refuses to use it and wears his restaint. He wants to win the championships with his original promise in my and ahow everyone that you don't need to be a berserker/Xybrid to succeed as a Cybervator.
+- Despite gaining new power Max refuses to use it and wears his restraint. He wants to win the championships with his original promise in my and show everyone that you don't need to be a berserker/Xybrid to succeed as a Cybervator.
 
 Max fights Jax in the championships
 
-Max wipes his face with tha back of his hand and tells Jax "You're holding back arent you"
+- Jax: Come on were is the power you had before
+
+Max wipes his face with the back of his hand and tells Jax "You're holding back aren't you"
 
 Alex/Ace gives Max's team a hub/satellite from BluNet as a favor to Max defeating Spike
 
@@ -558,23 +572,26 @@ At this point Max smiles maybe looking at his father
   Spike: no he's different.  He wants redefine what it means to be a Cybervator to show everyone that there are no limits.
   
   Image of Max standing with every one on mountain smiling facing his foe while Bursun stands ahead of everyone frowning alone on a mountain facing his foe
-  
+
+Max passes out at the end of his match
+
 ### 12. Return With The Elixir
 Episodes: 51, 52
+
+Matches awakens to find out that he won/loss the match
+
+Max: Did I win
 
 Max visits spike After the tournament who is in the hospital and asks the doctor about his arms who tells him you know as good as well as I do that they are not coming back. Spike tells him that it is ok as it is reminder of what he did a besides just like he said before I also looked up to you any way
 
 After visiting Spike Airiona asks what will be done with him she's told that he will be treated with his injury then placed in rehab and once he is released he be placed under an intensive surveillance system in which a cybervator will be watching at all times not just sometimes for a few years. As Max explains this process spike is shown going through this process
 
-Max frees Mack it is learned that she and the Cyber.Beast is from a different universe.
+Max frees Mack it is learned that he and the Cyber.Beast is from a different universe.
 
-The world has returned to normal but citizens can now compete in the CNS on equal footing with Cybervators
+The world has returned to normal but citizens can now compete in the CNS on equal footing with Cybervators using prosetics.
 
 After learning of everything the new world allows citizens to compete past and present cybervators are freed this starts with bursun and the last being torey who is sent back to Helios.Suniverse in her proper time period or a future she does not recognize
 
-With Cybervators freed every must use Max's version of Cyber.Beast which uses plants instead of cybervators as a medium
-
-Knowing that this will cause the Cyber.Beast to run free again they create Becons to capture them
 
 - Most Cybervators do not change the rules of the sport much if at all as the current rules is what allowed them to win the fist place. Some rule changes submited are modified or even rejected by the CNS if it doesn't align with it's mission to prevent conflict. 
 
