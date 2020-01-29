@@ -13,6 +13,16 @@ Max participates in the CNS as well but as a strategist/crewman. His responsibil
 
 Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is impossible to be a Cybervator. However that all changes when he stumbles across an ancient technology hidden away along with all of its secrets.
 
+Max shows everyone that there is a third option and slowy changes status quo and the rules change accordingly. 
+
+He is the first cybervator to fight with a team that slowly grows starting with he and Airiona/Aarock. Hes fanbase grows rapidly as upon Airiona's suggestion he gives 70% of his bitgems to has fans far more than other cybervators but much like Airiona
+
+The longest match in CNS history insues after a match between BluNet and ReNet in which they cycle through all of their Cybervator until it is eventually called of Draw. Little or none of this is shown as Max watches the news about it along with Spike. The rules changes to limit teams to five fighters as others try to counter Max by using dozens(spike thinks they are doing it to stop them). When Max joins the fight as the teams support fighter seperating the The Cyberfighter and the cyber.beast when they are on the defense whenevr they have a lead. This made it harder for other teams to accumulate points as they have to get through the Cyber.fight standing on the satellite as well as Max controling the detached cyber.beast. Other teams did the same using the code Max opensourced to enable it ensuring such a stategy can not become illegal since anyone can do it. however most teams only employ cybervator few allow humans to join the team as Max was hoping would happen. Max then starts using more than one color type on his team as Minia joins them. other teams relize the advantage this gives. The rules again change allowing fans to vote for one green and one red cybervators requiring 2 red types and two blue types on each team redstributing teams to ensure each team can have at least 2 of each(spike thinks they are agian supress them). To acomedated Minia Max splits his team into an offensive and defensive unit giving them yet another advantage thanks to them being able to specialize. Other teams do the same. Airiona finally lets Max fight on offense but not defense allowing him to alternate/rotate with Minia. After Aarock Bites the tail of a cybervator they agian create an ejection rule.
+
+After all is said and done for each match one red and blue cybervator serve as backups and if they are put into play the starter can not come back in. All team are required to have at least one green.type/citizen to serve as the center who fight on offense and defense. Only green cybervators are allow to switch and only with blue cybervators. THis give them the option if they choose to fight.
+
+
+
 ## Brainstorm
 - Episodes: 22-52
 - Roles
