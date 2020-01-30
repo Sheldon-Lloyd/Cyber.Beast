@@ -102,6 +102,11 @@ Since Spike is not old enough to join he eventually joins as speeding bullet
 - Spike flips after he is discovered and punished for cheating and thinks that Max my lose.
 - At first they fight solo in space as only one cybervator is granted the oportuinty to defend and fight with a satellite cyber.beast. In cyberspace they fight and aganist eachother and other cyber.beast inorder to rasie their ranking in hopes of taking the place of that satellites current cyber.fighter/champion.
 
+
+- Cybervators fight solo in the lead up to the championships. On the other hand Eclipse instead aids each other on the road to the CNS championships. Cybervators avoid this stratagey not because they think it is unsporting but rather because of greed as they would have to share the wealth power or even fame. Eclipse exploits this enabling them to mine more and stronger Cyber.Beast than others. This allows weaker Cybervators to take the back set slowing gaining experence and lowers the risk of losing a cyber.beast having to start over. Although this could also mean an unexperinced cyber.fighter could end up in the championship. This why Airiona and Aarock trains Max
+
+- Although Cybervators team up in the championships they dont exhibit team work as they are all working to be selected to the championships and will only comepete out of greed
+
 - All of the cybervators that join Max's team displays greed in one way or another
 
 	Airiona greed manifest in her stealing cyber.beast from other other cybervator before they have a chance to extract its core. She does this even though she is not the one that fights it.
