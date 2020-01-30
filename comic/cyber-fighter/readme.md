@@ -27,7 +27,8 @@ To acomedated Minia Max splits his team into an offensive and defensive unit giv
 
 After all is said and done fans can vote for one blue.type. red.type and green.type. For each match one red and blue cybervator serve as backups and if they are put into play the starter can not come back in. Green types can not apoint a backup. Only green.types/humans are allowed to switch and only with breachers/strikers. This give green.types the option fight if they so choose. This give teams that has a green.type/citizen serving as the center who fight on offense and defense an advantage.
 
-
+## Notes/Reminders
+- forshadow Max power followed by a flash back for reader that might not have noticed
 
 ## Brainstorm
 - Episodes: 22-52
