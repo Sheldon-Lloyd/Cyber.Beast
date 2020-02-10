@@ -7,7 +7,7 @@ Max is shown dreaming about the day he decided to become a Cybervator to defeat 
   Max. Max. Hey Max, what's the plan-- wait are you sleeping?
   Max looks up rubs his eyes and quickly assess the situation and creates a strategy
 
-  Kyshumu's team(Kyshumu, Leona, Airiona, Jax, Max) wins the championship against Alex(Green), Knilla(Blue), Ace(Red), Carla(Green) with Alex winning the The BluNet MVP award the first Green Cybervator to do so
+  Kyshumu's team wins the championship against Alex(Green), Knilla(Blue), Ace(Red), Carla(Green) with Alex winning the The BluNet MVP award the first Green Cybervator to do so
  
   Did you see score there's no way they are coming back
  
@@ -45,40 +45,40 @@ Max is shown dreaming about the day he decided to become a Cybervator to defeat 
 
 - Cut away to the backstory of the CNS and its purpose(much of this info will be reveal t be false later own)
 
-  Spike is shown watching it
+  Airiona is shown watching it
   
-  Airiona, Max and Jax teleports behind spike
+  Max and Jax teleports behind Airiona
   
   Max: Hey, whatcha watching?
   
-  Spike(quickly turns off what he was watching): nothing! would it hurt to warn me before teleport out of no were like that
+  Airiona(quickly turns off what he was watching): nothing! would it hurt to warn me before teleport out of no were like that
   
   Max: but I thought you said it was cool/awesome when I did that. Wait don't tell me you're too old/cool for this stuff now
   
-  Spike: well I am 12 now
+  Airiona: well I am 12 now
   
   Max: Haha ok well did you watch the CNS finals
   
-  Spike: naw I already knew you'd win. right?
+  Airiona: naw I already knew you'd win.
      
-  Max: of course. But if you had watched you would also know Kyshumu retired
+  Max: But if you had watched you would also know Kyshumu retired
 
   Jax(eating): Max said he is going to quit too	
 
   Max: that's not what I said     
       
-  Spike: Hey is that my food
+  Airiona: Hey is that my food
   
   Jax: I couldn't help my self it was just sitting there
   
-  Spike: But I was eating that
+  Airiona: But I was eating that
   
   Jax: I'll pay you back
   
-  Spike: that's not the point
+  Airiona: that's not the point
   
   Max(smirks): That's Jax for you
   
-- Spike continues viewing the data he found and finds something seemingly shocking
+- Airiona continues viewing the data he found and finds something seemingly shocking
   
-  Spike(Stands up): Huh!? No way!
+  Airiona(Stands up): Huh!? No way!
