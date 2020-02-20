@@ -127,21 +127,32 @@ Max makes the team as a cybervator but is not allowed to fight they are only all
 
   With Max's team initially struggling commentators critize their misgivings on the fact that Kyshumu did all of the work
   
-  Because of what commentators call neptonism Max is on Leona's team as a center. this however means they don't have a backup mainly because they rarely get injured.
+  Because of what commentators call nepotism Max is on Leona's team as a center. this however means they don't have a backup mainly because they rarely get injured.
   
   Another commentator says he still has to beat all of the green cybervators within his division
 
-  Airiona begs Max not to forfiet and tells him this is the perfect opportunity to show the world that anyone can be a Cyber.Fighter. Max tells him that he wont and that they will forfiet
+  Airiona begs Max not to forfeit and tells him this is the perfect opportunity to show the world that anyone can be a Cyber.Fighter. Max tells him that he wont and that they will forfeit
   
   Just before Max is about to announce their forfeit Aarock taunts(Airionas request) Max telling him to give up and to get a life as he is not a real Cybervator and suggest that Airiona would make a better Cybervator than him. Max  accepts his challenge
 
-  Jax relunactly allows him to do it. Jax tells him to let him handle everything. 
+  Jax reluctantly allows him to do it. Jax tells him to let him handle everything. 
   
   Max takes advantage of his position for his own desires and switches with Jax seeing this as his opportunity to fight and almost gets his self killed by Aarock but still manages to everyone's surprised he is able to wield a Cyber.Beast
 
 ### 3. Refusal Of The Call
 Episodes: 5, 6
-Jax tells Max to promise him that he will never try to fight again. Max refuses so Jax tells Leona to release Max.
+
+- Jax tells Max to promise him that he will never try to fight again. Max refuses so Jax tells Leona to release Max.
+
+    Jax: don't. ever. do that again!
+
+    Max: why. you afraid I might show you up
+
+    Jax: No it's because you could've died stupid. 
+
+    Max: It's just as dangerous for you
+
+    Jax(cuts off his finger slash hand): I can regenerate you can't
 
 Jax tries stops Max from becoming a Cybervator by releasing him
 
@@ -384,11 +395,11 @@ Airiona tries to use Yahaira's Cyber.Beast after failing many times before
 
   Aarock: This is the world Airiona and I are fighting to fix. We need your help to do. You're the only one who can. Once this is all over will free every not just the Cybervators. I promise.
    
-  Airiona (jumps down wispers): I'll take it from here Aarock You see it wasn't just any cyber.beast that killed your parents it was you. That's right. Max you killed your father
+  Airiona (jumps down whispers): I'll take it from here Aarock You see it wasn't just any cyber.beast that killed your parents it was you. That's right. Max you killed your father
 
   Max: Noooooo! Noooooooo!
 
-  Airiona: Whats wrong Max? Ha ha ha, You're not the paragon you thought you were are you
+  Airiona: Whats wrong Max? Ha ha ha, You're not the Idol you thought you were are you
   
   Airiona goes to remove the restraint of the distraught Max 
   

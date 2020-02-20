@@ -4,6 +4,10 @@ Sports building character teaching people to not look at their self as victims w
 ### Sub-themes
 Competition vs cooperation, don't bite off more than you can chew, leadership, greed(wealth,power,fame)
 
+Emotion vs logic(cyber.beast are emotionless and humans have emotion both are able to control each because of the lack or excess of both){Max's cyber.beast however has emotion and Max has less emotion than normal}
+
+Spiritual heart vs logical mind(cyber.beast vs cybervators)
+
 ## Plot
 This is a united world in which there is no longer any wars. Peace is maintain by through the CNS league -- a sport in which Cybervators fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
 
@@ -118,3 +122,4 @@ Since Airiona is not old enough to join she eventually joins as speeding bullet
     She said I need to be comfortable with being uncomfortable. 
     I'm gonna make myself so uncomfortable that I'm no longer comfortable being uncomfortable
     I don't think that is what she meant
+- Jax watches Max in his first fight and thinks he is going to get his self killed and turns away in anger just as he turns away Airiona points out to Jax to look as Max deploys his shield
