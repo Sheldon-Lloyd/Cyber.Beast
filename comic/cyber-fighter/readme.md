@@ -123,3 +123,54 @@ Since Airiona is not old enough to join she eventually joins as speeding bullet
     I'm gonna make myself so uncomfortable that I'm no longer comfortable being uncomfortable
     I don't think that is what she meant
 - Jax watches Max in his first fight and thinks he is going to get his self killed and turns away in anger just as he turns away Airiona points out to Jax to look as Max deploys his shield
+- While fighting Airiona
+
+  Max(Cries): I'm sorry Airiona This is my fault
+
+  Airiona: Emotions don't work on me Max. That's why I've always looked up to you. You were different from everyone. Thats why I liked you. But then you became a cybervator you changed. Every time you fought I saw a part of you I've never seen before.
+
+  Max(Max smiles wiping Airiona's tears): you've spent so much time ignoring fearing, emotions. You've failed to realize what they have made you become. Look around you and tell Airiona does any of this make any logical sense.
+
+- Minia is shown with her former team talking to her Cyber.Beast after teams around the league has begun to use team work
+
+- Max cooks up a strategy
+
+  Max: Minia I need your help/Cyber.Beast. I need you to be my shield
+
+  Minia: Torrey Max needs your help
+
+  Torrey: I refuse. I refuse to let anyone but Minia use me. Let alone letting some one ride me
+
+  Max proceeds to fight but is losing
+
+  Minia: Please Torrey
+
+  Torrey: No, I told already I refuse to let anyone but--
+
+  Torrey looks as Max begins taking off his robe
+
+  Torrey: Max use/ride me
+
+  Minia: what did you just say
+
+  Torrey: That I would only let Ma-- 
+
+  Aarock: turns and looks
+
+  Torrey: A Maximumly charged Minia use me
+
+  Minia: that's not what you said
+
+  Torrey: alright I'll do it just-- Just leave alone ok.
+
+- Max while riding asks to use her lance
+
+  Torrey: First you asks to ride me now  you want to take/touch my lance as well
+
+  Max: please Torrey I... Max looks down at Torrey surprised
+
+  hands Max her lance and blushes
+
+  Max(smiles): thanks
+
+- Airiona Just as Airiona begins to become less envious of Minia after learning of up bringing and motivations she learns Mina is using the cyber.beast that killed her father. This turns her diminishing hate into hate.
