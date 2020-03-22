@@ -21,8 +21,6 @@ Max shows everyone that there is a third option and slowy changes status quo and
 
 He is the first cybervator to fight with a team that slowly grows starting with he and Aarock/Aarock. Hes fanbase grows rapidly as upon Aarock's suggestion he gives 70% of his bitgems to has fans far more than other cybervators but much like Aarock
 
-The longest match in CNS history insues after a match between BluNet and ReNet in which they cycle through all of their Cybervator until it is eventually called of Draw. Little or none of this is shown as Max watches the news about it along with Airiona. The rules changes to limit teams to five fighters as others try to counter Max by using dozens(Airiona thinks they are doing it to stop them). 
-
 When Max joins the fight as the teams support fighter seperating the The cyber.fighter and the cyber.beast when they are on the defense whenever they have a lead. This made it harder for other teams to accumulate points as they have to get through the Cyber.fight standing on the satellite as well as Max controling the detached cyber.beast. Other teams did the same using the code Max opensourced to enable it ensuring such a stategy can not become illegal since anyone can do it. however most teams only employ cybervators not fellow humans to join the team as Max/Airiona/Aarock was hoping would happen. 
 
 Max then starts using more than one color type on his team when Minia joins them. other teams relize the advantage this gives. The rules again change allowing fans to vote for one blue and one red cybervator. This required teams to have 2 red types and 2 blue types on each team in order remain competative. redstributing teams to ensure each team can have at least 2 of each(Airiona thinks they are agian supressing them). 
@@ -133,7 +131,7 @@ Since Airiona is not old enough to join she eventually joins as speeding bullet
 
 - Minia is shown with her former team talking to her Cyber.Beast after teams around the league has begun to use team work
 
-- Max cooks up a strategy
+- Max cooks up a strategy but Minia explains that it might not work and that Torrey is the reason that she gained the reputation of meania during her fresh career as a Cybervator.
 
   Max: Minia I need your help/Cyber.Beast. I need you to be my shield
 
@@ -174,3 +172,17 @@ Since Airiona is not old enough to join she eventually joins as speeding bullet
   Max(smiles): thanks
 
 - Airiona Just as Airiona begins to become less envious of Minia after learning of up bringing and motivations she learns Mina is using the cyber.beast that killed her father. This turns her diminishing hate into hate.
+
+- Max and mina come home walking close side by side looking at each other laughing and playing with each other indicating a growing relationship. Max sees this and becomes jealous and tells Max that she only only wants to help max but other cybervators and/or citizens join in as well to which max gladly invites them this frustrate Airiona.
+
+- The cyber.beast within the satellite headed by Minia refuses to be used by anyone else despite the fact that everyone else has begun fighting in teams. Because of this she is the only cybervator for her network. This leads other to think she is merely selfish fighting alone so that she cant keep all of her profit to herself. Max takes advantage of the situation initiating a trade
+
+- Max tells Airiona even the highest rank cybervator cant control yahariah's cyber.best
+
+- Max (explains): The lag between the CSDs controls small but it's big enough to give Cybervators an advantage over people like us. I got around it by coding the movements direct in real-time
+
+- Yahaira: haha that cyber.beast didn't absorb Torey it killed her consciousness just managed to manifest in the closet beacon it could find 
+
+haha that cyber.beast didn't absorb Torey it killed taking her bitgems along with hit her
+
+- Airiona: A Cyber.Beast's abilities are only limited by the imagination of the wilder. It's potential is wasted on people like Jax
