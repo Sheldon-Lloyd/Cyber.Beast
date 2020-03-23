@@ -177,12 +177,20 @@ Since Airiona is not old enough to join she eventually joins as speeding bullet
 
 - The cyber.beast within the satellite headed by Minia refuses to be used by anyone else despite the fact that everyone else has begun fighting in teams. Because of this she is the only cybervator for her network. This leads other to think she is merely selfish fighting alone so that she cant keep all of her profit to herself. Max takes advantage of the situation initiating a trade
 
-- Max tells Airiona even the highest rank cybervator cant control yahariah's cyber.best
+- Max tells Airiona not even the highest ranked cybervator can control yahariah's cyber.best without going berserk
+  
+  Airiona: well It's a good thing I'm not are Cybervator isn't it.
 
 - Max (explains): The lag between the CSDs controls small but it's big enough to give Cybervators an advantage over people like us. I got around it by coding the movements direct in real-time
 
 - Yahaira: haha that cyber.beast didn't absorb Torey it killed her consciousness just managed to manifest in the closet beacon it could find 
 
-haha that cyber.beast didn't absorb Torey it killed taking her bitgems along with hit her
+haha that cyber.beast didn't absorb Torey it killed her taking the bitgems fueled by her emotions along with hit her. 
+
+Have ever wondered why white.type cyber.beast are pretty much unusable by most cybervators.
+
+You see cyber.beast are fueled by emotion darker emotions bread and feed black.type cyber.beast the opposite holds true for white.type cyber.beast. This only possible because unlike everything else in the universe emotions are not bound by space nor time. What you see before you is merely a remanence of her love she had for you, nothing more.
 
 - Airiona: A Cyber.Beast's abilities are only limited by the imagination of the wilder. It's potential is wasted on people like Jax
+
+- Society likes to separate everyone into the smart and the dumb. The smart people like to think they are better than everyone else. But they are no different than everyone else when they succumb to their emotions.
