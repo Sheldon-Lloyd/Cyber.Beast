@@ -1,29 +1,37 @@
 # Cyber.Beast(Cyber.Fighter) outline 
-
 ## Act 1
 ### 1. Ordinary World
 Episodes: 1
-The back story of the CNS told
-
-Max wants to be a cybervator like his brother
-
-It is assumed that he did not have the tail gene because his parent was a citizen despite the 99% chance that he should have a tail
-
-Everyone tell him it is virtually imposible for him to become a cybervator he says that he beat the odds to become a tailless despite the 1% chance of it happening 
-
 All citizens are allowed to compete in cyberspace and are allowed to be cornermen if they are good enough. They tend to avoid other cybervator in cyberspace but not Max who actively challenges them. This is because Max uses a special complex contoller giving him complete control of his cyber.beast.
 
-- Max is shown dreaming about the day he decided to become a Cybervator to defeat Xenos
+- Max is shown thinking about the day he decided to become a Cybervator to defeat Xenos will watching a CNS match
+The back story of the CNS told
 
-- Max wakes from his dream sleeping in the middle of the finals of the championship match.
+TV: you are watching a presentation of the CNS
+
+[Cybvators only make up 1% of the population and even fewer get a chance to compete in the Cyber.Fighter Championships. You are either lucky enough to be born a cybervator or not]
+
+[They are the only ones that can use a cyber.beast to its full potential ]
+
+[They also own almost half the world's wealth so your pretty lucky if you are born as one]
+
+[Me I am just an average everyday citizen]
+
+[As far as I can remember I have always wanted to be a cyber.fighter]
+
+[Although my father was a human my mother was a cybervator. This meant that I had a 99% chance of becoming one as well. Some how I beat those odds. So instead I live my dreams through my twin brother a cybervator]
+
+Max yells at Jax who is in cyberspace
+
+Max: to your left
+
+Everyone tell him it is virtually imposible for him to become a cybervator he says that he beat the odds to become a tailless despite the 1% chance of it happening 
 
 - Kyshumu's team(Kyshumu, Leona, Tomasina, Jax, Max) wins the championship against Alex(Green), Knilla(Blue), Ace(Red), Carla(Green) with Alex winning the The BluNet MVP award the first Green Cybervator to do so  
 
 - Kyshumu retires during his press conference. Kyshumu announces that he will not be entering the next tournament as he wants to give the the next generation a chance(Jax and Leona)	
   
 - After the interview in frustration Max tells Jax maybe he should retire too
-  
--  confonts Max about it
   
 - Cut away to the backstory of the CNS and its purpose(much of this info will be reveal t be false later own)
 
@@ -38,7 +46,30 @@ All citizens are allowed to compete in cyberspace and are allowed to be cornerme
 ### 2. Call To Adventure
 Episodes: 2, 3, 4
 
-- Airiona tries to dig deaper into the data that he discovered but he realizes that it is encrypted. He thinks Max might be able to help. 
+- Jax joins Leona as she takes her father's place. The second round is now Aarock and Harmony. 
+    
+    Aarock:I was like you once. I was considered one of the best Cyberators. As a...
+
+    Arrock(punches Jax and yells): Rookie!
+
+    Aarock: I kept my head up looking forward never looking at those behind never giving a second thought to those below me.
+
+    Leona: let me guess you got your butt kicked by one of those people behind you.
+
+    Aarock: No I never did. Xenos, my Mentor at the time warned me if I rest/sit on my pedestal for to long that it might start to sink. As we all no he was killed by a rouge cyber.beast stronger than I could imagine. I was powerless to help him. I only got in the way. Only If I was stronger I thought If had just listened to his words. That day I learned that you can never have enough power.
+
+- Aarock switches with Harmony
+
+  Aarock: it's clear your not worth my time
+
+  Leona: I'm not finished with you
+
+- Harmony severely injures Leona leaving Jax as the next man up. Instead of choosing the next best cybervator he surprises everyone by choosing Max as his partner.
+
+- Max and Jax win the 4th round vs Aarock and Knilla and the next round is rumored to be against Harmony once again
+
+- Airiona tries to dig deeper into the data that he discovered but he realizes that it is encrypted. He thinks Max might be able to help. They learn that in the past there was position called a cyber.coordinator
+
   Airiona: You think you can come over when you have time
   
   Max: sure I'll have Jax teleport me over
@@ -55,7 +86,7 @@ Episodes: 2, 3, 4
   
   Max: Amazing where did you get this?
   
-  Airiona: It was in my father's CSD. No one is supposed know about this though which is why i didn't want Jax to come
+  Airiona: It was in my father's CSD. No one is supposed know about this though which is why I didn't want Jax to come
   
   Max: of course Jax is the last person I'd expect to keep a secret
   
@@ -68,6 +99,16 @@ Airiona calls Max to show him ancient tech that he found and goes on about the r
 Airiona thinks that this is the case because Max invented a type of cyber.beast that allowed Citizens to wield cyber.beast by repurposing the device originally used to control cybervators.
 
 Airiona wants Max to help decrypt the data he found but Max tells that it is not possible as only a Cybervator can read it he goe to get Jax but Airiona tells him that Jax is to much of a big mouth
+
+- Jax fights Aarock in cyber space who is nickname the cyber.fighter eater as he will take the cyber.beast of other cyber.fighter and eating them. 
+
+- Cybervators start going Berserk for the first time in since Max's parents was killed by Cyber.Beast which Tomasina talks about cutting it short
+
+Max uses the cyber.beast that he and Airiona found to defend Jax despite the fact that Airiona told Max not to tell anyone especially Jax. But nows that if he does not act that Jax career will be over before it has even begun. Max jumps in and holds Aarock off. 
+
+Aarock is reminded of xenos as he watches him jump in to defend Jax and decides to test his strength. Aarock knows thanks to events past that being a cybervator is more than a game
+
+Jax is amazed by what Max was able to do. Max tells Jax only half of the truth.
 
 Airiona/Max unknowingly press a button
 
@@ -99,17 +140,26 @@ Airiona states that it is not a good idea to tell others about the secrets as it
 
 Max is surprised by this as he is a reporter and one would think he would be the first to want to tell everyone. Airiona tells him it is also a reporter job to use good judgement for what can potentially be detrimental if the world knew about it.
 
-Max makes the team as a cybervator but is not allowed to fight they are only allow him to refuel and give advice to fellow cybervator between rounds which includes who what when where and how to substitute his team's cybervators.
+With Kyshumu retired Jax becomes ReNets number cybervator surpasing even Kyshumu's daughter Leona the is selected to represent the ReNet. This is because of Max's stratigic abilities guiding Jax.
+
+It is customary for the selected Cybervator a tradition started by Kyshumu and Xenos. Jax asks Max to be his apprentice despite the fact that Max is not a Cybervator. 
+
+Why me? I'm not even a Cybervator. You should have chosen Minia
+I didn't choose you based on rather or you are a Cybervator because you were the only one that will allow me to achieve my goals.
+
+He tells Max you could be my coordinator. My cyber.coordinator or Max says Sure well create a new position, (motioning his hands in the air)I'll be your cyber.coordinator.
+
+Jax does not allow Max does not allowed to fight instead he only allows him to refuel him and give advice between rounds which includes.
 
 - Max shows everyone the tech he created which he calls CyTek and suggest maybe he could sub in for a round or two
 
-  Aarock: Wow I thought what you made before was incredible how do you create this stuff
+  Airiona: Wow I thought what you made before was incredible how do you create this stuff
 
   Max: I didn't make it. Its I made from some blueprints from the net. A lot of it was unfinished so all I did was make a few modifications
 
   Max: I call it an Elimter. Normally a Cyber.Beast would be able to synergize with a cybervator thanks to thier tail. Since everbody including cybervators evovled from plants I used a plant to act as the cyber.beast1,2.
 
-  Aarock :so you are basicly sending commands to a beserk cyber.beast like a green cybervator. So it basicly makes you like a Xybrid. 
+  Airiona: so you are basicly sending commands to a beserk cyber.beast like a green cybervator. So it basicly makes you like a Xybrid. 
   
   other.person: what how.
 
@@ -121,23 +171,21 @@ Max makes the team as a cybervator but is not allowed to fight they are only all
 
   Aarock: This must be the(tech lost to time) lost technology from thousands of years ago Xenos was telling. Haha who Cybervators really are a cancer(find new word) to the world
 
-- Max and Jax has their first match without Kyshumu who used to do most if not all of the heavy lifting for his team. This forces them to utilize thier entire team
+- Max and Jax has their first match without Kyshumu who used to do most if not all of the heavy lifting for ReNet. This leaves them at a disadvantage as their oppenet is experinced. Ace/Alex/Spike points this out while in the midst of combat explain the pitfals created by Kyshumu doing everything for them to a fault.
  
-  Max's team faces off against a brutally violent team. Aarock injures Leona so that they maybe forced to forfeit.
+  Ace/Alex switchs places with Harmony who is known to be a brutally violent when losing control. Harmony goes berserk injures Jax so that they maybe are forced to forfeit.
+
+  Max relizes that she might even kill Max relunctant to forfiet he instead switch places with Jax Block her attack breaking his arm in the procces
 
   With Max's team initially struggling commentators critize their misgivings on the fact that Kyshumu did all of the work
   
-  Because of what commentators call nepotism Max is on Leona's team as a center. this however means they don't have a backup mainly because they rarely get injured.
+  Because of what commentators call nepotism they don't have a backup.
   
-  Another commentator says he still has to beat all of the green cybervators within his division
+  Another commentator says he still better than most cybervators although it was in cyberspace which of course does not all ways translate in an actual fight. The othe commentaor exlaims especial when your not a cybervator to begin with. What was he tinking choose some normal human as a partner. He wasnt thinking it was nothing but pure neptusim. This is why I have have been advocating for years that the top Cybervator shouldn't be allowed to choose their partner. It's bad sportsmanship I'll tell you.
 
   Airiona begs Max not to forfeit and tells him this is the perfect opportunity to show the world that anyone can be a Cyber.Fighter. Max tells him that he wont and that they will forfeit
   
-  Just before Max is about to announce their forfeit Aarock taunts(Airionas request) Max telling him to give up and to get a life as he is not a real Cybervator and suggest that Airiona would make a better Cybervator than him. Max  accepts his challenge
-
-  Jax reluctantly allows him to do it. Jax tells him to let him handle everything. 
-  
-  Max takes advantage of his position for his own desires and switches with Jax seeing this as his opportunity to fight and almost gets his self killed by Aarock but still manages to everyone's surprised he is able to wield a Cyber.Beast
+  Max takes advantage of his position for his own desires and switches with Jax seeing this as his opportunity to fight and almost gets his self killed by Harmony but still manages to everyone's surprised he is able to wield a Cyber.Beast
 
 ### 3. Refusal Of The Call
 Episodes: 5, 6
@@ -162,7 +210,6 @@ Jax says that he refuses to contribute to him getting his self killed. Jax tells
 
 Tomasina is angry at Jax and Jax tells him that Max gave him no choice
 
-
 Jax tells Max that it is to dangerous for him to become a Cybervator and that he will not allow it
 
 After Max is released Airiona uses this opportunity to persuaded him to join the Revolution he is starting Max tells that it is not a good idea and that he will go about it the right way.
@@ -174,7 +221,9 @@ Aarock gives Max a new Cyber.Beast supplied by Airiona. Max recognizes it as the
 
 Max joins Aarock's team.
 
-Aarock's team is called irresponsible for doing it as he could get killed out there and hope to never see him out there again
+- Max intially rejects Aarock citing the incident between he and Jax. Aarock tells him that is because Jax was was not ready/worthy to be a cyber.fighter but after fight Max decided to spare Jax out of respect for Max. Or he says that he saw is self in Jax who he used to be
+
+Aarock's team is called irresponsible for doing it as he could get killed out there and hope to never see him out there again. Jax on the other hand is enraged that he would team up with someone like Aarock
 
 - Max asks Aarock why he decided to join Eclipse
 
@@ -198,7 +247,7 @@ Episodes: 10, 11, 12, 13, 14, 15, 16, 17
 
 Minia is/was a free agent for the first few games of the season as no team would sign her for base salary because her asking price was to high. She is also well known to not contribute a fair(50%) share if any mined bitgems to her teams satellite.
 
-- Minia asks to be released from his former team 
+- Minia asks to be released from his former team. Max is surprised that she would join them as she is well know for not only being meania but for stealing the cyber.beast of other cyber.fighters
 
 Max asks Aarock for an opportunity
 
@@ -222,6 +271,8 @@ Max(yells): He what!?
 
 Airiona subtlety nudges Aarock as a way to tell him that he is giving Max to much information
 
+Just before Max is about to quit Aarock taunts(Airionas request) Max telling him to give up and to get a life as was wrong and he is not a real Cybervator and suggest that Airiona would make a better Cybervator than him. Max  accepts his challenge
+
 - While testing/training Max Minia holds back and/or aids while against Max
   
   minia/Aarock: I... I dont want to hurt... 
@@ -233,7 +284,6 @@ Airiona subtlety nudges Aarock as a way to tell him that he is giving Max to muc
   Minia says something in anger in reference to Eclipse being built on cooperation
   
   Max: No she's right. If I can't figure out a way to bet you on my own I shouldn't be out there. You said so your self
-
 
 - Max finally beats Aarock/Minia and is allowed to fight.
 
@@ -330,7 +380,6 @@ To Max's surprise, Airiona has cut off his arm telling Max you like I'm just lik
 
 It turns out the Cyber.Beast that Max had been using allowed Airiona to place a virus in everyone's CSD enabling him to disable their delimiter and control them.
 
-
 ### 8. Ordeal, Death, Rebirth
 Episodes: 23, 24, 25, 26, 27, 28, 29, 30
 
@@ -345,7 +394,6 @@ Max has been unknowingly aiding the Cyvolters as he the Cyber.Beast he was using
 	Airiona: This army
 
 	Airiona reveals all of the Cybervators that are now under his control
-	
 
 Airiona tells Max that he has been using his cyber.beast wrong the whole time but thanks him for the neruolace enabling him to perfect the CSDs. He is no longer forced to command each cybervator one by one but instead use commander's intent to control every single one of them. Unlike Max Airiona is able to control human/full scale Humanoid Cyber.Beast, one of which is Mack
 
@@ -357,7 +405,7 @@ Kyshumu(looks at Tomasina grinning): Just like old times
 
 Tomasina: old times doesn't mean good times
 
-After defeating both Tomasina and Kyshumu he turns them into cyber.beast he tells everyone as I was saying cyber.beast are former cybervators. He precedes to disengage everyone's delimiter turning them into cyber.beast
+After defeating both Tomasina and Kyshumu she turns Kyshumu into cyber.beast she tells everyone as I was saying cyber.beast are former cybervators. He precedes to disengage everyone's delimiter turning them into cyber.beast
 
 Airiona learns and maybe informs everyone else that cyber.beast was once cybervators tools meant for citizens that Citizens were meant to be more than mere spectators this is what Airiona initially wanted to hide.
 
@@ -365,11 +413,11 @@ Max and Jax team back up to fight Airiona by fusing together
 
 Max creates a new virus based on the one Airiona used that will free all the Cybervators
 
-Everyone buys time so that Max can complete the algorithim
+Everyone buys time so that Max can complete the algorithm
 
 Airiona tries to use Yahaira's Cyber.Beast after failing many times before
 
-- It is Airiona that learns who Max really is. Max is on the verge of winning while fighting along with tomasima and/or kyshumu who tries to stop Airiona from telling the tail to inform Max by telling him the story of the xybrids. 
+- It is Airiona that learns who Max really is. Max is on the verge of losing is still trying to convince Airiona to stop while fighting along with Tomasima tries to stop Airiona from telling the tail to inform Max by telling him the story of the Cybervators. 
 
   Max responds with what does that story have to do with. 
 
@@ -379,7 +427,7 @@ Airiona tries to use Yahaira's Cyber.Beast after failing many times before
 
   Airiona: you can tell him Aarock
 
-  Airiona tells Max it is because you have been lied to this entire time. Well remember the limiters we learned about. That head/neck band you are wearing it is not a keepsake it's a restraint. Take it off and I'll free everyone
+  Airiona tells Max it is because you have been lied to this entire time. Well remember the limiters we learned about. That head/neck band you are wearing it is not a keepsake it's a restraint.
 
   Aarock: They fear citizens but they fear your power even more Max
 
@@ -389,21 +437,33 @@ Airiona tries to use Yahaira's Cyber.Beast after failing many times before
 
   Aarock: Berserkers are rare but The chance that a Berserker is born increase 20 fold when a Cybervator has a child with a citizen which is why marriages between the two is prohibited.
 
-  Max: Are you saying? Noo no no I don't believe you no I refuse to believe you
-
   Aarock/Airiona: Berserkers are cybervators that do not need to meditate in order to hyperlink with a cyber.beast. which makes them dangrous so they're killed. this is a secret known only by the highest ranked cybervators
 
   Aarock: This is the world Airiona and I are fighting to fix. We need your help to do. You're the only one who can. Once this is all over will free every not just the Cybervators. I promise.
-   
-  Airiona (jumps down whispers): I'll take it from here Aarock You see it wasn't just any cyber.beast that killed your parents it was you. That's right. Max you killed your father
 
-  Max: Noooooo! Noooooooo!
+  Airiona: This is not how the world was supposed to be My fathers was never supposed to die
+   
+  Airiona: I'll take it from here Aarock You see it wasn't just any cyber.beast that killed your parents it was you. That's right. Max you killed your father. You killed--
+
+    Max(looking down): Your father...
+
+    Max(looking back up):This is my fault!?
 
   Airiona: Whats wrong Max? Ha ha ha, You're not the Idol you thought you were are you
-  
-  Airiona goes to remove the restraint of the distraught Max 
-  
-  Tomasina: don't listen to him he's lying
+
+  Max(Cries): I'm sorry Airiona none of this is your fault
+
+  Airiona: Emotions don't work on me Max. That's why I've always looked up to you. You were different from everyone. That's why I liked you. Growing up I never really cared about anyone. Then I meet you. At first I couldn't understand why. The more I watched the more I came to realize you and I are the same... Well, at least we were the same. When you became a cybervator you changed. Every time you fought I saw a part of you I've never seen before.
+
+  Max: you've spent so much time ignoring fearing, emotions. You've failed to realize what they have made you become. Look around you and tell Airiona does any of this make any logical sense.
+
+  Airiona: I. Don't. Care!
+
+  Airiona: Fight me then. If you want to save these cybervators you care so deeply about, fight me hard as you can.
+
+After realizing his fault in the situation While fighting spike max tells him that it is him he should is angry at that his hate should be pointed at him rather than the world.
+    
+  Tomasina: don't listen. She, she's lying
   
   Jax and company tries to intervene but Aarock and/or Airionas Cyber.Beast comes in to protect him
 
@@ -443,6 +503,14 @@ Airiona asks Max why he saved him after all he did. Max again states he realized
 - Not listen to Airionas advice
 - focusing on his self in stead of using his new status to elevate others
 
+Airiona: Why did you save me after everything I did
+
+Max: I told you already. This is my fault everything I shouldn't have ignored you I should have guided you and most of all... 
+
+Images are shown of Max ignoring Airiona, not listing to Airiona's advise,
+
+Max(Max smiles wiping Airiona's tears):  Everything you said you never wanted any of it. You wanted your father. The father I took from you. I promise you I will fix all of this
+
 Max asks Airiona to stop the Cyber.Beast who says he doesn't know how or Aarock speaks for him
 
 Max is no longer fighting for fame and instead after watch the suffering that Airiona and Aarock went through wants to win in order to change the world one in which Cybervators and Citizens have equal opportunity. This will reverse the artificial oppression created by pass generations
@@ -471,8 +539,6 @@ Alex/Ace gives Max's team a hub/satellite from BluNet as a favor to Max defeatin
 
 Max defeats Jax and wins the championships by using yet another technology he created allowing him to fight in a burstDrive like state
 
-
-
 ### 11. Resurrection
 Episodes: 43, 44, 45, 46, 47, 48, 49, 50
 
@@ -486,14 +552,19 @@ At this point Max smiles maybe looking at his father
 
 - Airiona is reminded of Yahaira but realizes they are the same but different in their goals
   
-  Max: Some compete for the love of the sport others for the glory/fame or money it brings. There also those that crave power or compete simply for the challenge it brings. For me, those are simply means to an end. At first, I thought I had something to prove to show the world that I could be the best which meant I needed to be the best
+  Max: Some compete for the love of the sport others for the glory/fame or money it brings. There also those that crave power or compete simply for the challenge it brings. For me, those are simply means to an end. At first, I thought I had something to prove to show the world that I could be the best which meant I needed to be the best. I wanted fame to be recgonized. But I reliezed it's not about me. I am fighting for everyone
+
   
   Airiona: he's just like
   
-  [flashback]Yahaira: Some fight for the love of the battle others for the glory/fame or money it brings. There also those that crave power or compete simply for the challenge it brings. For me, those are simply means to an end. All I want is to be able to live in peace.
+  [flashback]Bursun: Some fight for the love of the battle others for the glory/fame or money it brings. There also those that crave power or compete simply for the challenge it brings. For me, those are simply means to an end. All I want is to be able to live in peace.
   
   Airiona: no he's different.  He wants redefine what it means to be a Cybervator to show everyone that there are no limits.
   
+  Max: I want to change the perception of who can be a cybervator. In the future will kids like Me won't be designated as fans and told they can't be a Cybervator because they will be able to point back to Me and say I can.
+
+  Airiona: Max is going to change the perception of who can be a cybervator in the future will kids like Max won't be designated as just fans and told they can't be a Cybervator because they will be able to point to Max and say I can.
+
   Image of Max standing with every one on mountain smiling facing his foe while Yahaira stands ahead of everyone frowning alone on a mountain facing his foe
 
 Max passes out at the end of his match
@@ -505,7 +576,7 @@ Matches awakens to find out that he won/loss the match
 
 Max: Did I win
 
-Max visits Airiona After the tournament who is in the hospital and asks the doctor about his arms who tells him you know as good as well as I do that they are not coming back. Airiona tells him that it is ok as it is reminder of what he did a besides just like he said before I also looked up to you any way
+Max visits Airiona After the tournament who is in the hospital and asks the doctor about his arms who tells him you know as good as well as I do that they are not coming back. Airiona tells him that it is ok as it is reminder of what she did a besides just like he said before I also looked up to you any way
 
 After visiting Airiona Aarock asks what will be done with him she's told that he will be treated with his injury then placed in rehab and once he is released he be placed under an intensive surveillance system in which a cybervator will be watching at all times not just sometimes for a few years. As Max explains this process Airiona is shown going through this process
 
@@ -515,9 +586,10 @@ The world has returned to normal but citizens can now compete in the CNS on equa
 
 After learning of everything the new world allows citizens to compete past and present cybervators are freed this starts with Yahaira and the last being torey who is sent back to Helios.Suniverse in her proper time period or a future she does not recognize
 
-
 - Most Cybervators do not change the rules of the sport much if at all as the current rules is what allowed them to win the fist place. Some rule changes submited are modified or even rejected by the CNS if it doesn't align with it's mission to prevent conflict. 
 
   If Max wins he will change the rules so that the two reserved positions must be for citizens. The CNS modifies it and states the the modiication.
 
   If Jax wins he will change the rules so that citizens are not allowed to compete. The Ai not only rejects the request it adds a new rule to require citizens to compete as Airiona has sparked this change
+
+  After Airiona gets freedom aren't you afraid that I will finish the job. Max: As long as the anger is directed towards me Of course not because I will save you again and I will do it no matter how many times it takes. Airiona smiles
