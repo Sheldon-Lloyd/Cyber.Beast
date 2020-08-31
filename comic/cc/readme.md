@@ -1,5 +1,24 @@
+## Themes
+Sloth when the world seems corupt and apears to be falling apart around the answer is not to check out  but rather to dig deaper. Accept that fact that you your life might get harder you may even make the world worst in the short run
+
+Freedom(chaos) vs order(manipulation){To much trust in freedom and order can have a negative impact on society. Societies with to much freedom will look for order usally from a sinlge entity. Socities with to much order will look for freedom. technolgyy amplies both freedom and order.  Dictators can expoloite both the free and the ordered with technology. Fooling those looking for order under the guise of safety. Tricking those looking for freedom through disire
+
+Cyvolters: When the world is in chaos we bring order where there is subjectgation we give freedom
+
+}
+
+Spirtual heart vs logical mind(cyber.beast vs cybervators)
+
+Emotion vs logic(cyber.beast are logic driven and humans have emotion or both are able to control each because of the lack or excess of both){Max's cyber.beast however has emotion and Max has less emotion than normal}
+
 ## Plot
 Max is a huge fan of the relativly new Cybervator leauge. His view of the league changes however after Mina a cybervator literally falls into his lap(Look down at his leg Max thinks back my prostetic leg and her fall wasn't the only thing that broke that day). He learns the sport he loves so much is but a microcosim of reality. '
+
+## Character Development
+People think that Xenos and Kyshumu sepreated over a petty dispute over the like of kassiea. This turns out to be a false assumption as the real reason is a difference in their means to achive albeit similar ideals as Xenos bealived the best way to save the Cybervators is to cut off thier tails at the expense of their memories. Kyshumu on other hand prefers to do it the old fashioned way with brute force killing all who oposes him
+
+## Reminders
+Max kills his father when he is being taken away
 
 ## Notes/Brainstorm
 
@@ -66,7 +85,6 @@ Max: Wait arent you <does she know who I am?>
 
 Kassiea smiles
 
-
 While on a mission Eclipse is saved by Minia as she caries him he questions rather she knows who he is. The situation takes a turn and Max must save Minia after she steps in front of an attack sacrifing herself. After taking her to his hideout she informs him that she knows who he is while he tries to hide from jax
 
 It is confirmed that shes knows who Max is on that Kassiea know who he is when max returns the favor saving Kassiea who passes out while on a mission testing her new energy bean. Or takes a turn as Kassiea must sacrfice herself steping in front of an attack to save Max. He takes her to his hide out until they have the opporutinty to return to her base of operations. At this time Jax or Mina goes searching for Max as they want to make sure he is safe since he is not next to his CSD and Eclipse and Airiona was seen in the area
@@ -118,3 +136,9 @@ When Minia returnrs they clear her of her crimes but return must serve in the ne
 
 Max no longer wants to kill Kyshumu he instead wants to sever the bind he learns Bursun has on Kyshumu
 
+By taking over the CSD of Max so that Minia can become his cybervator she inadvertnly allowed Xenos to recruit him on to the Cyvolters. He is a key cog that the Cyvolters need as they need him to use yaharia's cyber.beast or he has yaharia's cyber.beast. or he was the one that created the software allow humans to synergize with cyber.beast a device he created for his father maybe when he was 5 a device his father ultimatly used to save him
+
+
+### Alternative
+
+Minia was Kassiea's last experiment who escaped running into the house of Max at the time. In the future she again takes refge at his house and assumes he remebers her after he recgonizes her despite her Airiona disguise. She takes Max's CSD plants maybe plants a virus along with changes his primary cyber.fighter to her instead of Xenos She soon learns that he does not remember her after she brings up the past
