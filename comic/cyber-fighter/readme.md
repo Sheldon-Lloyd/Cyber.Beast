@@ -4,6 +4,11 @@ Sports building character teaching people to not look at their self as victims w
 ### Sub-themes
 Competition vs cooperation, don't bite off more than you can chew, leadership, greed(wealth,power,fame)
 
+Playing by the rules{
+Don't complaining that the rules are against you or that it is unfair. Don't try breaking pre established rules. Play by the rules win by the rules so that you can set the new standards. This is what Max does as opposed to Spike. This will allow you the chance to see the grass on the other side before judging rather or not the rules that are in place iis as bad as you first believed
+
+If you dont like the rules of the game you are playing play by the rules win by the rules then change the game. Your resency will inspire others
+}
 Emotion vs logic(cyber.beast are emotionless and humans have emotion both are able to control each because of the lack or excess of both){Max's cyber.beast however has emotion and Max has less emotion than normal}
 
 Spiritual heart vs logical mind(cyber.beast vs cybervators)
@@ -19,12 +24,25 @@ Tails are what allows Cybervator to fuse with Cyber.Beast, without one it is imp
 
 Max shows everyone that there is a third option and slowy changes status quo and the rules change accordingly. 
 
-He is the first cybervator to fight with a team that slowly grows starting with he and Minia/Aarock. His fanbase grows rapidly as upon Minia's suggestion he gives 70% of his bitgems to has fans far more than other cybervators
+He is the first cybervator to fight with a team that slowly grows starting with he and Minia/Aarock. His fanbase grows rapidly as upon Minia's suggestion he gives 80% of his bitgems to has fans far more than other cybervators
+
+Max starts off on his own without a network and with Spike as his cyber.coordinator but builds allies and a team when he starts to help other cybervators in cyber.space. He first defends a cybervator against Aarock who decides to join his team because of this. 
+
+The eclipse dragons provide a ubi for it's citizens/fans to incentivise social good. They are also the first to create a team based champion selection. And are set to prove that you don't need to be a cybervator to particpate and that they can even be a benefit to have on a team rather tha a detramint. Jax however wants to prove otherwise be defeating Max
 
 ### Character development
+  - Ace and Alex backstory
+    
+    Ace see the whole class laughing at alex and exclaims do they know who I am. I'm Jax with the Renet Lions. I am worth millions. Alex tells ace "no ace they don't"
+
+    This gives Alex the idea to show them who he is and Tells Alex that he will choose him as his partner for the cybervator championships
+
+  - Instead of harmony killing some in the past while going berserk it is Minia. Or Minia is scared because her sister killed someone in the past "That my sister" "You mean to tell me Harmony the one that killed a cybervator while in traing is your sister"
+
+  - Maybe Spike's sibling died while getting their cyber.beast this is why his parents did not allow him to get the procedure
+  - Spike also deteriorates  the more he loses power as Eclipse democratizes. He begins to thinks ever is conspiring against him to prevent humans from competing. As the sole fan of the team Spike had the final say for all decisions but as more fans joined that began to change
 
   - Spike begins to accept Minia after learning about her past which Minia tells Max and Spike about herself after they ask about her scars. This changes when she thinks Minia is cheating or sees Max and minia geting closer. she no longer wavers about starting a war 
-
 - If Minia has twin tail throught the story maybe when she disrobes for the final fight she ties her hair in a pony tail instead signaling a change in characters. As with Aarock suspended and Spike imprisoned she maybe fights on defense allowing Max to fight on offense. At this point she has accepted she does not hate cybervators something Max pointed out when she did not want to hurt her opponent outside of cyberspace.
   - Max: Just remember how much you hate Cybervators
 
@@ -32,7 +50,7 @@ He is the first cybervator to fight with a team that slowly grows starting with 
 
     [Flashback to when Minia is placed on offense]
 
-    Max: I don't think you hate Cybervators ~As much as you think~
+    Max: I don't think you hate Cybervators ~~As much as you think~~
 
 
 Spike helps Max with the presumed interest of collecting history bits
@@ -48,6 +66,7 @@ To acomedated Minia Max splits his team into an offensive and defensive unit giv
 After all is said and done fans can vote for one blue.type. red.type and green.type. For each match one red and blue cybervator serve as backups and if they are put into play the starter can not come back in. Green types can not apoint a backup. Only green.types/humans are allowed to switch and only with breachers/strikers. This give green.types the option fight if they so choose. This give teams that has a green.type/citizen serving as the center who fight on offense and defense an advantage.
 
 ## Notes/Reminders
+- Max is Blue and Jax is Red because Mack is from earth and carries both red and blue type genes
 - foreshadow Max power followed by a flash back for reader that might not have noticed
 - Eclipse must use a uniform the uniform because they can't afford a full-body one
 - They must destroy the satellite controlling the cybervators
@@ -287,9 +306,51 @@ Kyshumu tells them to stop trying to warn them they will lose their memory the t
   
   They comprimse by requiring cybervators to give 80% of their bitgems many cybervator leave eclipse because of this rule
 
-  After giving 80% of bitgems far more fans contribute to eclipse Max and Aarock is surprised but Minia is pleased after of whiich many more cybervators comeback
+Aarock tells Max and Minia to take a break from training taking them to a hot tub or beach before they have thier first live match. Minia is angry insiting they have a match tommarow that they should be training and leaves.
+
+When the arives to the beach. If not before the match maybe this is when Max first see's the scars cover Minia's back if not before the match. While relaxing Aarock may explain her traing and how she was not born a cybervator and that she give most if not all of her earning back to the other human making Max realize she is not as selfish/mean as he first thought
+
+Minia: a hot spring? So what kind of training are we doing?
+
+Aarock: none we're here to relax
+
+Minia: how is this going to help us win.
+
+Aarock: we relax to get stronger
+
+Minia leaves maybe leaving her clothing behind
+
+Max maybe picks up her clothes handing to her
+
+Max: Where are you going
+
+Minia: I didn't join this team to have fun
+
+Minia leaves without the clothes that Max has in his hand or snatches it from him
+
+Max: She realy is a meani
+
+Aarock: I can understand were she is come from. I mean we can't Make money I we don't win after all.
+
+Max: yea but--
+
+Aarock: I'm assuming you noticed those scares on her back. Like you should was'nt born as a cybervator. She was geneticly modified like your mother. Beacuse of this the selection process wasn't easy. The training she went through was gruling her scars are probably a result of it. No sane parent would put thier child through something like this unless they had no choice. Minia's family like other blue.types probaly seen it as the only way out of poverty. I doubt she keeps much if any of the money she earns.
+
+Max that's why she demands so much of the base salary
+
+Spike notices that Minia is in cyberspace by herself and asks where everyone else is. She tells him about what happened complaing how they arent even strategizing. Spike explains about giving the mind and body time to rest. This forshadows her later taking this advice and resting before the finals surprising Max. After talking to Spike while mining cyber.beast or winning she eclaims "that's strange" "what's strange" spike/max replies. The gems. Only 80% of it went to the teams satellite. The rest went to the fans. Max upon learning about Minia decides to change the distribution moudle for eclipse or for their satellite. This plus maybe winning the first round of their first match causes Max's team to be flooded with new fans
+
+Before one of Max's matches in Cyberspace Akia one of his bullies apears like she is ready to punch him. but she is actuualy reaching her hand out for a fist bump and tells him not to screw up
+
+
+  After giving 80% of bitgems far more fans contribute to eclipse Max and Aarock is surprised but Minia is pleased after of which many more cybervators comeback
+
+Minia wants to release cybervators as they strugle to maintain their gems. Max will eventually force Minia to take the equvalint of a pay cut in order to support the other cybervators of their growing network she counters with the condition that they must give 50-80% of their gems to the fans
+
+Aarock warns the team that gems of the team is spread too thin thanks to Max allowing anyone to be apart of the team and to use the team cyber.beast and that the teams satellite/cyber.beast won't have enough gems to be competetive during their next match. Spike sugesst that they trade the cybervators on the team for more gems. Minia/Max counters that they all take a paycut instead and ask the other cybervators to do the same. To everyones surprise Minia agrees to a paycut as well
 
 When Commentators interview cybervators they buy and use questions submitted by fans
+- Minia is asked about her pay cut. After explaining her self. It spurs fans share the gems within their cyber.beast's CSD with the team during the teams next match many saying we are in this together in the chat box that can be read in Max's goggles
 - Max on the verge of being the team MVP is asked by spike what he plans to do after becoming cheif. He says that he didn't become a cyber.fighter because he wants to be cheif if anything I just want to prove that I can win despite the fact that I am not a cybervator. So I guess I will just do whatever the people want
 - In last interview before the final match he is asked last time you said that you don't have any plans if you become chief has that changed at all
 
@@ -398,3 +459,96 @@ Max: I guess Jax he is my brother after all
 Spike the class cheif tells the class to settle down. He then explains the reason.
 
 As some of you may have guessed by now are capstone project for the year will be focused on improving the cyber.fighter league
+
+Some one goes to cut the chain connecting a cybervator to airiona
+Kyshumu tells them to stop trying to warn them they will lose their memory the tail is cut off and the cybervator forgets who and where they are
+
+They are told that someone has been controling the cyber.beast behind the attacks
+
+While out with Spike Max sees him controling a cyber.beast
+
+speeding-bullet/eclipse attacks along with his cyber.beast
+
+Tomasia tells Minia Max and Jax she will hold off the Cyber.Beast  while they look for the puppet master.
+
+They decide to split up Max decides to search from the roof tops given that he is not a cybervator
+
+As Minia aids Max to get to higher gruonds to scout for the controler in a way causing Airiona's jealousy to bubble over. he reveals himself maybe using his new prostetic body to attack Minia/Max who does not fight back. "How dare you" Spike says
+
+Jax realizes that it is speeding bullet controlling the powerful cyber.beast. It is about kill Minia. Jax knows that he wont have enough time too get to her. 
+
+His only options is to attack in a way that could kill Speeding.bullet using a final attack long range blast.
+
+Max jumps down protecting Airiona from the blast. 
+
+He loses his head band/glasses in the process which Tomasina takes notice of it heading off to collect it.
+
+He blocks attack using his real arm at first which starts to give and follows up with his real hand succesfully blocking his attack
+
+You let speeding bullet get away
+
+Max tells Jax that he could have killed her
+
+wait do you know her. Is that why you defended her
+
+No I--
+
+How did you know speeding-bullet is a she. 
+
+Minia steps ins saying I thought it was pretty obvious that speeding was a boy he doesn't have any curves gesturing the curves of her body.
+
+Jax says that he knew that
+
+Jax asks why Max got in the way as he could have killed him
+
+Max is about to habitually press it but notices that it is missing
+
+Minia notices that his head band is missing
+
+Oh no my father gave that to me it's the only thing I have left--
+
+Tomasina(appears): lookin for something
+
+Spike tells max/minia he wont hang out with him anymore if s/he does not do what he wants
+
+Alex/Kassiea who is a cyber.coordinator/founder vists Airiona's class whos project is to improve the CNS.
+
+Airiona plans to be the first human to become a cyber.fight allow humans like her and Max to be more than cyber.coordinators but to a be cyber.fighters. 
+
+Alex/Kassiea: tells him that he is not old enough to be a cyber.fighter. The entire class laughes making fun of him
+
+:I bet he is just trying to impress him/her.
+
+:Akia you don't even have a tail slaping him in the back of the head
+
+Embarrassed Spike says that he knows that he is not a cybervator that she know that she is not old enough. It is just--
+
+Alex/Kassiea: interjects You guys didn't let me finish. You can't be the first human cyber.fighter you haven even become a cyber.coordinator yet
+
+Seeing that things have been made worse Alex/Kassiea has a look of remorse
+
+Spike expression changes from anger to embarrassment
+
+Max: you can't be the first human cyber.fighter. I'll be the first human cyber.fighter. And we'll call our selves green.types
+
+Spike raises his eyebrows maybe smiling
+
+The class sitting behind her falls silent or chatters amongst themselves. Is he serious. isn't he Tomasina's son. May he's a cybervator too I mean his brother is.
+
+When a cybervator first goes bersek Max or Spike drops the device that turns a cybervator berserk through eye contact but cannot control them
+
+Airiona disguises her self as speeding bullet and becomes thee second human to become a cyber.fighter. Max saves her telling her are kind has to stick together. Airiona thinks to her self does he no who I am. Later on tells airiona that he new who she was that his cyber.beast was/is a wolf after all
+
+As teams in cyberspace has grown mimicking Max and Aarock Max's team is out numbered 3 to 2 sometimes even more. Spike reccomends Minia aka Meani to join their team despite her recent reputation. Max tells Spike that she is a loner and the few times she has teamed up with other Cybervator takes all of the gems for herself. Aarock warns Max that he is judging a book by it's cover again refrencing to his nick name the eater. Max counters that she doesn't like teaming up with other cybervators anyways. Spike replies which you are not.
+
+Max kills his father and Xenos at a Cybervator Match
+
+After Spike is almost beaten
+
+Spike: I guess I have no choice
+
+All of this time you cybervators have only been using a small portion of a Cyber.Beasts powers. It's true powers has been hidden fom you all. The power to control not just others but space and time it's self. With enough power I will be able to rewrite history back to how was meant to be. With cybervators under our control.
+
+Max/Minia: what power we've taken back all of the cybervator you controled and you barley have enough power to stand.
+
+Airiona: I might not but Max has more than enough
