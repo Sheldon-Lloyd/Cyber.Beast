@@ -12,7 +12,15 @@ Spirtual heart vs logical mind(cyber.beast vs cybervators)
 Emotion vs logic(cyber.beast are logic driven and humans have emotion or both are able to control each because of the lack or excess of both){Max's cyber.beast however has emotion and Max has less emotion than normal}
 
 ## Plot
-Max is a huge fan of the relativly new Cybervator leauge. His view of the league changes however after Mina a cybervator literally falls into his lap(Look down at his leg Max thinks back my prostetic leg and her fall wasn't the only thing that broke that day). He learns the sport he loves so much is but a microcosim of reality. '
+Max is a huge fan of the relativly new Cybervator leauge. His view of the league changes however after Mina a cybervator literally falls into his lap(Look down at his leg Max thinks back my prostetic leg and her fall wasn't the only thing that broke that day). He learns the sport he loves so much is but a microcosim of reality.
+
+BluNet as the only true network left as a result of th on going conflict between ReNet and BluNet as BluNet had eventualy stoped being mercinaries instead taking satellites for their self breaking the promise and removing the purpose of Renet taking advatange of their power. The back and fourth of taking satellites eventually lead to the collapse of ever network except BluNet
+
+Given that ReNet is centralized and back by the last nation on earth destablizing them is as simple as destabilizing that nation. Making it's people hate it's nation. This was why the cyvolters was created witin ReNet and Kyshumu was turned into the leader. Those on earth begins to affiliate ReNet with the cyvolters. The ReNet citzens begin to hate Kyshumu as well as ReNets
+
+BluNet has continued spread the rumor that ReNet has threaten to withdraw protection from the threat of cyber.beast. In reality cyber.beast at this point had not appeared in years.
+
+They also expose the flaws within ReNets foundational sport. Humans prevented from competing(max a citzen of earth and all human being banned even thoose that are citzens of ReNet). The riging of the sport ensuring that those that lose a satellite within the war also lose a satellite within the sport even though satellites have noting to do with the sport(Minia making it to the final despite having only one fan and not being allowed to compete as she is accused of being a cyvolter. With the threat of cyvolters becoming real on earth people on earth lose trust in the Cyvolters leading to man revoking cybervators as body guards). ReNet had allowed BluNet to compete in order to mask the secret war between the 2 networks.
 
 ## Character Development
 People think that Xenos and Kyshumu sepreated over a petty dispute over the like of kassiea. This turns out to be a false assumption as the real reason is a difference in their means to achive albeit similar ideals as Xenos bealived the best way to save the Cybervators is to cut off thier tails at the expense of their memories. Kyshumu on other hand prefers to do it the old fashioned way with brute force killing all who oposes him
@@ -21,6 +29,163 @@ People think that Xenos and Kyshumu sepreated over a petty dispute over the like
 Max kills his father when he is being taken away
 
 ## Notes/Brainstorm
+In the past cyber.coordinators would drop satellites onto hubs enabling them to take over multple satellites at once
+
+(0): We can do a hub drop attack
+
+Kassiea: Sure it my be a surprise attack but that's insanly dificult thats why networks rarely do it anymore
+
+(0): Then will do it at during the next eclipse
+
+Kassiea: Now you are asking the impossible. In case your forget no one has energy at without the sun.
+
+(0): we might not but Eclipse does
+
+When Minia is first arrested she tells the other cybervators 
+
+"I'm Mina with the ReNet Griffins. I'm Mina daughter of Kyshumu. I'm worth millions!"
+
+Max aka eclipse is marked for execution. Dispite being the original eclipse. The same eclipse that created the CSD software. The Max that showed everyone anyone could be a cybervator/cyber.fighter.
+
+Created Kassiea CSDs were intially used as a means to control the first Cybervators of which were red. A way to monitor them in case they go berserk so that another cybervator can easily teleport to their location to kill them. This was because at one point Cybervators were considered dangerous and was isolated on moons away from socity. Here they learn to control their abilites and develop a culture of their own. They were only allowed to return to socitey as long as they agree to be monitored.
+
+When Makkusu comes to the cyber.suniverse he creates an algorithim that can surpress a cyber.beast even allowing them to be placed in plants rather than who he calls humans
+
+Makkusu and Kassia made the orginal versionn but was unable to find a way place and/or control a cyber.beast within it. Max solved the problem Kassia however did not CyTek's impaintence leads them to instead use it to control cybervators someting Kassia had orginal only did to demostrate the potential of the device. In the alternate version CyTek/Kassiea/Makkusu is instead freaked out and hides the technology afraid of potential misuse.
+
+Makkusu was not killed by max rather it was his CSD that was deestroyed and eaten and was used to vist the cyber.suniverse. He worked with Kassiea to create it. They first test it on a cyber.beast. She sees it as an opportunity to use it in place of cybervators if she can find a way to control it. she first tests it on cybervators maybe Xenos volenteers himself as a guenia pig. It works by taking in the DNA of a human or animal placing it into a seed. Any one from that dimension that shares that DNA structure of that species can then use that CSD seed to come into that world. Any one not just the orginal DNA donor will be able to use that seed to come into the world rather dead or alive. If they are alive it is done by achiving alpha wave state. It came happen accindently while dreaming or or intentionally while meditaing. This is how many of the cyber.beast end up in the world contections to random dead or dreaming animals. With humans such a phenomenon is unlikely due to their prefrontal cortex. For Makkusu maybe time in his world moves at a slower rate than the the cyber.suniverse. Makkusu coined the term cyber.suniverse and call the people cyvers
+
+Kassiea is a geneticist by trade which is why she has trouble programing the CSD
+
+Max improved the CSD software that had been opensourced in an act of rebelion by Kassiea. Soon after the cyvolters send out cyber.beast to everyone Max thinks he is choosen to be a cybervator at first later rereading is acceptance letter realizing that he has been serving the cyvolters. He then and demostrated the weaponized version posting a video online. He suggests that everyone will be able to become cybervators.
+
+Max causes Minia to get arrested and becomes eclipse inorder to free her
+
+Tomasina: Eclipse has approiated the name of the Cyvolters twisted the symbol and what it stands for. Using it for a means to his own ends but we will not stand for this. Thanks to the help of Akia and Jax he has been brought to justice. Unfourtanly he was able to take one more causlty before we defeated him. But Max will will forever be remembered as the catylst that sparked the change when the world need it most. He showed us That humans are just as valuble as cybervators. The statue of Max is revealed
+
+Bursun tells the team that they must kill Max before the world learns that he is eclpise
+
+At this point the world has come to admire Max but they fear the cyvoltor who they beleave to be affiliated with Eclipse who the fear even more.
+
+ the symbol that has been the revolutions catylast
+
+Minia confronts Max before or during the mission to Kill eclipse.
+
+They were like a family to me
+
+Max explains everything. Jax/Tomasina Tells Minia not trust him that trust him is how they got in this mess
+
+Minia realizes the that it was an accident and tries to convince Max to escape.
+
+Minia: So your eclipse. Of all people who wouldve guessed
+
+MiNia: this whole time it was you. Why!?
+
+Max ignores her
+
+Akia: So I heard you killed Kyshumu
+
+Max continues to ignore her
+
+Minia: Was it worth it.
+
+Max: what did you say
+
+Minia: Killing kyshumu was it worth it.
+
+Max: You think I wanted to kill him.
+
+Minia: but you--
+
+Max: No it wasn't
+
+Akia: huh?
+
+Max: You wanted know if it was worth
+
+Max: Kyshumu didn't kill my father. I did.
+
+Akia: What are you talking about
+
+Max: Kyshumu. Kyshumu was my father!
+
+Max flash back leading to Kyshumu's death including going berserk
+
+Max: I never wanted to kill him. Even before I knew. Maybe if I knew. maybe.
+
+Max: He was trying to protect me
+
+Akia: So you didnt kill him. Then that means-- 
+
+Scene of Jax Satellite drop on to Max's hideout
+
+Minia: Max you have to get out of here. Jax and Tomasina is on there way to kill you. <Maybe if I tell them truth. No there is no way they will listen theyre filled with rage>
+
+Max I don't deserve to live
+
+
+He does nott move forcing Minia to defend Max. she final fights with all she has showing her true power fight 3 against 1.
+
+Jax: Movie aside Mina. I don't want to hurt you
+
+Minia: And I don't want you to hurt Max
+
+Jax: (don't worry about it) I'm not gonna hurt him...
+
+Minia comes out her fighting stance
+
+Jax(slams hands together to synergize): I'm gonna kill him
+
+Max ask her why she is doing this that he does not desevere her help 
+
+Minia: Did you forget
+
+She stops some of Akia's attacks along with Jax.
+
+Minia: "I'm your Nia"
+
+
+Tomasina realizes how strong Minia is and that they will go nowhere targeting Max. 
+
+Tomasina: Change of plans Akia we can't win like this. We'll have to take out Minia first.
+
+Akia sees this as an opportunity to get payback from when Minia intialy defended Max for the first time
+
+She then attacks Minia to Jax's dismay Max finaly steps in to save Minia.
+
+Tomasina and Akia work together delivering the final blow and Max Evaporates
+
+Minia is placed back in prison for aiding Max
+
+Tomasina tries to tell Max that that Makkusu has to go home but Max insits that he goes with him knowing that he wont see him again for months Makkusu tries to playcat him telling some other time but fails causing Max to go berserk turning into a cyber.beast even though one was never implanted as makkusu did not neither Max or Jax to have a cyber.beast fear they will die in the process even though he may risk them going berserk in the future he instead wants them to be able to make thier own decision when they are older.
+
+Tomasina tells Kyshumu that she is through with him and that the arranged marige is off and that he will never see Jax again
+
+Tomasina: Lets go Jax
+
+Jax pulls away that same way a toddler would pull away from a stranger clinging to Kyshumu
+
+Jax: No! I stay with chief
+
+Tomasina: What did you say to him
+
+Kyshumu: What he need to hear the same thing the world need to hear
+
+	 Nothing he got the news from the same place everyone else did
+
+He is refreing to the news that annouced the Cyber.beast appear killing an entire family and how it could it have been worse had  a prototype human cytek geneticly engineered to be a cybervator Tomasina not been there and how a ReNet cyber.beast was no were in sight until it was too late. The rumor are true ReNet has abandoned us. Thankfuly there was only 2 human casulities Makkusu, and his son was. The rest were cybervaotrs. This however is a lie Jax is the only surviving member but Kyshumu did not want the world that Makkusu had a child with Tomasina. Instead he waits until later to reveal Jax as he adopted after his parents who they press assume to be cybervators was killed in the incindent. In reality The footage shows Tomasina geting everyone to saftey but does not show Kyshumu defeating the Cyber.Beast causing Max to lose his memory and Kyshumu to hide it.
+
+Tomasina: so you you didnt tell him
+
+Kyshumu: should I
+
+	 should he know
+
+Kyshumu tells Torrey that Max's mother wants nothing to do with him since he is not a cybervator like she is. Max knowing this resents his mother for abandoning him.
+
+When he learns that tomasina is his mother he confronts her only to be rejected.
+- After Leona lies to Max about Kyshumu killing him and his father Torrey reveals some of the truth. She tells him that his father never abandoned him but was killed and that it was his mother that abandoned him. She tells him that that is all she can tell him leaving Max confused seting on his path for revenge
+- Tomasina: My son? ha don't make me laugh. You're not my son. I've learned accept that fact that Jax is more than enough along time ago. And if you were my son you would be a cybervator but you your a human how could you possiblyy think that you of all people could be my son. Having Jax as my only son is more than enough for me.
 
 Cyber.beast(faint voice): Help me...
 

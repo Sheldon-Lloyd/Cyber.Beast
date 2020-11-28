@@ -1,13 +1,5 @@
 ## Cyber.Beast(cc) Outline
 
-BluNet as the only true network left as a result of th on going conflict between ReNet and BluNet as BluNet had eventualy stoped being mercinaries instead taking satellites for their self breaking the promise and removing the purpose of Renet taking advatange of their power. The back and fourth of taking satellites eventually lead to the collapse of ever network except BluNet
-
-Given that ReNet is centralized and back by the last nation on earth destablizing them is as simple as destabilizing that nation. Making it's people hate it's nation. This was why the cyvolters was created witin ReNet and Kyshumu was turned into the leader. Those on earth begins to affiliate ReNet with the cyvolters. The ReNet citzens begin to hate Kyshumu as well as ReNets
-
-BluNet has continued spread the rumor that ReNet has threaten to withdraw protection from the threat of cyber.beast. In reality cyber.beast at this point had not appeared in years.
-
-They also expose the flaws within ReNets foundational sport. Humans prevented from competing(max a citzen of earth and all human being banned even thoose that are citzens of ReNet). The riging of the sport ensuring that those that lose a satellite within the war also lose a satellite within the sport even though satellites have noting to do with the sport(Minia making it to the final despite having only one fan and not being allowed to compete as she is accused of being a cyvolter. With the threat of cyvolters becoming real on earth people on earth lose trust in the Cyvolters leading to man revoking cybervators as body guards). ReNet had allowed BluNet to compete in order to mask the secret war between the 2 networks.
-
 ### Part 1
 Based on The Battle of Homestead [[1](https://battleofhomestead.org/bhf/the-battle-of-homestead/)], [[2](https://en.wikipedia.org/wiki/Homestead_strike)] and the the Football war by which the war is triggered by a sporting match[[1](https://en.wikipedia.org/wiki/Football_War)]
 
