@@ -1,17 +1,34 @@
 ﻿﻿## Theme
-**The role sports play in society:**
+**The Harmony between competion and cooperation**
 Sports building character teaching people to not look at their self as victims when confronted with someone ahead they will look at it as an opportunity for improvement a new target to set as a goal that can be surpassed instead of oppressing/stepping on other or cheating to get ahead as this removes the meaning of life. Citizen who have not had the chance to be cybervator inherit this problem.
 ### Sub-themes
-Competition vs cooperation, don't bite off more than you can chew, leadership, greed(wealth,power,fame)
+Don't bite off more than you can chew, leadership, greed(wealth,power,fame)
 
 Playing by the rules{
 Don't complaining that the rules are against you or that it is unfair. Don't try breaking pre established rules. Play by the rules win by the rules so that you can set the new standards. This is what Max does as opposed to Spike. This will allow you the chance to see the grass on the other side before judging rather or not the rules that are in place iis as bad as you first believed
 
-If you dont like the rules of the game you are playing play by the rules win by the rules then change the game. Your resency will inspire others
+If you dont like the rules of the game you are playing play by the rules win by the rules then change the game. Your reselincy will inspire others
 }
 Emotion vs logic(cyber.beast are emotionless and humans have emotion both are able to control each because of the lack or excess of both){Max's cyber.beast however has emotion and Max has less emotion than normal}
 
 Spiritual heart vs logical mind(cyber.beast vs cybervators)
+
+Max wants to cooperate and have fun but needs to compete. He wants to eliminate the CNS championships so that everyone can compete including humans leaving just cyber.beast mining. He wants to encourage cooperation rather competeion amoung each other. He does this by helping other cybervators rather than fighting them hoping they will return the favor. He must learn that some times you have to fight for what you want rather than relying on others. He must stand by his ideas as he chanlanges the ideas and traditions of others testing each to see which rises above the other. Such as when he first trys to join ReNet and BluNet expecting they will change them to change for him instead of becoming the change you wantt to see in the world and inspiring others to follow you cooperate with and top compete with prexisting idea/networks.It is achive through resinlccey through adiversity and winning showing the values of your ideas. ReNet an blunet however both rejects him forcing him to start his own network serving as an alegory for standing by ones ideals
+Jax wants to compete to the point of oppression. He wants to brutaily kill max so that max wont die and so that no other cybervator will ever want atemp to join again
+Spike wants compete to the level of winning by all means even if it means cheating and injuring opponents
+Bursun like Max wants to cooperate an is an example of taking cooperation to far to the state of tyranny. he shows a world with the absence of competetion
+Minia will only compete or cooperated when it serves her ends
+Kyshumu  Being at the top he sets the bar for what is possible for a cyber.fighter but helps people doing everything to the point of handcaping them.
+
+Everyone is a leader in their own right
+Max lacks strength but leads by example pathing new paths for other to follow allong side him. Despite not wanting be a leader he must become one inorder to create harmony between humans and cybervators as he has cmopasion to understand both sides. He must learn that as a person in a posion of power it is his duty be a good citizen. To turn his pedestal into a platform and share with those less forunate
+Bursun paves paths in secrect and drags other to follow. He leads despite resent his position of being held on the pedestal/platform
+Aarock lacks knowledge bu leads by pushing others
+Minia will on lead those she deems worthy by feeding them (gems) before feeding her self
+Kyshumu make people to dependent on him
+Xenos left a last impact and no longer needs to be alive to have a impact on other
+Spike spends so much time looking up to max he fails to realize he has become a leader as well
+Jax is overprotective
 
 ## Plot
 This is a united world in which there is no longer any wars. Peace is maintain by through the CNS league -- a sport in which Cybervators fight each other harness a technology called Cyber.Beast. These Cyber.Beast allow them to perform breathtaking speed, backbreaking/bone crushing strength and unique abilities that defy belief.
@@ -145,7 +162,7 @@ Since Spike is not old enough to join she eventually joins as speeding bullet
 - At first they fight solo in space as only one cybervator is granted the opportunity to defend and fight with a satellite cyber.beast. In cyberspace they fight and against each other and other cyber.beast in order to raise their ranking in hopes of taking the place of that satellites current cyber.fighter/champion.
 
 
-- Cybervators fight solo in the lead up to the championships. On the other hand Eclipse instead aids each other on the road to the CNS championships. Cybervators avoid this stratagey not because they think it is unsporting but rather because of greed as they would have to share the wealth power or even fame. Eclipse exploits this enabling them to mine more and stronger Cyber.Beast than others. This allows weaker Cybervators to take the back set slowing gaining experence and lowers the risk of losing a cyber.beast having to start over. Although this could also mean an unexperinced cyber.fighter could end up in the championship. This why Aarock and Aarock trains Max
+- Cybervators fight solo in the lead up to the championships. On the other hand Eclipse instead aids each other on the road to the CNS championships. Cybervators avoid this stratagey not because they think it is unsporting but rather because of greed as they would have to share the wealth power or even fame. Eclipse exploits this enabling them to mine more and stronger Cyber.Beast than others. This allows weaker Cybervators to take the back set slowing gaining experence and lowers the risk of losing a cyber.beast having to start over. Although this could also mean an unexperinced cyber.fighter could end up in the championship. This why Aarock trains Max
 
 
 - Although Cybervators team up in the championships they dont exhibit team work as they are all working to be selected to the championships and will only comepete out of greed
@@ -308,7 +325,7 @@ Kyshumu tells them to stop trying to warn them they will lose their memory the t
 
 Aarock tells Max and Minia to take a break from training taking them to a hot tub or beach before they have thier first live match. Minia is angry insiting they have a match tommarow that they should be training and leaves.
 
-When the arives to the beach. If not before the match maybe this is when Max first see's the scars cover Minia's back if not before the match. While relaxing Aarock may explain her traing and how she was not born a cybervator and that she give most if not all of her earning back to the other human making Max realize she is not as selfish/mean as he first thought
+When they arives to the beach. If not before the match maybe this is when Max first see's the scars cover Minia's back if not before the match. While relaxing Aarock may explain her traing and how she was not born a cybervator and that she give most if not all of her earning back to the other human making Max realize she is not as selfish/mean as he first thought
 
 Minia: a hot spring? So what kind of training are we doing?
 
@@ -334,7 +351,7 @@ Aarock: I can understand were she is come from. I mean we can't Make money I we 
 
 Max: yea but--
 
-Aarock: I'm assuming you noticed those scares on her back. Like you should was'nt born as a cybervator. She was geneticly modified like your mother. Beacuse of this the selection process wasn't easy. The training she went through was gruling her scars are probably a result of it. No sane parent would put thier child through something like this unless they had no choice. Minia's family like other blue.types probaly seen it as the only way out of poverty. I doubt she keeps much if any of the money she earns.
+Aarock: I'm assuming you noticed those scares on her back. Like you-- should was'nt born as a cybervator-- She was geneticly modified like your mother. Beacuse of this the selection process wasn't easy. The training she went through was gruling her scars are probably a result of it. No sane parent would put thier child through something like this unless they had no choice. Minia's family like other blue.types probaly seen it as the only way out of poverty. I doubt she keeps much if any of the money she earns.
 
 Max that's why she demands so much of the base salary
 
