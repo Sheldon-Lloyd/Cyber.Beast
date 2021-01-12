@@ -107,53 +107,9 @@ After all is said and done fans can vote for one blue.type. red.type and green.t
 - Painting Max(eclipse) as the bad guy is what makes the citizens accept the cybervators governing them as long as they provide protection from the cyvolters
 - People think that wars are won after one side as imposed their will upon the other. Leaving only those that stand with them or indifferent. They think they are bullied into submission afraid of the power they pose. feeling that if they stepped out of line break law of the new enforcers they would incur their wrath. but unbeknownst to them, they are not the losers for they have taken the back seat to prime future generations to revolt against their current oppressors when they least expect long after those of the original conflict is gone.
 
-- Minia is shown with her former team talking to her Cyber.Beast after teams around the league has begun to use team work
-
-- Max cooks up a strategy but Minia explains that it might not work and that Torrey is the reason that she gained the reputation of meania during her fresh career as a Cybervator.
-
-  Max: Minia I need your help/Cyber.Beast. I need you to be my shield
-
-  Minia: Torrey Max needs your help
-
-  Torrey: I refuse. I refuse to let anyone but Minia use me. Let alone letting some one ride me
-
-  Max proceeds to fight but is losing
-
-  Minia: Please Torrey
-
-  Torrey: No, I told already I refuse to let anyone but--
-
-  Torrey looks as Max begins taking off his robe
-
-  Torrey: Max use/ride me
-
-  Minia: what did you just say
-
-  Torrey: That I would only let Ma-- 
-
-  Aarock: turns and looks
-
-  Torrey: A Maximumly charged Minia use me
-
-  Minia: that's not what you said
-
-  Torrey: alright I'll do it just-- Just leave me alone ok.
-
-- Max while riding asks to use her lance
-
-  Torrey: First you asks to ride me now you want to take/touch my lance as well
-
-  Max: please Torrey I... Max looks down at Torrey surprised
-
-  hands Max her lance and blushes
-
-  Max(smiles): thanks
-
 - Spike Just as Spike begins to become less envious of Minia after learning of up bringing and motivations she learns Mina is using the cyber.beast that killed her father. This turns her diminishing hate into hate.
 
 - Max and mina come home walking close side by side looking at each other laughing and playing with each other indicating a growing relationship. Max sees this and becomes jealous and tells Max that she only only wants to help max but other cybervators and/or citizens join in as well to which max gladly invites them this frustrate Spike.
-
-- The cyber.beast within the satellite headed by Minia refuses to be used by anyone else despite the fact that everyone else has begun fighting in teams. Because of this she is the only cybervator for her network. This leads other to think she is merely selfish fighting alone so that she cant keep all of her profit to herself. Max takes advantage of the situation initiating a trade
 
   Jax: but this is the finals
  
