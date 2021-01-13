@@ -47,40 +47,6 @@ Max starts off on his own without a network and with Spike as his cyber.coordina
 
 The eclipse dragons provide a ubi for it's citizens/fans to incentivise social good. They are also the first to create a team based champion selection. And are set to prove that you don't need to be a cybervator to particpate and that they can even be a benefit to have on a team rather tha a detramint. Jax however wants to prove otherwise be defeating Max
 
-### Character development
-  - Ace and Alex backstory
-    
-    Ace see the whole class laughing at alex and exclaims do they know who I am. I'm Jax with the Renet Lions. I am worth millions. Alex tells ace "no ace they don't"
-
-    This gives Alex the idea to show them who he is and Tells Alex that he will choose him as his partner for the cybervator championships
-
-  - Instead of harmony killing some in the past while going berserk it is Minia. Or Minia is scared because her sister killed someone in the past "That my sister" "You mean to tell me Harmony the one that killed a cybervator while in traing is your sister"
-
-  - Maybe Spike's sibling died while getting their cyber.beast this is why his parents did not allow him to get the procedure
-  - Spike also deteriorates  the more he loses power as Eclipse democratizes. He begins to thinks ever is conspiring against him to prevent humans from competing. As the sole fan of the team Spike had the final say for all decisions but as more fans joined that began to change
-
-  - Spike begins to accept Minia after learning about her past which Minia tells Max and Spike about herself after they ask about her scars. This changes when she thinks Minia is cheating or sees Max and minia geting closer. she no longer wavers about starting a war 
-- If Minia has twin tail throught the story maybe when she disrobes for the final fight she ties her hair in a pony tail instead signaling a change in characters. As with Aarock suspended and Spike imprisoned she maybe fights on defense allowing Max to fight on offense. At this point she has accepted she does not hate cybervators something Max pointed out when she did not want to hurt her opponent outside of cyberspace.
-  - Max: Just remember how much you hate Cybervators
-
-    Minia: But Idon't hate them you said it yourself
-
-    [Flashback to when Minia is placed on offense]
-
-    Max: I don't think you hate Cybervators ~~As much as you think~~
-
-
-Spike helps Max with the presumed interest of collecting history bits
-
-The more Max wins the more history bits they collect. The more Spike learns about the past the more she resents the present. The more Max wins the more pleasure he enjoys in the present. By stories end Max becomes self indulgent and arrogant while Spike is filled with self pity and envy. They must eventual overcome these faults to work together so they can defeat Bursun. Spike must coordinate both Max and Jax allowing her to make the best of the skills she has. Max must bring Airona back to the side of good by recogonizing his own faults
-
-When Max joins the fight as the teams support fighter seperating the The cyber.fighter and the cyber.beast when they are on the defense whenever they have a lead. This made it harder for other teams to accumulate points as they have to get through the Cyber.fight standing on the satellite as well as Max controling the detached cyber.beast. Other teams did the same using the code Max opensourced to enable it ensuring such a stategy can not become illegal since anyone can do it. however most teams only employ cybervators not fellow humans to join the team as Max/Spike/Aarock was hoping would happen. 
-
-Max then starts using more than one color type on his team when Minia joins them. other teams relize the advantage this gives. The rules again change allowing fans to vote for one blue and one red cybervator. This required teams to have 2 red types and 2 blue types on each team in order remain competative. redstributing teams to ensure each team can have at least 2 of each(Spike thinks they are agian supressing them). 
-
-To acomedated Minia Max splits his team into an offensive and defensive unit giving them yet another advantage thanks to them being able to specialize. Other teams do the same. Aarock finally lets Max fight on offense but not defense allowing him to alternate/rotate with Minia. After Aarock Bites off the tail of a cybervator they agian create an ejection rule.
-
-After all is said and done fans can vote for one blue.type. red.type and green.type. For each match one red and blue cybervator serve as backups and if they are put into play the starter can not come back in. Green types can not apoint a backup. Only green.types/humans are allowed to switch and only with breachers/strikers. This give green.types the option fight if they so choose. This give teams that has a green.type/citizen serving as the center who fight on offense and defense an advantage.
 
 ## Notes/Reminders
 - Max is Blue and Jax is Red because Mack is from earth and carries both red and blue type genes
@@ -96,20 +62,14 @@ After all is said and done fans can vote for one blue.type. red.type and green.t
   - Justify her downward spiral She goes all in after seeing Max is not only a cybervator but was the one that killed her father. She is pushed over the edge when she thinks Mina who she already hates is cheating
   - show her being mislead and misleading others such as believing that she is being cheated leading other to think the same
   - She realizes the world she thought she wanted is not what she actually wanted
-## Brainstorm
-- Episodes: 22-52
-- Roles
+
+## Episodes: 22-52
+## Characters and Roles
   - Broadcaster/Commentator: Akia, Spike
   - Cornerman/crew: Akia?, Max
   - Cybervator: Jax, Aarock, Ace, Harmony
   - Chief: Kyshumu, Alex  
 
-- Painting Max(eclipse) as the bad guy is what makes the citizens accept the cybervators governing them as long as they provide protection from the cyvolters
-- People think that wars are won after one side as imposed their will upon the other. Leaving only those that stand with them or indifferent. They think they are bullied into submission afraid of the power they pose. feeling that if they stepped out of line break law of the new enforcers they would incur their wrath. but unbeknownst to them, they are not the losers for they have taken the back seat to prime future generations to revolt against their current oppressors when they least expect long after those of the original conflict is gone.
-
-- Spike Just as Spike begins to become less envious of Minia after learning of up bringing and motivations she learns Mina is using the cyber.beast that killed her father. This turns her diminishing hate into hate.
-
-- Max and mina come home walking close side by side looking at each other laughing and playing with each other indicating a growing relationship. Max sees this and becomes jealous and tells Max that she only only wants to help max but other cybervators and/or citizens join in as well to which max gladly invites them this frustrate Spike.
 
   Jax: but this is the finals
  
