@@ -14,10 +14,10 @@ Emotion vs logic(cyber.beast are emotionless and humans have emotion both are ab
 Spiritual heart vs logical mind(cyber.beast vs cybervators)
 
 Max wants to cooperate and have fun but needs to compete. He wants to eliminate the CNS championships so that everyone can compete including humans leaving just cyber.beast mining. He wants to encourage cooperation rather competeion amoung each other. He does this by helping other cybervators rather than fighting them hoping they will return the favor. He must learn that some times you have to fight for what you want rather than relying on others. He must stand by his ideas as he chanlanges the ideas and traditions of others testing each to see which rises above the other. Such as when he first trys to join ReNet and BluNet expecting they will change them to change for him instead of becoming the change you wantt to see in the world and inspiring others to follow you cooperate with and top compete with prexisting idea/networks.It is achive through resinlccey through adiversity and winning showing the values of your ideas. ReNet an blunet however both rejects him forcing him to start his own network serving as an alegory for standing by ones ideals
-Jax wants to compete to the point of oppression. He wants to brutaily kill max so that max wont die and so that no other cybervator will ever want atemp to join again
-Spike wants compete to the level of winning by all means even if it means cheating and injuring opponents
-Bursun like Max wants to cooperate an is an example of taking cooperation to far to the state of tyranny. he shows a world with the absence of competetion
-Minia will only compete or cooperated when it serves her ends
+Jax wants to compete to the point of exclusion. He wants to brutaily kill max so that max wont die and so that no other cybervator will ever want attempt to join again
+Spike's envy leads him compete to the level of winning by all means even if it means cheating and injuring opponents
+Bursun like Max wants to cooperate an is an example of taking cooperation to far to the state of tyranny. he shows a world with the absence of competetion. His compasion leads him towards tyrany
+Minia hates competition to the point of self rightouness. Redstributing wealth to those she thinks deservse it most. She creates a sense of victimhood and resentment.
 Kyshumu  Being at the top he sets the bar for what is possible for a cyber.fighter but helps people doing everything to the point of handcaping them.
 
 Everyone is a leader in their own right
@@ -70,73 +70,12 @@ The eclipse dragons provide a ubi for it's citizens/fans to incentivise social g
   - Cybervator: Jax, Aarock, Ace, Harmony
   - Chief: Kyshumu, Alex  
 
-
-  Jax: but this is the finals
- 
-  Max: yea the same one we fought an won last year and the year before and basically every year since
-
-  Max looks down in sadness
-  
   Max: Listen my dream was to beat Xenos and does that look like Xenos to you. Besides I wanted to do it not to help Kyshumu beat him.
- 
-  Jax: you think I don't want to be out there too you don't see me complaining. Man up and do your job.
- 
-  Leona: haha you going on about being a cyber fighter again max I mean at least jax is justfied but you you not even a real cybervator
- 
-  Max: stay out of this
-
-  Leona: You expect me to be scared of you. Hehe you can't hurt me
- 
-  Jax: he might not be able to but I can
- 
-  Leona(walks away with her hands in the air): alright, alright forget I ever said anything
-  
-- Kyshumu retires during his press conference. Kyshumu announces that he will not be entering the next tournament as he wants to give the the next generation a chance(Jax and Leona)
-
-  Max: May be I should retire too
-  
-- After the interview Jax confronts Max
-  
-  Jax: Yea right. You won't quit.
-  
-  Max: Why not it's just a game
-  
-  Jax: The CNS is not just some game you can quit when things aren't going your way
-
-- Cut away to the backstory of the CNS and its purpose(much of this info will be reveal t be false later own)
-
-  Spike is shown watching it
-  
-  Max and Jax teleports behind Spike
-  
-  Max: Hey, whatcha watching?
-  
-  Spike(quickly turns off what he was watching): nothing! would it hurt to warn me before teleport out of no were like that
-  
-  Max: but I thought you said it was cool/awesome when I did that. Wait don't tell me you're too old/cool for this stuff now
-  
-  Spike: well I am 12 now
-  
-  Max: Haha ok well did you watch the CNS finals
-  
-  Spike: naw I already knew you'd win.
      
-      
-  Spike: Hey is that my food
-  
-  Jax: I couldn't help my self it was just sitting there
-  
-  Spike: But I was eating that
-  
-  Jax: I'll pay you back
-  
-  Spike: that's not the point
-  
-  Max(smirks): That's Jax for you
-  
-- Spike continues viewing the data he found and finds something seemingly shocking
-  
-  Spike(Stands up): Huh!? No way!
+What is the purpose of competition https://www.youtube.com/watch?v=25vM_BM8YRo
 
-Max kills his father and Xenos at a Cybervator Match
+  
+
+
+
 
