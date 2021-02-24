@@ -47,36 +47,17 @@ Max starts off on his own without a network and with Spike as his cyber.coordina
 
 The eclipse dragons provide a UBI for it's citizens/fans to incentivize social good. They are also the first to create a team based champion selection. And are set to prove that you don't need to be a cybervator to participate and that they can even be a benefit to have on a team rather than a detriment. Jax however wants to prove otherwise be defeating Max
 
+## Episodes: 22
 
-## Notes/Reminders
-- Max is Blue and Jax is Red because Mack is from earth and carries both red and blue type genes
-- foreshadow Max power followed by a flash back for reader that might not have noticed
-- Eclipse must use a uniform the uniform because they can't afford a full-body one
-- They must destroy the satellite controlling the cybervators
-- Spike will not only to be forgiven by Max but the world as well even after taking down kyshumu who is considered by most as the G.O.A.T of the CNS.
-  - Show her current and past suffering from the beginning maybe she is bullied for her dream of being a cybervator. Later she can be shown heart broken over failing the gene screen as well as morning her father she barley remembers. The fact she remembers him at all surprises Kassiea/Aarock
-  - she must expose the flaws of the world providing a reason for her actions. That she and many others in the world resent cybervators. She makes question rather this is the way the world should be. That the cybervators have lost what it means to lead. It must be something that many if not most in the world agree with
-  - show her helping other humans who are 80% of society as a way to show her kindness. It at also will help her be seen as more charismatic as will be able understand that she wants to help them
-  - Hiding her speeding identity from the world as the secret benefactor for Max. The fact the she is a child will make society more forgiving of her actions for those against her and will make those that supported her turn away as they will feel tricked.
-  - show that Spike feels remorse as she begins to doubt her self and then finally saving/protect not only Max but the other cybervators from Bursun. It will initially look like she is attack them but she is instead saving them sacrificing maybe her fathers cyber.beast in the process at the same time identity is exposed leaving her vulnerable.
-  - Justify her downward spiral She goes all in after seeing Max is not only a cybervator but was the one that killed her father. She is pushed over the edge when she thinks Mina who she already hates is cheating
-  - show her being mislead and misleading others such as believing that she is being cheated leading other to think the same
-  - She realizes the world she thought she wanted is not what she actually wanted
-
-## Episodes: 27
 ## Characters and Roles
-  - Broadcaster/Commentator: Akia, Spike
-  - Cornerman/crew: Akia?, Max
+  - Broadcaster/Commentator: Akia
+  - Cyber.coordinator: Alex, Max
   - Cybervator: Jax, Aarock, Ace, Harmony
-  - Chief: Kyshumu, Alex  
+  - Chief: Tomasina  
 
   Max: Listen my dream was to beat Xenos and does that look like Xenos to you. Besides I wanted to do it not to help Kyshumu beat him.
      
 What is the purpose of competition https://www.youtube.com/watch?v=25vM_BM8YRo
-
-  
-
-
 
 ## Outline
 
