@@ -465,13 +465,13 @@ Spike tries to use Yahaira's Cyber.Beast after failing many times before
 
   Max(Cries): I'm sorry Spike none of this is your fault
 
-  Spike: Emotions don't work on me Max. That's why I've always looked up to you. You were different from everyone. That's why I liked you. Growing up I never really cared about anyone. Then I meet you. At first I couldn't understand why. The more I watched the more I came to realize you and I are the same... Well, at least we were the same. When you became a cybervator you changed. Every time you fought I saw a part of you I've never seen before.
+  Spike: Emotions don't work on me Max. That's why I've always looked up to you.  Growing up I hated everyone. But you were different from everyone else. That's why I saw you as a bro... no the father I never had. At first I couldn't understand why. The more I watched the more I came to realize you and I are the... no we were the same. When you became a cybervator you changed. Every time you fought I saw a part of you I've never seen before.
 
   Max: you've spent so much time ignoring fearing, emotions. You've failed to realize what they have made you become. Look around you and tell Spike does any of this make any logical sense.
 
   Spike: I. Don't. Care!
 
-  Spike: Fight me then. If you want to save these cybervators you care so deeply about, fight me hard as you can.
+  Spike: Fight me then. If you want to save these cybervators you care so deeply about. Fight Me!
 
 After realizing his fault in the situation While fighting spike max tells him that it is him he should is angry at that his hate should be pointed at him rather than the world.
     
