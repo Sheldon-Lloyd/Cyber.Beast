@@ -17,12 +17,13 @@ Max just wants to have fun but needs to compete.  He wants to encourage cooperat
 Jax wants to compete to the point of exclusion. He wants to brutality kill max so that max wont die and so that no other cybervator will ever want attempt to join again
 Spike's envy leads him compete to the level of winning by all means even if it means cheating and injuring opponents
 Bursun like Max wants to cooperate an is an example of taking cooperation to far to the state of tyranny. he shows a world with the absence of competition. His compassion leads him towards tyranny
-Minia hates competition to the point of self righteousness. Redistributing wealth to those she thinks deserves it most.He wants to eliminate the CNS championships so that everyone can compete including humans leaving just cyber.beast mining.
 
-Kyshumu  Being at the top he sets the bar for what is possible for a cyber.fighter but helps people doing everything to the point of handicapping them.
+Minia hates competition to the point of self righteousness. Redistributing wealth to those she thinks deserves it most. She wants to eliminate the CNS championships so that everyone can compete including humans leaving just cyber.beast mining. She will often hep other cyber.fighters mine cyber.beast. This means splitting the cyber.beast gems between herself the the person she helped. Most if not all perceive this to be her stealing from them. Spike and/or Max however sees it what she believes she is doing which is her helping others
+
+Kyshumu represents what it means to be at the top of the competitive hierarchy. Being at the top he sets the bar for what is possible for a cyber.fighter and help to elevate those who are lower on the hierarchy. But he helps people doing everything to the point of handicapping them.
 
 Everyone is a leader in their own right
-Max lacks strength but leads by example pathing new paths for other to follow along side him. Despite not wanting be a leader he must become one in order to create harmony between humans and cybervators as he has compassion to understand both sides. He must learn that as a person in a poison of power it is his duty be a good citizen. To turn his pedestal into a platform and share with those less fortunate
+Max lacks strength but leads by example paving new paths for other to follow along side him. Despite not wanting be a leader he must become one in order to create harmony between humans and cybervators as he has compassion to understand both sides. He must learn that as a person in a position of power, it is his duty be a good citizen. To turn his pedestal into a platform and share with those less fortunate
 Bursun paves paths in secrecy and drags other to follow. He leads despite resent his position of being held on the pedestal/platform
 Aarock lacks knowledge but leads by pushing others
 Minia will on lead those she deems worthy by feeding them (gems) before feeding her self
@@ -62,27 +63,34 @@ What is the purpose of competition https://www.youtube.com/watch?v=25vM_BM8YRo
 
 ## Outline
 
-1. **[Ordinary world/Theme stated](/1)**
+1. **[Ordinary world/Theme stated](/cyber-fighter/comic/1)**
 : The project for the year is sponsored by the CNS the class is given the task to improve it.
-    1. This is the last year for Max this means that he must lead a portion of this year's project.  The history of the CNS is explained to everyone before they are asked to present their ideas
+    1. This is the last year for Max this means that he is eligible lead a portion of this year's project.  The history of the CNS is explained to everyone before they are asked to present their ideas
     1. Max is chosen by the teacher Ai to be class leader a role he is somewhat reluctant to take
     1. Max confronts Aarock
 
 1. **[The call]()**
-: Max decides he he wants to be more than just a cyber.coordinator
+: Max decides he wants to be more than just a cyber.coordinator
     1. Max confronts Aarock
     1. Max and Spike watch as Tomasina wins the championship. 
-    1. The first cyber.beast sighting is reported by Spike/Akia. This worries Max who hopes that Spike will be ok
+    1. The first cyber.beast sighting is reported by Spike/Akia. This worries Max who hopes that Spike will be ok. The first cybervators on the seen are at first exicited to see real action but are easlly defeated/killed
 
 1. **[Refusal]()**
 : Jax releases Max
-    1. Spike was shown to be on the train with the cyber.beast sighting but is shown to be saved by Aarock
+    1. Kyshumu shows up to defeat the cyber.beast but is reckless destroying a train with people in and/or around it leaving other cybervators like Aarock and Tomasina to clean up behind him. Tomasina complains that he will get some one killed which Kyshumu denies.
+    1. Spike was shown to be on/near the train Kyshumu flips but is shown being saved by Aarock.  He leaves and tells her then you do it leaving the cyber.beast to do as it pleases.
     1. Jax releases Max Even his own mother votes against him joining BluNet telling him that his rankings is not high enough and/or now that she is the Chief everything she does will be put under a microscope by the world
     1. Tomasina is in a cyberspace digital round table discuss rather Max should be allowed to join BluNet
     1. Tomasina retires giving Max her satellite with the ultimatum that he finds a cybervator to pair with before she allows him to have it
     Cybervators however refuse to pair with Max's even having his newly acquired satellite which is the highest ranked satellite given that tomasina just won the championship with it. 
+: Jax tries to stop Max by fighting him in cyberspace. 
+    1. Tomasina reminds Jax of the reason they competed in the previous championship. When Jax accuses his mother of playing favorites she tells him if she was playing favorites she would have let him on her team. Rather than making him stand on his own 2 feet
+
 
 1. **[Mentor/Adventure]()**
+: Aarock teams up with Max
+    1. Aarock steps in to help Max
+    1. To spite Max Jax offers to join Leona's team who recently signed Minia then releases Minia. Kyshumu is angered that she would released her own sister
     Max signs Aarock
     1. The draft is over by time Max is given his own network so with no other choice Max reluctantly signs Aarock. The only cybervator willing to help Max
     1. The first thing Aarock wants to do is mine cyber.beast in order to make their satellite stronger but Max believes it is strong enough given that Tomasina just won the championship with it
@@ -91,29 +99,28 @@ What is the purpose of competition https://www.youtube.com/watch?v=25vM_BM8YRo
     1. spike interrupts the class lecture to correct the Ai teacher only to be laughed at by the class and Max attempts to console him
 
 1. **[Crossing]()**
-: Jax tries to stop Max. 
-    1. Tomasina reminds Jax of the reason they competed in the previous championship. When Jax accuses his mother of playing favorites she tells him if she was playing favorites she would have let him on her team. Rather than making him stand on his own 2 feet
-    1. To spite Max Jax offers to join Leona's team who recently signed Minia then releases Minia. Kyshumu is angered that she would released her own sister
-
-1. **[Test]()**
-: Eclipse wins their first match
-    1. Not being allowed to fight or draw up tactics Max falls asleep during Aarock's match that they are winning easily and dreams about the day he decided to be a cybervator. 
-    1. Aarock trains Max 
-    1. A cyber.beast appears Max gets knocked of a building trying to fight the cyber.beast
-
-1. **[Temptress]()**
-: Offers to Minia join Eclipse
+: Max has his first match but but Aarock does not allow him to fight. A cyber.beast appears as Max tries to help he realizes that he is severely outmatched and is saved by Minia
+    1. Not being allowed to fight or draw up tactics Max falls asleep during Aarock's match that they are winning easily and dreams about Minia or the day he decided to be a cybervator. 
+    1. A cyber.beast appears Max gets knocked off a building trying to fight the cyber.beast
     1. Max falls unconscious while falling and dreams about meeting Minia while unconscious. Minia saves Max. 
-    1. With no one wanting to join her team minia offers aid and saves max
+1. **[Test]()**
+: Eclipse fights their first match and Aarock trains Max 
+
+
+1. **[Temptress/goddess]()**
+: Minia Offers to join Eclipse
+
+    1. With no one wanting to join her team minia offers aid to Max but is turned down as Spike does not trust her
+    1. Minia challenges but surrenders to eclipse giving them an extra satellite and again asks to join Eclipse
 
 1. **[Alliances]()**
 : Minia joins eclipse
-    1. Minia challenges but surrenders to eclipse giving them an extra satellite
+    1. Minia(mind if I join/help) helps Max defeat Aarock 
     1. With BluNet Ace and Alex the 2 remaining satellites teaming up they have a 3 to 2 advantage cyber.fighter(Ace, Knilla, Harmony) cyber.coordinator(Alex) versus Eclipse
     1. Minia joining the team is perfect timing as. They lose their dragon satellite and are left with Minia’s satellite which they name phoenix. The timing makes Spike suspicious of Minia
 
 1. **[Tasks]()**
-Minia(mind if I join/help) helps Max defeat Aarock Max helps spike collect history bits by defeating Cybervators/cyber.beast
+Max helps spike collect history bits by defeating Cybervators/cyber.beast
     1. BluNet is defeated by decoupling the teams cyber.beast with Minia and Aarock both on offense and defense
     1. Minia helps to train Max. While fighting Aarock Minia switches with Max at the last moment allowing Max to land his first hit as Aarock lets his guard. Aarock congratulates Max however exclaims that it does not count since Max was unable to do it on his own so is still not allowed to fight.
 
@@ -132,7 +139,7 @@ With Max on the cusp of becoming a cyber.fighter he invites Spike to be his repl
 
 1. **[Ordeal]()**
 Max catches spike cheating confirming he is the one behind the cyber.beast attacks. Spike sees it as no different than the rule changes designed to hold their team back and declares war and reveals what he learned about bursun. He also takes off his robe revealing that he has cut off his arm(s) in order to be like Max 
-    1. Harmony goes berserk and tries to attack Max but stops just short of killing him giving Aarock/Minia enough time to protect him or max enough time to recharge and deploy a shield or to shoot a blast. Max becomes suspicious and questions Spike after the match as he had just learned Spike shard with him the ability to control cyber.beast
+    1. Harmony goes berserk and tries to kill Max but stops just short of killing him giving Aarock/Minia enough time to protect him or max enough time to recharge and deploy a shield or to shoot a blast. Max becomes suspicious and questions Spike after the match as he had just learned Spike shared with him the ability to control cyber.beast
     1. The device activates when harmony is close enough to have direct eye contact and hear the subtle music while also being made uncomfortable. In this case it is from the site if her own blood or the blood of her opponent
     1. Accusing Max of yet another cheap tactic the crowd boos Max’s team Max confronts Spike in anger 
 
