@@ -56,7 +56,7 @@ Episodes: 2, 3, 4
 
     Leona: let me guess you got your butt kicked by one of those people behind you.
 
-    Aarock: No I never did. Xenos, my Mentor at the time warned me if I rest/sit on my pedestal for to long that it might start to sink. As we all no he was killed by a rouge cyber.beast stronger than I could imagine. I was powerless to help him. I only got in the way. Only If I was stronger I thought If had just listened to his words. That day I learned that you can never have enough power.
+    Aarock: No I never did. Xenos, my Mentor at the time warned me if I rest/sit on my pedestal for to long that it might start to sink. As we all know he was killed by a rouge cyber.beast stronger than I could imagine. I was powerless to help him. I only got in the way. Only If I was stronger I thought If had just listened to his words. That day I learned that you can never have enough power.
 
 - Aarock switches with Harmony
 
@@ -169,9 +169,9 @@ Jax does not allow Max does not allowed to fight instead he only allows him to r
 
   Max: no I did, during the fight(geting blood) / I did it using the right vibration frequency
 
-  Aarock: This must be the(tech lost to time) lost technology from thousands of years ago Xenos was telling. Haha who Cybervators really are a cancer(find new word) to the world
+  Aarock: This must be the(tech lost to time) lost technology Xenos was telling. Haha who knew Cybervators really are a cancer(find new word) to the world
 
-- Max and Jax has their first match without Kyshumu who used to do most if not all of the heavy lifting for ReNet. This leaves them at a disadvantage as their oppenet is experinced. Ace/Alex/Spike points this out while in the midst of combat explain the pitfals created by Kyshumu doing everything for them to a fault.
+- Max and Jax has their first match without Kyshumu who used to do most if not all of the heavy lifting for ReNet. This leaves them at a disadvantage as their opponent is experienced. Ace/Alex/Spike points this out while in the midst of combat explain the pitfalls created by Kyshumu doing everything for them to a fault.
  
   Ace/Alex switchs places with Harmony who is known to be a brutally violent when losing control. Harmony goes berserk injures Jax so that they maybe are forced to forfeit.
 
