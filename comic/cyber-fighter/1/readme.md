@@ -30,6 +30,8 @@ You spent years fighting along side and with cybervators as a human now it's tim
 Spike is bullied Max is chosen by the teacher Ai to be class leader a role he is somewhat reluctant to take
 Spike pulls out a seat to sit at the desk next to Max. As Spike puts his stuff down before sitting down Akia takes Spike's seat.
 
+    Akia: oh look a freshmen
+
     Akia: gee thanks
 
     Spike: Hey I was gonna sit there
@@ -206,7 +208,7 @@ Afterward everyone wants to join Max's team giving their ideas including Akia bu
 The class presents ideas for the CNS
 - someone plans to instead of one commentator he wants to have 2 making it more engaging for the audience and maybe also read comments from their live stream favoring those that pay and with high up votes.
 - one person wants to bring broadcasting into cyberspace in this case most of the class joins him
-
+- Akia names her project Spike tv as a joke to antagonize Spike
 
 ## Resolution
 
@@ -272,17 +274,17 @@ Max talks how it was bitter sweet just as Jax takes some of Max's food to lighte
 
     Max(rolls eyes):what
 
-    Jax: who's hub is this!
+    Jax: who's network is this!
 
-    Max: our hub
+    Max: ReNet's network
 
-    Jax: who's hub is this!
+    Jax: who's network is this!
 
     Max(face of irriation): our hub
 
     Jax: I can't hear you. Whos 
 
-    Max: OUR HUB! Now stop screaming in my ear.
+    Max: OUR NETWORK! Now stop screaming in my ear.
 
     Jax: That's the additude I want to see. Now let's protect it.
 
