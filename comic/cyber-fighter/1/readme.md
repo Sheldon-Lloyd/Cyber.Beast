@@ -62,60 +62,60 @@ Max wakes up from an dream in which he is a cybervator and has to save the world
 
 Max is designated as the class leader and is awaken by his classmate Spike
 
-Ai: As some of you may have guessed by now our capstone project for the year will be focused on improving the cyber.fighter league
+    Ai: As some of you may have guessed by now our capstone project for the year will be focused on improving the cyber.fighter league
 
-Ai: The first leader for this years capstone project is Max Akinosun. Please introduce yourself and the project proposal for your team
+    Ai: The first leader for this years capstone project is Max Akinosun. Please introduce yourself and the project proposal for your team
 
-Spike: hey did you hear
+    Spike: hey did you hear
 
-Max: What...? 
+    Max: What...? 
 
-Spike: your one of the class leaders
+    Spike: your one of the class leaders
 
-Max: Why me!?
+    Max: Why me!?
 
 
-Max stands up lethargically
+    Max stands up lethargically
 
-Akia: oh come on, him of all people. Out of everyone, that's who the stupid Ai chooses 
+    Akia: oh come on, him of all people. Out of everyone, that's who the stupid Ai chooses 
 
-Max introduces himself to the class explaining his lot in life how he is a human but his brother is a Cybervator despite the chance of it happening being 1%.
-Max is chosen to be class leader 😂
+    Max introduces himself to the class explaining his lot in life how he is a human but his brother is a Cybervator despite the chance of it happening being 1%.
+    Max is chosen to be class leader 😂
 
-Max(wipe the sleep from his eye): My name is Max Akinosun. 
+    Max(wipe the sleep from his eye): My name is Max Akinosun. 
 
-Max(smiling): In case your wonder If I'm related to Jax, the cybervator that I share the same last name with.
+    Max(smiling): In case your wonder If I'm related to Jax, the cybervator that I share the same last name with.
 
-Max: Well long story short as you all know Cybervators only make up 1% of the population and even fewer get a chance to compete in the Cyber.Fighter Championships. You are either lucky enough to be born a cybervator or not
+    Max: Well long story short as you all know Cybervators only make up 1% of the population and even fewer get a chance to compete in the Cyber.Fighter Championships. You are either lucky enough to be born a cybervator or not
 
-Max: They're the only ones that can use a cyber.beast to its full potential
+    Max: They're the only ones that can use a cyber.beast to its full potential
 
-Max: They also own almost half the world's wealth so your pretty lucky if you are born as one
+    Max: They also own almost half the world's wealth so your pretty lucky if you are born as one
 
-Akia: get to the point
+    Akia: get to the point
 
-Max: Anyways, me I am just an average everyday citizen
+    Max: Anyways, me I am just an average everyday citizen
 
-Max: As far as I can remember I have always wanted to be a cyber.fighter
+    Max: As far as I can remember I have always wanted to be a cyber.fighter
 
-Max: Although my father was a human my mother was a cybervator. This meant that I had a 99% chance of becoming one as well. Somehow I beat those odds. So instead I live my dreams through my twin brother a cybervator as what he calls a cyber.coordinator. Even though I'm not a cybervator my brother chose me to be his pair. I create the strategies and he executes them. I guess you can say that I'm the brains and he is the brawn
+    Max: Although my father was a human my mother was a cybervator. This meant that I had a 99% chance of becoming one as well. Somehow I beat those odds. So instead I live my dreams through my twin brother a cybervator as what he calls a cyber.coordinator. Even though I'm not a cybervator my brother chose me to be his pair. I create the strategies and he executes them. I guess you can say that I'm the brains and he is the brawn
 
-Akia: ha look at this joker
+    Akia: ha look at this joker
 The class laughs and Max along with them and makes a quip
 
-Max: ha ha ha funny story I know
+    Max: ha ha ha funny story I know
 
-Spike: why are you guys laughing he's telling  the truth
+    Spike: why are you guys laughing he's telling  the truth
 
-Akia: what did you say Spike speak up the rest of the class can't hear you
+    Akia: what did you say Spike speak up the rest of the class can't hear you
 
-Spike: I said he's telling the truth!
+    Spike: I said he's telling the truth!
 
 The class again except Max and Spike bursts out laughing again
 
-Max: Anyways that's my story I don't really have any ideas but I'm all ears if anyone else has any
+    Max: Anyways that's my story I don't really have any ideas but I'm all ears if anyone else has any
 
-Akia: see told you he'd make a terrible team leader he doesn't even gave a project proposal ready
+    Akia: see told you he'd make a terrible team leader he doesn't even gave a project proposal ready
 
 Spike is the first to express his idea
 
@@ -125,23 +125,23 @@ Spike plans to be the first human to become a cyber.fighter allowing humans like
 
 Max tells him that he is not old enough to be a cyber.fighter. The entire class laughs making fun of him
 
-:I bet he is just trying to impress him because he thinks he is Jax's brother.
+    :I bet he is just trying to impress him because he thinks he is Jax's brother.
 
-Akia: you don't even have a tail slapping him in the back of the head
+    Akia: you don't even have a tail slapping him in the back of the head
 
-Spike(Embarrassed): I know that I'm not a cybervator that she know that she is not old enough. It is just--
+    Spike(Embarrassed): I know that I'm not a cybervator that she know that she is not old enough. It is just--
 
 Spike expression changes from anger to embarrassment
 
 Seeing that things have been made worse Max has a look of remorse
 
-Max: interjects You guys didn't let me finish. You can't be the first human cyber.fighter. I'll be the first human cyber.fighter. And since cybervator with red hair are called red.types and cybervators with blue hair are called blue.types we'll call our selves green.types
+    Max: interjects You guys didn't let me finish. You can't be the first human cyber.fighter. I'll be the first human cyber.fighter. And since cybervator with red hair are called red.types and cybervators with blue hair are called blue.types we'll call our selves green.types
 
 Spike raises his eyebrows maybe smiling
 
 The class chatters/whispers Is he serious.
 
-Max: any other ideas
+    Max: any other ideas
 
 the class remains silent
 
