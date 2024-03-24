@@ -64,24 +64,23 @@ What is the purpose of competition https://www.youtube.com/watch?v=25vM_BM8YRo
 ## Outline
 
 1. **[Ordinary world/Theme stated](/cyber-fighter/comic/1)**
-: The project for the year is sponsored by the CNS the class is given the task to improve it.
-    1. This is the last year for Max this means that he is eligible lead a portion of this year's project.  The history of the CNS is explained to everyone before they are asked to present their ideas
+: The project for the year is sponsored by the CNS. The class is given the task of improving it.
+    1. This is the last year for Max which means that he is eligible to lead a portion of this year's project.  The history of the CNS is explained to everyone before they are asked to present their ideas
     1. Max is chosen by the teacher Ai to be class leader a role he is somewhat reluctant to take
     1. Max confronts Aarock
 
 1. **[The call]()**
 : Max decides he wants to be more than just a cyber.coordinator
-    1. Max confronts Aarock
-    1. Max and Spike watch as Tomasina wins the championship. 
-    1. The first cyber.beast sighting is reported by Spike/Akia. This worries Max who hopes that Spike will be ok. The first cybervators on the seen are at first exicited to see real action but are easlly defeated/killed
+    1. Max confronts Aarock or Max and Spike watch as Tomasina wins the championship. 
+    1. The first cyber.beast sighting is reported by Spike/Akia. This worries Max who hopes that Spike will be ok. The first xybervators on the scene are at first excited to see real action but are easily defeated/killed
 
 1. **[Refusal]()**
 : Jax releases Max
-    1. Kyshumu shows up to defeat the cyber.beast but is reckless destroying a train with people in and/or around it leaving other cybervators like Aarock and Tomasina to clean up behind him. Tomasina complains that he will get some one killed which Kyshumu denies.
+    1. Kyshumu shows up to defeat the cyber.beast but is reckless flipping and destroying a train with people around it leaving other cybervators like Aarock and Tomasina to clean up behind him. Tomasina complains that he will get someone killed which Kyshumu denies.
     1. Spike was shown to be on/near the train Kyshumu flips but is shown being saved by Aarock.  He leaves and tells her then you do it leaving the cyber.beast to do as it pleases.
-    1. Jax releases Max Even his own mother votes against him joining BluNet telling him that his rankings is not high enough and/or now that she is the Chief everything she does will be put under a microscope by the world
     1. Tomasina is in a cyberspace digital round table discuss rather Max should be allowed to join BluNet
-    1. Tomasina retires giving Max her satellite with the ultimatum that he finds a cybervator to pair with before she allows him to have it
+    1. Jax releases Max Even his own mother votes against him joining BluNet telling him that his rankings is not high enough and/or now that she is the Chief everything she does will be put under a microscope by the world
+    1. Tomasina retires giving Max her satellite with the condition that he finds a cybervator to pair with before she allows him to have it
     Cybervators however refuse to pair with Max's even having his newly acquired satellite which is the highest ranked satellite given that tomasina just won the championship with it. 
 : Jax tries to stop Max by fighting him in cyberspace. 
     1. Tomasina reminds Jax of the reason they competed in the previous championship. When Jax accuses his mother of playing favorites she tells him if she was playing favorites she would have let him on her team. Rather than making him stand on his own 2 feet
