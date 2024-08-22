@@ -1,6 +1,6 @@
 ﻿﻿## Theme
 **The Harmony between competition and cooperation**
-Sports building character teaching people to not look at their self as victims when confronted with someone ahead they will look at it as an opportunity for improvement a new target to set as a goal that can be surpassed instead of oppressing/stepping on other or cheating to get ahead as this removes the meaning of life. Citizen who have not had the chance to be cybervator inherit this problem.
+Sports building character—teaching people not to look at themselves as victims. When confronted with someone ahead of them they will look at it as an opportunity for improvement, a new target to set as a goal that can be surpassed instead of oppressing/stepping on other or cheating to get ahead as this removes the meaning of life. Citizen who have not had the chance to be cybervator inherit this problem.
 ### Sub-themes
 Don't bite off more than you can chew, leadership, greed(wealth,power,fame)
 
