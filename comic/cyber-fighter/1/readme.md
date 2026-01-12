@@ -84,9 +84,9 @@ Max is designated as the class leader and is awaken by his classmate Spike
 
     Max(wipe the sleep from his eye): My name is Max Akinosun. 
 
-    Max(smiling): In case your wonder If I'm related to Jax, the cybervator that I share the same last name with.
+    Max(smiling): In case your wondering I amm related to Jax, the cybervator that I share the same last name with.
 
-    Max: Well long story short as you all know Cybervators only make up 1% of the population and even fewer get a chance to compete in the Cyber.Fighter Championships. You are either lucky enough to be born a cybervator or not
+    Max: Well long story short as you all know Cybervators only make up 1% of the population. 144,000 to be exact and even fewer get a chance to compete in the Cyber.Fighter Championships. You are either lucky enough to be born a cybervator or not
 
     Max: They're the only ones that can use a cyber.beast to its full potential
 
